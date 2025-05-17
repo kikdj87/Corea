@@ -293,7 +293,7 @@ intentamos.
 tienes mucho trabajo... tú tienes más presión allí que yo...
 - Tengo ganas de verte – Lloriqueé.
 - Y yo – Sonrió – Bueno, hasta mañana mi Kikita... te quiero.
-- Yo también te quiero mi delfín – Él rió y yo no pude evitar
+- Yo también te quiero mi Junsu – Él rió y yo no pude evitar
 reí – Hasta mañana.
 Colgué y miré el teléfono. Con unas buenas palabras se
 solucionó todo, había que ser perseverantes hasta el fin... todo

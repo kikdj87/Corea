@@ -82,7 +82,7 @@ Todas nos volteamos para mirar como entraban tan entretenidos, hablando de sus c
 
 Vistos de cerca, los trece eran mucho más guapos. Pude apreciar en Siwon su bonita sonrisa y su espalda recta. Como Elena me decía, él era un perfecto caballero. También me fijé en el hoyuelo de LeeTeuk en su mejilla, que se formaba cuando sonreía ante las tonterías del mayor del grupo. También vi la musculatura de KangIn, que me tuvo un rato paseando los ojos por sus brazos... Y sentencié con un gran sí, el hecho de que Donghae siempre mantuviera la boca abierta... ¿no se le metían moscas o qué? Reí. Y Sungmin era más bajito de lo que yo había imaginado, pero se le veía tan dulce ahí, junto a KyuHyun, que jugueteaba con un colgante que el rosado llevaba, ausentes de lo que ocurría allí. Estaban tan cerca de nosotras, que aquello para mí era un sueño... del cual, jamás querría despertar. De pronto, una voz aguda y chillona captó mi atención haciendo que me pusiera roja como un tomate.
 
---- Y a la voz del delfín, el gato ha resucitado --- Rió Elena, a lo que las otras tres también rieron.
+--- Y a la voz del Junsu, el gato ha resucitado --- Rió Elena, a lo que las otras tres también rieron.
 
 Y en efecto, Junsu se acercaba a pasos agigantados hacia donde estábamos nosotros, se abrió paso entre los SuJu y se acercó a mí. Al principio se quedó parado, sin saber qué hacer, pero al fin reaccionó dándome un beso en la mejilla.
 
@@ -104,7 +104,7 @@ Y en efecto, Junsu se acercaba a pasos agigantados hacia donde estábamos nosotr
 
 --- ... --- Heechul puso un gran puchero y se desplomó sobre la mesa --- La vida es injusta...
 
---- La vida es trabajo --- Dijo Dongsea divertido. De pronto me miró y me vio cogida de la mano con Junsu. Vi en su rostro tristeza, decepción... vi tantas cosas que me sentí fatal, con disimulo, me solté de la mano de mi delfín y me acaricié el pelo. Desvié la mirada y escuché como él suspiró --- Bueno, a vosotros dos os quiero en la sala siete, ¿vale?
+--- La vida es trabajo --- Dijo Dongsea divertido. De pronto me miró y me vio cogida de la mano con Junsu. Vi en su rostro tristeza, decepción... vi tantas cosas que me sentí fatal, con disimulo, me solté de la mano de mi Junsu y me acaricié el pelo. Desvié la mirada y escuché como él suspiró --- Bueno, a vosotros dos os quiero en la sala siete, ¿vale?
 
 --- Si, allí estaremos --- Dijo Siwon. Y de Heechul solo escuché un suspiro.
 
@@ -120,7 +120,7 @@ No pasó mucho cuando los SuJu se tuvieron que marchar, ya que llegó su manager
 
 --- Te esperaré --- Me solté de su mano y me marché mirando tres o cuatro veces hacia atrás...
 
-Lo quería, él era una persona dulce, cariñosa, alocado y muy divertido... ¿Cuánto iba a durar lo nuestro? No lo sabía, pero deseaba que bastante tiempo... Aunque Cora me pusiese muchas velas negras... Nunca imaginé que iba a querer tanto a este delfín alocado.
+Lo quería, él era una persona dulce, cariñosa, alocado y muy divertido... ¿Cuánto iba a durar lo nuestro? No lo sabía, pero deseaba que bastante tiempo... Aunque Cora me pusiese muchas velas negras... Nunca imaginé que iba a querer tanto a este Junsu alocado.
 
 Después de leer unos papeles muy aburridos, llegaron Jane y Elena a mi despacho diciéndome que teníamos que empezar con los ensayos. Se acomodaron en un par de sillas y me miraron.
 
@@ -276,7 +276,7 @@ Cerré los ojos para no ver como asestaba golpes contra mi cuerpo con ese cuchil
 
 Al fin me solté de sus brazos y fui corriendo hasta Junsu, taponé su herida con mi temblorosa mano. Changmin y Jaejoong entraron junto con Yoochun, hablaron con la gente del edificio, pero yo solo tenía ojos para Junsu y su herida.
 
---- ¿Qué has hecho, delfín idiota? --- Dije entre lágrimas --- ¿Por qué lo has hecho?
+--- ¿Qué has hecho, Junsu idiota? --- Dije entre lágrimas --- ¿Por qué lo has hecho?
 
 --- Kiki... --- Me acarició la mejilla --- Me pondré bien...
 
@@ -286,7 +286,7 @@ De pronto escuché las voces de mis amigas, quienes bajaron rápidamente, pero y
 
 --- ... --- Lo miré llorosa sin poder decir nada.
 
-Se llevaron el cuerpo de Junsu en camilla y el del otro también. Enseguida llegó la policía y un coche negro, del cual bajaron dos hombres que yo conocía perfectamente. Choi YunChae y Kim JaeHoon, mis abogados. Yunho me abrazó y me dio un pañuelo para limpiarme las manos mientras venía la policía.
+Se llevaron el cuerpo de Junsu en camilla y el del otro también. Enseguida llegó la policía y un coche negro, del cual bajaron dos hombres que yo conocía perfectamente. Choi Yunchae y Kim Jaehoon, mis abogados. Yunho me abrazó y me dio un pañuelo para limpiarme las manos mientras venía la policía.
 
 --- ¿Qué paso, Kiki? --- Me preguntó.
 
@@ -298,10 +298,10 @@ Se llevaron el cuerpo de Junsu en camilla y el del otro también. Enseguida lleg
 
 --- ¡¡...!! --- Los miré sorprendida --- ¿Y cómo lo sabe él?
 
---- ... --- Se miraron. Kim JaeHoon tomó la palabra --- Dongsea vino, lo vio y nos llamó.
+--- ... --- Se miraron. Kim Jaehoon tomó la palabra --- Dongsea vino, lo vio y nos llamó.
 
 --- ¿Qué es lo que está pasando? --- Yoochun estaba serio --- ¿Por qué querían hacerle daño? --- Me señaló.
 
---- Sin el consentimiento de ella, no podemos decir nada --- Dijo YunChae.
+--- Sin el consentimiento de ella, no podemos decir nada --- Dijo Yunchae.
 
 --- Pero Junsu está herido --- Dijo Jaejoong. De pronto me miró --- Kiki...

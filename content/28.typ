@@ -595,7 +595,7 @@ momento de tensión.
 tomó la palabra – Yoochun... lo siento.
 - ¿Me he perdido algo? - Pregunté.
 - Si – Dijo Changmin – Junsu se enfadó con Yoochun.
-- ¿Qué? - Miré mal al delfín idiota y le di un golpe en el brazo
+- ¿Qué? - Miré mal al Junsu idiota y le di un golpe en el brazo
 - ¿Por qué?
 - Lo siento mucho... - Agachó la cabeza.
 - ¡Hay no! - Me puse en pie – Siento decir esto... y me duele,

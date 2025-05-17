@@ -31,7 +31,7 @@ que habían dicho.
 Entonces me dieron ganas de decir que yo estaba saliendo
 con Junsu, pero si habían olvidado por completo el horrible 
 436
-incidente y no suponían nada de lo mío con el delfín, yo estaba más
+incidente y no suponían nada de lo mío con el Junsu, yo estaba más
 que feliz por eso. El caso es que estaban intentando por todos los
 medios calmar a las fans ofendidas, pero que yo debía de entender
 que no a todas les hace gracia ver como unas extranjeras se habían

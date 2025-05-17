@@ -242,9 +242,9 @@ Y justo cuando nos íbamos a besar, sonó el puñetero telefonillo, que quise es
 
 --- Espera --- Lo corté y miré a ambos --- ¿Cuál es la razón de esto?
 
---- ... verás --- Heechul sonrió --- Este delfín sabrá.
+--- ... verás --- Heechul sonrió --- Este Junsu sabrá.
 
---- No me llames delfín --- Dijo enfadado.
+--- No me llames Junsu --- Dijo enfadado.
 
 --- Junsu... --- Lo miré seria y él desvió la cabeza.
 
@@ -285,9 +285,9 @@ Y justo cuando nos íbamos a besar, sonó el puñetero telefonillo, que quise es
 Y se quedó tan pancho. A mí me costó reaccionar, pero Junsu ya estaba sonrojado mientras le daba con un cojín en la cara. Yo me puse nerviosa y me puse en pie. Di varias vueltas y los miré en
 silencio.
 
---- Bueno, me voy --- Sonrió Heechul --- Me alegra saber que estás bien --- Me dio un par de golpes en el hombro --- Y no te creas que, por ser la novia de este delfín, dejaré de venir a visitarte...
+--- Bueno, me voy --- Sonrió Heechul --- Me alegra saber que estás bien --- Me dio un par de golpes en el hombro --- Y no te creas que, por ser la novia de este Junsu, dejaré de venir a visitarte...
 
---- No me llames delfín --- Lo miró enfadado. Se sonrojó y sorprendió --- ¿Novios?
+--- No me llames Junsu --- Lo miró enfadado. Se sonrojó y sorprendió --- ¿Novios?
 
 --- Efectos retardados --- Rió alocadamente --- ¡Chao Kikita!
 
@@ -307,7 +307,7 @@ No dije nada, simplemente sonreí y lo abracé. Me acerqué a su oído y, despu�
 
 --- ... --- Miré a Junsu, que puso su dedo en su boca en señal de que no le dijera nada --- No sé dónde está Yoochun, por aquí no ha pasado...
 
---- Este delfín idiota... --- Masculló y yo reí --- Escucha, si lo ves o algo, dile que venga, que tenemos una entrevista en la Mnet...
+--- Este Junsu idiota... --- Masculló y yo reí --- Escucha, si lo ves o algo, dile que venga, que tenemos una entrevista en la Mnet...
 
 --- Ok, aunque lo dudo un poco --- Sonreí y Junsu también.
 
@@ -321,7 +321,7 @@ No dije nada, simplemente sonreí y lo abracé. Me acerqué a su oído y, despu�
 
 --- ... --- Suspiró y asintió --- Será lo mejor por Yoochun --- Dijo --- Además, Heechul lo sabe, prefiero decirlo yo antes que él.
 
---- ... --- Reí y le di un beso en la mejilla --- Que te vaya bien, mi delfín --- Le di un suave pellizco en la mejilla.
+--- ... --- Reí y le di un beso en la mejilla --- Que te vaya bien, mi Junsu --- Le di un suave pellizco en la mejilla.
 
 --- A ti también, mi princesa --- Me besó y abrió la puerta.
 

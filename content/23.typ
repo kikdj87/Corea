@@ -436,7 +436,7 @@ en el hombro a Eun, y yo comencé a reírme.
 - Jolín... ¿que pensaran de mí? ¿Les gustare? ¿No les
 gustare? ¿Les pareceré una niña? ¿Me verán muy gordo? - En ese
 momento Eun se miró el culo y yo estalle en risas.
-- ¿Mi voz es como un delfín de verdad? - Imito Yunho con
+- ¿Mi voz es como un Junsu de verdad? - Imito Yunho con
 voz de pito.
 - ¡¡Ya vale!! - Junsu estaba más que colorado y nosotros tres
 no dejábamos de reírnos. La escena fue buenísima, y el hecho de
@@ -470,7 +470,7 @@ prensa y vi como Yunho hablaba con ellos para calmarlos. Junsu se
 me quedo mirando, pero alguien me impedía ir hacia él. Alce la
 cabeza.
 - ¿Yoochun? - Me soltó.
-- Ese delfín es idiota – Susurro junto con un suspiro - ¿A
+- Ese Junsu es idiota – Susurro junto con un suspiro - ¿A
 quién se le ocurre gritar eso de esa manera?
 - Solo a Junsu – Sonreí y le mire a los ojos. No me estaba
 mirando a mí aunque lo intentaba – Oye... yo... quiero pedirte
@@ -557,7 +557,7 @@ Yoochun... y mis padres.
 353
 - ¡Ah, María! - Mi madre me llamó - ¿Dónde te has metido?
 - Busco a alguien... - Seguía mirando por todos lados.
-- Fijo que al delfín – Dijo Yoochun entre risas en español.
+- Fijo que al Junsu – Dijo Yoochun entre risas en español.
 - Ah... Yoochun – Dijo de pronto la madre de Hana –
 Piénsate mi propuesta.
 - Mama – Hana estaba muy roja.

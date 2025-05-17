@@ -222,7 +222,7 @@ Charlamos más sobre el tema y enseguida nos fuimos a casa, ya que no teníamos 
 
 --- ... --- Puse morritos --- Nada, nada --- Dejé el móvil sobre la cama --- ¡Vamos a ver la tele! Van a salir en una gala...
 
-Fuimos al comedor entre risas y miradas y nos sentamos frente a la televisión. Aún no había empezado, así que veían animadas el especial de Big Bang... pero yo tenía la mente en otra cosa. ¿Parejas? ¿Era la novia de Junsu? ¿Lo había dicho para cambiar de tema? Comencé a hacerme remolinos en el pelo mientras pasaba de lo que las chicas estaban diciendo... no lo entendía... para nada... y mucho menos si no lo entendía, se lo iba a contar a ellas... ¡¡ja!! Por lo menos aún no... No hasta que aclarara mi mente y hablara con ese... delfín escandaloso.
+Fuimos al comedor entre risas y miradas y nos sentamos frente a la televisión. Aún no había empezado, así que veían animadas el especial de Big Bang... pero yo tenía la mente en otra cosa. ¿Parejas? ¿Era la novia de Junsu? ¿Lo había dicho para cambiar de tema? Comencé a hacerme remolinos en el pelo mientras pasaba de lo que las chicas estaban diciendo... no lo entendía... para nada... y mucho menos si no lo entendía, se lo iba a contar a ellas... ¡¡ja!! Por lo menos aún no... No hasta que aclarara mi mente y hablara con ese... Junsu escandaloso.
 
 --- ¡¡Kiki!! --- Elena me movía del brazo --- ¡Reacciona! Que ya ha empezado...
 
@@ -323,7 +323,7 @@ Sonreí agradecida al comentario de R y nos pusimos a preparar la cena. Después
 
 --- Lo sé --- Hubo un momento de silencio --- ¡No, Junsu, no, que estoy hablando...!
 
---- ¡¡Hola!! --- Lo cogió el delfín --- ¿Qué tal?
+--- ¡¡Hola!! --- Lo cogió el Junsu --- ¿Qué tal?
 
 --- Genial --- Me reía yo sola --- ¿Por qué le quitas el teléfono a Yoochun?
 
@@ -617,7 +617,7 @@ Justo delante de unas ventanas grandes había un bonito sofá blanco en forma ci
 
 --- ¡¡Que guay!! --- Junsu rió --- ¡¡Os hemos traído...!!
 
---- ¡¡Junsu!! --- Yoochun y Yunho lo mandaron a callar. El delfín se puso serio de pronto y se sonrojó muchísimo. Yoochun tomó la palabra --- Un placer teneros aquí.
+--- ¡¡Junsu!! --- Yoochun y Yunho lo mandaron a callar. El Junsu se puso serio de pronto y se sonrojó muchísimo. Yoochun tomó la palabra --- Un placer teneros aquí.
 
 --- Bueno, una persona se conoce mejor comiendo --- Señaló Changmin a la mesa y los chicos rieron. Incluso escuché unas pequeñas risas de las chicas --- Que... --- Se sonrojó --- Tengo hambre...
 
@@ -725,7 +725,7 @@ Sentí un movimiento brusco que Junsu me cogía y que Yoochun no quería soltarm
 
 --- ... --- Reí al ver que se había puesto celoso --- Pero Junsu --- Alcé la mano y la coloqué en su mejilla --- Tú...
 
---- ¡¡Eh!! --- Yoochun comenzó a golpear la puerta --- ¿Hacía falta que cerraras con pestillo, delfín estúpido?
+--- ¡¡Eh!! --- Yoochun comenzó a golpear la puerta --- ¿Hacía falta que cerraras con pestillo, Junsu estúpido?
 
 --- ¡Ah, eh...! --- Se puso en pie algo nervioso --- Ya está mejor, mucho mejor... --- Abrió la puerta y los vi ahí a todos mirándome.
 

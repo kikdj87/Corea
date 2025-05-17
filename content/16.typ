@@ -281,7 +281,7 @@ sabes...
 Risas y más risas hasta que llegamos a la discoteca. Dejé el
 coche en el aparcamiento y me quedé un momento en este,
 pensativa. En toda la semana no había hablado con Junsu, más bien
-hablaba con Jae que me contaba cómo le iba a mi delfín, y ya me
+hablaba con Jae que me contaba cómo le iba a mi Junsu, y ya me
 preguntaba por Jane y R, ya que todos estaban ansiosos por saber
 qué pasaba, ya que el tiempo corría en mi contra. Nos bajamos del
 coche y en la puerta nos reunimos con los cuatro chicos. YoungWha

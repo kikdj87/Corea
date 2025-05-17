@@ -181,7 +181,7 @@ Hana hablaba de nuevo con Boa, Yoochun, Jaejoong y... ¿Tiffany? ¿Hana se habí
 
 --- Eso espero...
 
-Avisé a las chicas, que no tuvieron ningún problema en que me marchara con Junsu... aunque Lee SooMan me miró mal... o eso vi... estaba algo traumada por lo que las chicas me habían dicho. Nos montamos en su coche, un coche bastante normal, la verdad sea dicha. Me monté y juré que jamás me volvería a montar con él en un coche, pasé mucho más miedo que cuando me monté con Kim Dongsea... ya se puede imaginar como conducía este estúpido delfín.
+Avisé a las chicas, que no tuvieron ningún problema en que me marchara con Junsu... aunque Lee SooMan me miró mal... o eso vi... estaba algo traumada por lo que las chicas me habían dicho. Nos montamos en su coche, un coche bastante normal, la verdad sea dicha. Me monté y juré que jamás me volvería a montar con él en un coche, pasé mucho más miedo que cuando me monté con Kim Dongsea... ya se puede imaginar como conducía este estúpido Junsu.
 
 Y para mi sorpresa me llevó a un lugar apartado de la ciudad. Parecía un templo. Nos bajamos del coche y miró a todos lados.
 

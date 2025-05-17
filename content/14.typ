@@ -546,7 +546,7 @@ Noté un movimiento brusco de cabeza de Junsu, y de estar susurrando en mi cuell
 
 --- La primera vez que la vi, estaba en la terraza con Yoochun, así que no me fijé mucho --- Sonrió.
 
---- Pero eso no cuenta, delfín idiota --- Señaló Yoochun --- Cuando la viste en el coche.
+--- Pero eso no cuenta, Junsu idiota --- Señaló Yoochun --- Cuando la viste en el coche.
 
 --- Pues había leído su novela y me hacía ilusión conocerla... --- Se puso algo nervioso --- Y cuando la vi, me puse algo nervioso... ya que vi que era muy guapa... pero no podía dejar de ser yo.
 

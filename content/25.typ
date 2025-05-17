@@ -328,7 +328,7 @@ Elena está mejor, para tu información.
 poniendo un puchero – Quiero ver cómo estás... y que me cuentes
 que te ha pasado de verdad... porque a saber si lo de tu cabeza es
 cierto...
-- ¿Qué te ha dicho Junsu? - Miré al delfín de reojo.
+- ¿Qué te ha dicho Junsu? - Miré al Junsu de reojo.
 - Pregúntale a él – Se hizo el ofendido - ¿Me vas a decir
 dónde estás?
 - … - Miré a Yoochun, que se encogió de hombros. Junsu lo

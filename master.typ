@@ -37,3 +37,15 @@
 #include "content/30.typ"
 #include "content/31.typ"
 #include "content/32.typ"
+
+
+
+//Notas
+
+-En el 5 aparecen los abogados.
+
+-En el final del 3 ocurre el ataque.
+
+-He cambiado los nombres de algunos de los personajes. El pj de R se llamará Rocío pero en la historia seguirá llamándose R.
+
+-

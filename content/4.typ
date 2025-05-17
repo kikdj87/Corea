@@ -447,7 +447,7 @@ Esperamos impacientes a que se pudiera ver, pero nada, la conexión fallaba y no
 
 ---¡Mira que te pasas la vida comiendo! --- Dijo Junsu saltando sobre la espalda el menor.
 
----Oh, cállate delfín pesado ---dijo Changmin soltándose de él --- Tengo un buen estómago.
+---Oh, cállate Junsu pesado ---dijo Changmin soltándose de él --- Tengo un buen estómago.
 
 ---Eso no lo dudes ---comenzó a reírse escandalosamente, y me contagió la risa --- ¿Ves? Ella opina como yo ---me señaló de pronto.
 
@@ -499,6 +499,6 @@ Respiré profundamente y me eché en el sofá. Tenía que recapacitar sobre todo
 
 Y se me vino a la mente las palabras de Junsu, ¿él había visto como estrellaba el teléfono contra la pared?
 
----Delfín estúpido... ---susurré y comencé a reírme.
+---Junsu estúpido... ---susurré y comencé a reírme.
 
 Abrí la ventana y un frío invernal entró fuertemente haciéndome toser y mojándome la cara. Pero no me importó. Sonreí y alcé los brazos al cielo, disfrutando de la lluvia.

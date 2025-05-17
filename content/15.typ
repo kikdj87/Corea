@@ -72,7 +72,7 @@ Entró al baño y se escuchó el pestillo. De pronto vi a Elena en la puerta de 
 
 --- ¿...? --- Lo miré sorprendida como se marchaba, eso último lo había dicho en español.
 
-De nuevo me eché sobre la cama y pensé. Estaba claro que no le iba a hacer daño a ese delfín... lo quería. Tal vez todo había sido muy repentino y él me ganó con su encanto... un encanto un tanto extraño si lo mirabas desde fuera, pero una vez visto por dentro, era tan diferente. De pronto él se echó sobre mí en la cama.
+De nuevo me eché sobre la cama y pensé. Estaba claro que no le iba a hacer daño a ese Junsu... lo quería. Tal vez todo había sido muy repentino y él me ganó con su encanto... un encanto un tanto extraño si lo mirabas desde fuera, pero una vez visto por dentro, era tan diferente. De pronto él se echó sobre mí en la cama.
 
 --- ¿Qué haces? --- Lo hice a un lado y me sonrojé muchísimo.
 
@@ -306,11 +306,11 @@ Nos miramos a la cara y los hicimos pasar al comedor, nos sentamos y Hana fue a 
 
 --- Vaya... --- Dijo Hana --- Pues se te ve tan feliz estando con ella, tan contento cuando hablas de ella...
 
---- ... --- Agachó la cabeza sonrojado --- Bueno, ¿y el delfín idiota?
+--- ... --- Agachó la cabeza sonrojado --- Bueno, ¿y el Junsu idiota?
 
 --- ... --- Las chicas y yo nos miramos y reímos. Tomé la palabra --- De viaje en Japón.
 
---- ¡Oh, perfecto! --- Alzó un puño --- Así puedo estar contigo sin la atenta mirada de ese delfín idiota.
+--- ¡Oh, perfecto! --- Alzó un puño --- Así puedo estar contigo sin la atenta mirada de ese Junsu idiota.
 
 --- ... --- Elena y Hana se miraron --- ¿Nos hemos perdido algo?
 
@@ -414,7 +414,7 @@ coche.
 
 Los chicos hicieron un gesto para que las siguiéramos... y eso hice, en cuanto el semáforo se puso en verde, fui tras ellos. Hana puso la radio a toda castaña, aquello parecía de una película de Hollywood. Nos llevaron hasta una discoteca que tenía la pinta de ser muy cara... para ser exactos, la conocía... era la misma a la que había ido el día de mi cumpleaños... justo ese mismo fin de semana. Cuando Hana se iba a bajar del coche, sin querer le dio a la guantera y ésta se abrió, dejando ver una foto mía en ese mismo coche.
 
---- Vaya, vaya... --- Hana la miró y me miró, yo me sonrojé --- ¿Sabe esto el delfín? --- La apartó de mis manos antes de que pudiera cogerla.
+--- Vaya, vaya... --- Hana la miró y me miró, yo me sonrojé --- ¿Sabe esto el Junsu? --- La apartó de mis manos antes de que pudiera cogerla.
 
 --- Esa foto me la hice antes de salir con Junsu --- Le reproché --- Y no es nada malo que él tenga fotos mías...
 
@@ -454,7 +454,7 @@ HyukHae era el menos agraciado de los tres, tenía el pelo corto y negro, sus oj
 
 --- Kiki, ¿quieres bailar? --- Me preguntó SangHun.
 
---- Verás... --- Debía sincerarme, no quería tener follones con mi delfín --- Yo tengo novio... vine a acompañar a mis amigas...
+--- Verás... --- Debía sincerarme, no quería tener follones con mi Junsu --- Yo tengo novio... vine a acompañar a mis amigas...
 
 --- Vaya... --- Me miró de arriba abajo con un poco de decepción --- Olvidé que en el vídeo salías con un chico... --- Miró a Hana --- ¿Quieres bailar tú?
 
@@ -539,7 +539,7 @@ Por suerte, el coche estaba intacto. Por el camino, Hana y Elena reían alocadam
 
 Al llegar a casa, me di cuenta de que tenía una llamada perdida de Junsu y un mensaje sin avisar que no había sido leído. Nos despedimos, al menos yo estaba muerta y necesitaba dormir... aunque aquellas dos llevaban un pedo impresionante. Pronto escuché solo las risas de Hana y supuse que Elena se quedó frita. Y al rato, nada de ruido... silencio absoluto para mis oídos... aquello era lo mejor que podía tener.
 
-Abrí el mensaje y vi que era de mi delfín: _“Hola mi niña, ¿qué tal por allí? Aquí estamos bien... la cosa no va mal, recién llegamos y ya tenemos que asistir a un programa... No te aburras mucho sin mí, yo intento no aburrirme... Bueno, dime algo... que nunca me mandas mensajes. Te... quiero”_ Suspiré y puse un puchero, cuanto lo quería... pero... me molestó que no le dijera a su familia que estaba saliendo conmigo. Y reaccioné, su madre era una mujer muy estricta con respecto a las chicas. Y no lo sabía porque él me lo había dicho, sino que había muchos rumores sobre su madre por internet... y yo ya tenía pánico de sentarme frente a frente con esa mujer. Y más porque yo no era coreana.
+Abrí el mensaje y vi que era de mi Junsu: _“Hola mi niña, ¿qué tal por allí? Aquí estamos bien... la cosa no va mal, recién llegamos y ya tenemos que asistir a un programa... No te aburras mucho sin mí, yo intento no aburrirme... Bueno, dime algo... que nunca me mandas mensajes. Te... quiero”_ Suspiré y puse un puchero, cuanto lo quería... pero... me molestó que no le dijera a su familia que estaba saliendo conmigo. Y reaccioné, su madre era una mujer muy estricta con respecto a las chicas. Y no lo sabía porque él me lo había dicho, sino que había muchos rumores sobre su madre por internet... y yo ya tenía pánico de sentarme frente a frente con esa mujer. Y más porque yo no era coreana.
 
 Me puse el pijama y me arreglé para ir a dormir, me eché sobre la cama y no pude enviar un corto mensaje a Junsu donde le pedía disculpas y le daba las buenas noches ya que me llamó al instante.
 

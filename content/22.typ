@@ -9,7 +9,7 @@ la misma situación que yo. Me sonroje y quise gritar, pero me
 contuve.
 Sinceramente la cama esa era minúscula, y estaba rodeada
 de otras camas, pero se estaba tan a gusto así, que abrace a mi
-pequeño delfín y lo bese con un dulce beso en los labios. Se
+pequeño Junsu y lo bese con un dulce beso en los labios. Se
 estremeció y me abrazo. Reí.
 - Junsu... buenos días – Le susurre en el oído – Hora de
 despertarse...
@@ -47,12 +47,12 @@ conteste.
 - ¡¡¡Kikii!!! - El grito de la voz de Hana hizo que separara el
 teléfono de mi oreja - ¿Qué tal?
 - Ahora sorda – Bufe – Estoy bien, gracias.
-- ¿Todo bien con el delfín? - No me dejo hablar – Bueno,
+- ¿Todo bien con el Junsu? - No me dejo hablar – Bueno,
 Yunho está hablando con él y parece que todo ha ido bien.
 - Babo, cállate – Me sonroje mucho y me senté sobre la
 cama. Me mire el reloj - ¿Por qué me llamas tan temprano?
 - ¿Has dormido? - Le dije que si – Oh, qué pena... eso es que
-no… - Paro un momento y rió – El delfín no ha dormido...
+no… - Paro un momento y rió – El Junsu no ha dormido...
 - Hana, hablamos cuando llegue a casa, ¿vale? - Dije junto a
 un suspiro. Vi llegar a Junsu con unos pantalones puestos – Hasta
 luego.

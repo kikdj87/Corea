@@ -94,7 +94,7 @@ Esa pregunta me pilló muy desprevenida y me atacó por lo bajo. Pero lo que má
 
 --- ... --- Giré la cabeza y lo medité conmigo misma --- No --- Me sorprendí al escucharme --- Realmente no siento nada fuera de la amistad y cariño hacia él... --- Sonreí.
 
-Nos miramos en silencio un momento y sonrió. Rió para ser exactos y me contagió su risa. ¿Por qué reía en un momento como este? Nunca entendería a este delfín.
+Nos miramos en silencio un momento y sonrió. Rió para ser exactos y me contagió su risa. ¿Por qué reía en un momento como este? Nunca entendería a este Junsu.
 
 --- ¿Estás bien, Junsu? --- Pregunté extrañada a su comportamiento.
 
@@ -397,7 +397,7 @@ Caminé lentamente hacia la salida. En los seis meses que llevaba allí trabajan
 
 --- ¡¡Siii!! --- Junsu alzó los brazos --- Se va a llamar Mi... --- Changmin le tapó la boca --- ¿Mmmm? --- Lo miró sorprendido.
 
---- Es un secreto delfín idiota --- Suspiró vencido.
+--- Es un secreto Junsu idiota --- Suspiró vencido.
 
 --- Pero a Kikita se lo podemos decir, ¿no? --- Se quitó la mano de la boca y, sosteniéndola entre las suyas, hizo un puchero --- ¿No, Minnie?
 
@@ -447,7 +447,7 @@ Seguimos tranquilamente andando, ignorando a aquellas chicas. Miré de reojo a C
 
 --- Si... --- Changmin se colocó la mano en el estómago --- Lo cierto es que yo también.
 
---- ... --- Me coloqué entre ambos --- Junsu y yo, ayer, preparamos demasiada comida, y sobró --- Sonreí y vi la cara de horror del delfín y los ojos bien abiertos de Changmin.
+--- ... --- Me coloqué entre ambos --- Junsu y yo, ayer, preparamos demasiada comida, y sobró --- Sonreí y vi la cara de horror del Junsu y los ojos bien abiertos de Changmin.
 
 --- ¡¡Yo me haré otra cosa!! --- Junsu se puso las manos en las mejillas y gritó horrorizado.
 
@@ -489,7 +489,7 @@ Nos pusimos a improvisar algo decente, con Changmin como ayudante podía hacer a
 
 --- Me... ahogas... --- Escuché susurrar a Yoochun.
 
---- Tranquilízate delfín --- Dijo Yunho --- ¿Y Kiki y Changmin?
+--- Tranquilízate Junsu --- Dijo Yunho --- ¿Y Kiki y Changmin?
 
 --- ¡¡Aquí!! --- Dijo el menor asomando su cabeza desde la puerta de la cocina.
 
@@ -601,7 +601,7 @@ Después de la buena cena de Jae, estuvimos charlando sobre el nuevo single que 
 
 --- Junsu... --- Seguía insistiendo.
 
---- ... --- Nada, que el delfín no decía nada.
+--- ... --- Nada, que el Junsu no decía nada.
 
 --- Junsu, ¿estás bien? --- Comenzó a preocuparse, al igual que los demás. Intentó abrir la puerta, pero el pestillo estaba echado --- ¡¡Junsu!!
 

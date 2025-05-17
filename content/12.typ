@@ -149,7 +149,7 @@ Heechul enseguida se marchó y le rogué que no le dijera a nadie donde vivía, 
 --- ¿Te puedo llamar? --- Me preguntó.
 
 --- Tienes unas preguntas muy estúpidas --- Respondí y al instante sonó mi teléfono a la misma vez que me habló mi prima Lucía por internet, después de mucho tiempo sin hablar con ella ---
-Mierda... --- Susurré --- Lucía, ahora no puedo hablar, espérate un momento, estoy al móvil --- Tecleé a la misma vez que contestaba --- Hola delfín.
+Mierda... --- Susurré --- Lucía, ahora no puedo hablar, espérate un momento, estoy al móvil --- Tecleé a la misma vez que contestaba --- Hola Junsu.
 
 --- Hola --- Y rió.
 

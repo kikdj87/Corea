@@ -71,7 +71,7 @@ cien por cien en todo este asunto.
 - No te preocupes Min – Dijo Junsu sin dejarme hablar – Yo
 voy a estar pendiente de mi trabajo... como hasta ahora. Yo no me
 he despreocupado de nada, al contrario... creo que ahora doy más.
-- Bueno... eso está por ver – Rió Yoochun y el delfín puso un
+- Bueno... eso está por ver – Rió Yoochun y el Junsu puso un
 puchero.
 - ¿Y dónde haremos los conciertos? - Preguntó Jae – Ya
 tengo ganas de saberlo.
@@ -149,7 +149,7 @@ Jae.
 - Me siento culpable... - Comenzó a decir Yoochun – De que
 no hubieses podido ver a tus padres cuando fuiste la semana
 pasada... por eso quería compensarte de alguna manera para que el
-delfín idiota pueda ver tu ambiente...
+Junsu idiota pueda ver tu ambiente...
 Junsu se quedó mudo y se sonrojó muchísimo a lo que dijo
 Yoochun, parecía que él tampoco sabía nada, aunque Changmin le
 echó en cara que eso lo habían estado hablando durante los

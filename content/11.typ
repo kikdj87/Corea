@@ -12,11 +12,11 @@ Yo no dije nada. No importaba que Junsu estuviera herido, yo no podía soltar es
 
 Me separé de la puerta y la abrí. Allí estaban los dos serios, mirándome a la cara. Los hice pasar y me quedé mirando la puerta, por si venía alguien más.
 
---- Los chicos y tus amigas se han ido a comisaría a declarar --- Dijo JaeHoon --- Tú no hace falta que vayas...
+--- Los chicos y tus amigas se han ido a comisaría a declarar --- Dijo Jaehoon --- Tú no hace falta que vayas...
 
 --- ¿Y Junsu? --- Los miré y cerré la puerta.
 
---- Yoochun se marchó con él al hospital --- Dijo YunChae --- Él está bien... no ha sido de gravedad...
+--- Yoochun se marchó con él al hospital --- Dijo Yunchae --- Él está bien... no ha sido de gravedad...
 
 Agaché la cabeza y agradecí que no fuera tan grave. Suspiré. Los miré y ellos me miraron... y yo que creía que aquel asunto había sido olvidado... Cuánto me equivocaba... aquello tan solo era el
 comienzo.
@@ -139,11 +139,11 @@ Pasamos entre los periodistas muy rápidos y me acompañó hasta la mismísima p
 
 --- ¿Sabes por qué no lo entendemos? --- Dijo de pronto R, todas la miramos --- Porque no nos has contado el motivo por el cual ese desgraciado te atacó.
 
---- Kiki --- Jane apareció de golpe --- Un tal JaeHoon te llama al móvil.
+--- Kiki --- Jane apareció de golpe --- Un tal Jaehoon te llama al móvil.
 
 --- ... --- Alcé la cabeza y cogí el teléfono --- Es mi abogado --- Les dije a las chicas --- ¿Diga?
 
---- ¿María? Soy JaeHoon --- Me dijo serio --- Hemos identificado al que te agredió la otra noche. Es el hermano mayor de uno de los que te agredieron... Ya sabes lo que toca, ¿no?
+--- ¿María? Soy Jaehoon --- Me dijo serio --- Hemos identificado al que te agredió la otra noche. Es el hermano mayor de uno de los que te agredieron... Ya sabes lo que toca, ¿no?
 
 --- Si... --- Resoplé --- ¿Cuándo será?
 
@@ -197,7 +197,7 @@ El timbre sonó y supuse que serían los abogados. Ambas bajamos y nos montamos 
 
 --- De acuerdo --- Y sacó una carpeta --- Después de lo ocurrido la noche anterior y con el incidente de la violación... --- Miré a R muy nerviosa y vi como su cara ni se inmutó ante la sorpresa. Me miró seria y volvió la vista al médico, que seguía hablando --- Creemos que es importante que recibas sesiones con un psicólogo.
 
---- De eso podemos encargarnos de forma privada --- Dijo JaeHoon.
+--- De eso podemos encargarnos de forma privada --- Dijo Jaehoon.
 
 --- Si, si --- Asintió el doctor --- Hicimos pruebas de sida, embarazo y demás --- Me miró. Revisó los papeles --- Todas las pruebas dieron negativo... Clasificamos tres tipos de semen diferente... --- Esa frase hizo que yo agachara la cabeza y apretara los puños. Vi como la mano de R tomó la mía y la apretó. No alcé la cabeza --- Cosa que facilitó el que pudieran detener a los tres individuos...
 
