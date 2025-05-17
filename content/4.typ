@@ -269,243 +269,236 @@ Hubo un largo silencio en el que veía la palabra _escribiendo_ aparecer y desap
 
 ---A ti, obviamente ---hubo un momento de silencio --- Vale, a ver a Jae, lo siento, no puedo evitarlo ¡es que ese niño me tiene loca!
 
---- ... ya veo... --- Me eché a reír --- Pues si te contara yo...
+---Ya veo ---me eché a reír y dije en voz alta para mí misma --- Pues si te contara yo...
 
---- ¿Cómo ha conseguido Elena esa foto? --- Preguntó.
+---¿Cómo ha conseguido Elena esa foto? ---preguntó.
 
---- Por internet... ella se cree que estoy en América...
+---Por internet, ella se cree que estoy en América.
 
---- Pues te ha descubierto --- Puso un suspiro --- ¿Qué le vas a decir?
+---Pues te ha descubierto ---puso un emoji de suspiro --- ¿Qué le vas a decir?
 
---- ¿Decir? --- Me sorprendí --- Pues no lo he pensado... Sinceramente, me da igual lo que ella piense. Ya no somos tan amigas... es más, no somos amigas.
+---¿Decir? ---me sorprendí --- Pues no lo he pensado... Sinceramente, me da igual lo que ella piense. Ya no somos tan amigas... es más, no somos amigas.
 
---- Supongo... pero entonces, ¿por qué no le dijiste la verdad? --- Me preguntó y yo reflexioné.
+---Supongo... pero entonces, ¿por qué no le dijiste la verdad? ---me preguntó y yo reflexioné.
 
---- Sinceramente, no lo sé --- Admití --- No sé si merece que yo sea sincera con ella mientras ella no lo fue conmigo --- Suspiré y me recosté en el sofá.
+---Sinceramente, no lo sé ---admití --- No sé si merece que yo sea sincera con ella mientras ella no lo fue conmigo ---suspiré y me recosté en el sofá.
 
-Seguimos hablando durante un rato hasta que yo me cansé y me fui a la cocina. Todo se había quedado hecho un desastre, la verdad es que más que ayudarme en las cosas, me ayudaban a desordenarlo todo. Suspiré y me puse a limpiar. De pronto sentí como alguien me acariciaba el brazo, la pierna... Me estremecí y me di la vuelta respirando agitadamente.
+Seguimos hablando durante un rato hasta que me cansé y me fui a la cocina. Todo se había quedado hecho un desastre, la verdad es que más que ayudarme en las cosas lo desordenaban todo. Suspiré y me puse a limpiar. De pronto sentí como alguien me acariciaba el brazo y la pierna. Me estremecí y me di la vuelta respirando agitadamente.
 
-Estaba sola, no había nadie a mí alrededor, había sido mi imaginación... Comencé a toser y a intentar tranquilizarme a la vez, no conseguía estar a gusto en ningún lugar. Abrí el frigorífico y cogí una botella de alcohol que alguien había comprado (porque yo no) y me fui al sofá; la abrí y comencé a beber.
+Estaba sola, no había nadie a mí alrededor, aquello había sido mi imaginación. Comencé a toser y a intentar tranquilizarme a la vez, no conseguía estar a gusto en ningún lugar. Abrí el frigorífico y cogí una botella de alcohol que alguien había comprado --porque yo no-- y me fui al sofá; la abrí y comencé a beber.
 
-Aquello estaba asqueroso, pero no podía evitarlo, tenía pánico y no dejaba de sentir como alguien me tocaba con unas manos ásperas.
+Aquello estaba asqueroso, pero no podía evitarlo, tenía pánico y no dejaba de sentir como si alguien me tocaba con unas manos ásperas.
 
-A la mañana siguiente desperté con un horrible dolor de cabeza a causa del alcohol que había bebido la noche anterior. Me arrepentí al instante, ya que nunca había bebido y me sentó fatal. Después de asearme en el baño me puse a arreglar el piso, ya que lo había dejado hecho una porquería por culpa del alcohol. Y pensé que menos mal que estaba sola, si llega a haber alguien conmigo se asusta por completo.
+A la mañana siguiente desperté con un horrible dolor de cabeza a causa del alcohol que había bebido. Me arrepentí al instante, había sido la primera y última vez que bebía, me sentó fatal. Después de asearme en el baño y desayunar un café cargado, me puse a arreglar el piso ya que lo había dejado hecho una porquería. Y pensé en que menos mal que estaba sola, si hubiera habido alguien conmigo se asusta por completo.
 
 No pasó mucho rato cuando alguien llamó a la puerta de mi casa. Yo pensé que serían los chicos, pero mi sorpresa fue ver a Kim Dongsea con la policía, por un momento me asusté y no sabía que decir.
 
---- No te asustes, María --- Me dijo él tranquilamente --- Tenemos buenas noticias...
+---No te preocupes, María ---me dijo él tranquilamente --- Tenemos buenas noticias.
 
-Fui con ellos hasta la comisaría de policía donde me explicaron el motivo por el cual me habían llevado allí. Resultó ser que en los contenedores de basura tienen cámaras de vigilancia y, al presentar Kim Dongsea y el hombre que me encontraron la denuncia, investigaron las cámaras de seguridad. Conclusión, habían encontrado a uno de los culpables y querían que yo lo identificase.
+Fui con ellos hasta la comisaría de policía donde me explicaron el motivo por el cual me habían llevado allí. Resultó ser que en los contenedores de basura tienen cámaras de vigilancia y, al presentar Kim Dongsea y el hombre que me encontraron la denuncia,  investigaron. Conclusión, habían encontrado a uno de los culpables y querían que yo lo identificase.
 
 Obviamente me negué a hacerlo, no vi la cara de nadie aquella noche y, si veía a ese tipo, tal vez me daría uno de mis ataques de ansiedad. No quería verle, pero si ellos tenían constancia que era él uno de los tipos que me... violó, entonces yo le creía.
 
-Después de eso, Kim Dongsea insistió en llevarme a almorzar, acabamos en un restaurante bastante caro y prestigioso. Yo me sentí como una idiota ahí dentro, ya que yo no pegaba nada en ese ambiente. Nos sentamos en una mesa y para mi sorpresa, una chica se acercó a mí con mala cara.
+Después de eso, Kim Dongsea insistió en llevarme a almorzar, acabamos en un restaurante bastante bueno, me prometió que era la mejor comida tradicional de la zona. Nos sentamos en una mesa y para mi sorpresa, una chica se acercó a mí con mala cara.
 
---- ¿No eres la novia de Yoochun? --- Se cruzó de brazos.
+---¿Tú no eres la novia de Yoochun? ---se cruzó de brazos.
 
---- ¡¡...!! --- La miré sorprendida y miré a Kim Dongsea --- No, no
-lo soy.
+---No, no lo soy --- La miré sorprendida y miré a Kim Dongsea.
 
---- ¿Y por qué tengo estas fotos? --- Puso las famosas fotos de ambos sobre la mesa haciendo gran estruendo. Me miró con odio --- ¡Contesta!
+---¿Y por qué tengo estas fotos? ---sacó su móvil y casi me lo puso en la cara enseñando la famosa foto. Me miró con odio --- ¡Contesta!
 
---- Eh, eh, tranquila --- Kim Dongsea cogió las fotos, se puso en pie y cogió a la chica del brazo --- ¿Qué más te da lo que haga...?
+---Eh, eh, tranquila ---Kim Dongsea se puso en pie y cogió a la chica del brazo --- ¿Qué más te da lo que haga?
 
---- ¡¡Suéltame!! --- Se soltó de él y se encaró hacia mí, cogiéndome del cuello de la camiseta que llevaba puesto --- ¡¡Eres una...!!
+---¡Suéltame! ---se soltó de él y se encaró hacia mí, cogiéndome del cuello de la camiseta que llevaba puesto --- ¡Eres una...!
 
-Y comenzó a decir barbaridades y tacos, supuse, yo eso ya no lo sabía. Lo único que sabía era que me estaba haciendo mucho daño en el cuello y que gritaba como una loca. Entre los camareros y Kim Dongsea la agarraron y la sacaron fuera del local. Yo me quedé acongojada, con la cabeza gacha y con lágrimas en mis ojos. ¿Por qué las fans se volvían tan locas?
+Y comenzó a decir barbaridades y tacos, supuse, yo eso ya no lo sabía. Lo único que sabía era que me estaba haciendo mucho daño en el cuello y que gritaba como una loca. Entre los camareros y alguien de seguridad la agarraron y la sacaron fuera del local. Yo me quedé acongojada, con la cabeza gacha y con lágrimas en mis ojos. ¿Por qué las fans se volvían tan locas?
 
---- Lo siento mucho... --- Kim Dongsea se sentó de nuevo --- ¿Estás bien?
+---Lo siento mucho ---Kim Dongsea se sentó de nuevo --- ¿Estás bien?
 
---- ... --- Asentí con la cabeza sin querer levantarla. La cosa iba de mal en peor.
+Asentí con la cabeza sin querer levantarla. La cosa iba de mal en peor.
 
-Enseguida un camarero se acercó pidiéndome disculpas, nos dijo que invitaba la casa a causa de las molestias. Yo le dije que no quería nada y me marché de allí con rapidez. Pero al salir a la puerta del restaurante, miré a todos lados y me sentía muy observada por todo el mundo. Tal vez pensaban que yo era la chica que salía en las fotos con Yoochun, o tal vez no pensaban en nada. Cuando me vine a dar cuenta, un coche negro aparcó justo delante de donde estaba y me asusté.
+Enseguida un camarero se acercó pidiéndome disculpas, nos dijo que invitaba a la comida a causa de las molestias. Yo le dije que no quería nada y me marché de allí con rapidez. Al salir a la puerta del restaurante miré a todos lados, me sentía muy observada por todo el mundo. Tal vez pensaban que yo era la chica que salía en las fotos con Yoochun, o tal vez no pensaban en nada. Cuando me vine a dar cuenta, un coche negro aparcó justo delante de donde estaba y me asusté.
 
---- No te asustes --- Dijo Yoochun bajando la ventanilla --- Aquí las noticias vuelan... Sube, te llevaré a la agencia...
+---No te asustes ---dijo Yoochun bajando la ventanilla --- Aquí las noticias vuelan. Sube, te llevaré a la agencia.
 
---- ... --- Por un momento dudé.
+---Yo... ---por un momento dudé.
 
---- ¡María! --- Kim Dongsea salió al ver el coche negro --- ¿Yoochun?
+---¡María! ---Kim Dongsea salió al ver el coche negro --- ¿Yoochun?
 
---- ¿Crees que estará bien aquí fuera y sola? --- Endureció su mirada --- Vamos a la SM, ¿venís?
+---¿Crees que estará bien aquí fuera y sola? ---endureció su mirada --- Alguien ha subido un video de la discusión y lo he visto. Vamos a la empresa.
 
---- Yo me quiero ir a mi casa --- Dije al fin en un susurro --- Por favor.
+---Yo me quiero ir a mi casa ---dije al fin en un susurro, acariciando mis brazos --- Por favor.
 
---- ... --- Kim Dongsea me miró y miró a Yoochun --- Llevarla a casa, yo solucionaré este escándalo...
+---Vale ---Kim Dongsea me miró y miró a Yoochun --- Llevarla a casa, yo solucionaré este escándalo.
 
-Yoochun bajó del coche, me tomó de la mano y me hizo subir casi a rastras. Mientras, Kim Dongsea se marchaba hacia su coche dirección a la SM, las Cassiopeia se pasaban. Todo el trayecto hasta mi casa lo hice en silencio, que estaba causado por el shock recibido por aquella fan y porque estaba en el coche con los cinco Dong Bang Shin Ki. Suspiré.
+Yoochun bajó del coche, me tomó de la mano y me hizo subir casi a rastras. Mientras, Kim Dongsea se marchaba hacia su coche dirección a la SM. Estuve un buen rato en silencio, analizando lo que me acababa de ocurrir. De pronto fui consciente de con quien estaba en el coche y miré hacia todos lados. Suspiré.
 
---- Yo soy Junsu --- Me dijo señalándose y con una gran sonrisa --- Yoochun, Changmin y Yunho nos hablaron de ti...
+Vi en ese momento como Junsu, sentado a mi lado, me estaba mirando con una amplia sonrisa relajado, parecía que me analizaba.
 
---- ¿En serio...? --- Lo miré con timidez.
+---Yo soy Junsu ---me dijo señalándose el pecho con la mano abierta --- Los chicos nos hablaron de ti.
 
---- Y cosas buenas... --- Jaejoong se giró desde el asiento del copiloto y sacó dos dedos más que sonriente --- Yo soy Jaejoong.
+---¿En serio? ---lo miré con timidez.
 
---- Si os conoce --- Dijo Yoochun --- Además, de sobra...
+---Y cosas buenas ---Jaejoong se giró desde el asiento del copiloto y alzó la mano sacando dos dedos sin perder la sonrisa --- Yo soy Jaejoong.
 
---- ... --- Me puse roja como un tomate y agaché la cabeza. Eso sobraba.
+---Si os conoce ---dijo Yoochun --- Además, de sobra.
 
---- ¡¡Oh, oh!! --- Jaejoong me señaló --- ¡¡¡SM Entertainment High School!!!
+Me puse roja como un tomate y agaché la cabeza. Eso sobraba.
 
---- ¡¡¡...!!! --- Me quise morir en ese momento.
+---¡Oh, es verdad! ---Jaejoong me señaló --- ¡SM Entertainment High School!
 
---- ¡Waah! --- Junsu me agarró del brazo --- ¡¡Yo quiero saber más!!
+Me quise morir en ese momento. Ya había olvidado que todos estaban al corriente de esa estúpida historia.
 
---- ¡¡Y yo!! --- Se sumó Jaejoong.
+---¡Yo quiero saber más! ---Junsu me agarró del brazo con suavidad.
 
---- Ya hemos llegado --- Dijo Yunho, que miró por la ventanilla --- ¿Cuándo volverás al trabajo?
+---¡Y yo! ---se sumó Jaejoong.
 
---- El lunes --- Respondí sonriente --- Gra... gracias...
+---Ya hemos llegado ---dijo Yunho tras parar el coche en la puerta de mi casa. Se había mantenido en silencio todo el rato, pero cuando se giró a mirarme estaba con una sonrisa muy relajada --- ¿Cuándo volverás al trabajo?
 
---- A ti --- Changmin sonrió desde un rincón del gran coche.
+---El lunes ---respondí agradecida --- Muchas gracias por traerme.
 
---- ¿Podemos subir? --- Preguntó Junsu con una gran sonrisa --- ¡¡Por fa Yunho, no tenemos nada que hacer!!
+---No las des ---Changmin sonrió desde la parte de atrás del coche.
 
---- No lo sé, Junsu... --- Se miró el reloj.
+---¿Podemos subir? ---preguntó Junsu mirando a Yunho, inclinado hacia delante --- ¡Por fa Yunho, no tenemos nada que hacer!
 
---- Por fi --- Juntó las manos y agachó la cabeza --- ¡¡Te haré la cama durante un mes!!
+---No lo sé, Junsu --- Se miró el reloj.
 
---- ... --- Yunho suspiró.
+---Por fi ---juntó las manos y agachó la cabeza.
 
---- ¡¡Así podremos saber más de su historia!! --- Soltó una carcajada, cosa que hizo que yo me riera, siempre había querido escuchar de cerca la risa de Junsu --- ¡Oh! --- Me miró --- Si te ríes...
+---No depende de mi --- Yunho suspiró y me miró.
 
---- ... --- Sonreí --- Me... me gusta tu risa.
+---¡Así podremos saber más de su historia! ---soltó una carcajada, cosa que hizo que yo me riera, siempre había querido escuchar de cerca la risa de Junsu. De pronto me miró --- ¡Oh! Si te ríes.
 
---- ¡¡¡...!!! --- Se puso las manos en la cara sonrojado --- ¿En serio? --- De pronto me abrazó y enseguida se separó --- Lo  siento... es que me hace ilusión conocer a gente que le gusta mi risa --- Se reía más abiertamente --- ¡Gracias!
+---Me... me gusta tu risa --- Sonreí con los hombros encogidos.
 
---- No hay de qué --- Sonreí --- Si queréis subir...
+---¿En serio? --- Se puso las manos en la cara sonrojado. De pronto me abrazó y enseguida se separó --- Lo siento, es que me hace ilusión conocer a gente que le gusta mi risa --- Se reía más abiertamente --- ¡Gracias!
 
---- Vale, vale --- Yunho se bajó del coche --- Todo sea por... tu historia --- Me miró asintiendo.
+---No hay de qué ---sonreí mucho mas cohibida por su respuesta --- Si queréis subir, no tengo ningún problema.
 
---- ¡¡¡Bien!!! --- Junsu chocó manos con Jaejoong.
+---Vale, vale ---Yunho se bajó del coche --- Todo sea por tu historia ---me miró asintiendo.
 
---- Heechul nos matará... --- Canturreó Yoochun.
+---¡Bien! ---Junsu chocó manos con Jaejoong.
 
---- Luego se lo cuentas --- Dijo Changmin --- Es que si no, será mucho jaleo en el pisito de Kiki, que es pequeñito...
+---Heechul nos matará... ---canturreó Yoochun.
 
---- ¡¡¡...!!! --- Miré a Changmin rápidamente, ¿me había llamado Kiki? Estaba flipando --- Va---vamos...
+---Luego se lo cuentas ---dijo Changmin mientras se encogía de hombros --- Es que si no, será mucho jaleo en el piso de Kiki, es bastante pequeño.
+
+---Vamos... --- Miré a Changmin rápidamente, ¿me había llamado Kiki? Estaba flipando.
 
 Abrí la puerta y los seis subimos a mi casa. Pensé aliviada que menos mal que la había limpiado antes de ir a comisaría con Kim Dongsea, porque si no me hubiera muerto de vergüenza que la vieran así.
 
---- Esto... Kiki --- Changmin llamó mi atención desde la cocina --- Ayer coloqué una botellita de alcohol aquí... ¿sabes dónde está?
+---Kiki ---Changmin llamó mi atención desde la cocina --- Ayer coloqué una botella de alcohol aquí, ¿sabes dónde está?
 
---- ... --- Me hice un poco la loca con esto del idioma y sonreí cuando me lo volvió a explicar --- No lo sé, no he visto ninguna...
+---¿Qué? --- Me hice un poco la loca con esto del idioma y sonreí como si no entendiera nada y cuando me lo volvió a explicar con calma decidí ignorarlo --- No lo sé, no he visto ninguna.
 
---- Vaya... --- Puso una mueca molesto --- Era para Jae... que es su bebida favorita.
+---Vaya ---puso una mueca molesto, mirándome con sospecha --- Era para Jae, que es su bebida favorita.
 
---- ¿Y por qué la dejaste aquí? --- Me sorprendí.
+---¿Y por qué la dejaste aquí? ---me sorprendí.
 
---- ... --- Sonrió y sacó una botella de coca cola --- Pero bueno, tenemos esto, ¿no?
+---Por si volvíamos ---sonrió quitándole importancia a mi sorpresa y sacó una botella de un refresco --- Pero bueno, tenemos esto, ¿no?
 
---- Si... --- Suspiré y fuimos al comedor.
+---Si ---suspiré y fuimos al comedor.
 
-Estuvimos en mi comedor hasta que se hizo la hora de cenar, vamos la coreana, las seis de la tarde. Jaejoong se fue a la cocina a preparar la cena, Changmin estaba en el baño, Yunho preparaba la mesa, y Junsu y Yoochun estaban a mi lado mientras yo sostenía el portátil. Habíamos visto varias fotos de ellos y mías, vídeos de tonterías y leído un poco de SM. De pronto y por sorpresa, Lucía, Jane, Hana y Elena me hablaron a la vez.
+Estuvimos en mi comedor hasta que se hizo la hora de cenar coreana, las seis de la tarde. Jaejoong se fue a la cocina a preparar la cena, Changmin estaba en el baño, Yunho preparaba la mesa, y Junsu y Yoochun estaban a mi lado mientras yo sostenía el portátil. Habíamos visto varias fotos de ellos y mías, vídeos de tonterías y leído un poco de SM. De pronto y por sorpresa, Lucía, Jane, Hana y Elena me hablaron a la vez.
 
---- ¿Amigas? --- Señaló Yoochun.
+---¿Amigas? ---señaló Yoochun.
 
---- Si --- Asentí.
+---Si ---asentí abriendo la aplicación del chat en el ordenador.
 
-Primero me puse con Elena y le dije que estaba muy, muy ocupada y que no podía hablarle. Cerré la conversación inmediatamente, no tenía ganas de que dijera algo sobre la foto que me envió por email. Hana me dijo que si ya había conocido a Jae. Junsu señaló la pantalla, ya que había salido un gift de Jae sonriendo y se fue a la cocina. Jane me saludaba desde la casa de las Chan pidiéndome que pusiera la cam. Y mi prima simplemente me preguntaba que como estaba.
+Primero me puse con Elena y le dije que estaba muy, muy ocupada y que no podía hablarle. Cerré la conversación inmediatamente, no tenía ganas de que dijera algo sobre la foto que me envió por email. Hana me dijo que si ya había conocido a Jae. Junsu señaló la pantalla, ya que había salido un gift de Jae sonriendo y se fue a la cocina. Jane me saludaba desde la casa de las otras chicas, pidiéndome que pusiera la cam. Y mi prima simplemente me preguntaba que como estaba.
 
---- Hum... --- Yoochun se puso pensativo y lo miré --- No me mires así --- Él sonrió --- ¿Les pondrás la cam o no? --- Dijo entre  risitas.
+---Hum... ---Yoochun se puso pensativo y lo miré. Terminó por esbozar una sonrisa --- No me mires así. ¿Les pondrás la cam o no?
 
---- No creo... --- Susurré avergonzada.
+---No creo... ---susurré avergonzada.
 
---- ¡Ya viene Jae! --- Junsu se tiró de golpe al sofá haciendo que yo cayera sobre Yoochun y el portátil cayera al suelo y se cerrara --- Ups...
+---¡Ya viene Jae! ---Junsu se tiró de golpe al sofá haciendo que yo chocara contra Yoochun y el portátil cayera al suelo y se cerrara del golpe --- Ups...
 
---- ... --- Yoochun lo miró con odio --- Más te vale, delfín estúpido, que el ordenador no se haya roto...
+---Junsu ---Yoochun lo miró con odio guiñando los ojos --- Más te vale que el ordenador no se haya roto.
 
---- ... --- Yo me incorporé muy sonrojada y lo cogí con rapidez. Lo abrí y lo encendí.
+Yo me separé de Yoochun muy sonrojada y cogí el portátil con rapidez. Lo abrí y lo encendí.
 
---- Yo... --- Junsu lo miraba con miedo por si acaso estaba roto. Yoochun tenía su puño preparado para darle un golpe en la cabeza. Pero el ordenador iba estupendamente --- ¡¡Ja!! --- Rió en la cara del mayor --- ¡¡Ves hyung, no se ha roto!!
+---Yo... ---Junsu lo miraba con miedo por si acaso estaba roto. Yoochun tenía su puño preparado para darle un golpe en la cabeza. Pero el ordenador encendió con normalidad --- ¡Ja! ---rió en la cara del mayor --- ¡Ves hyung, no se ha roto!
 
---- Tienes suerte --- Yoochun suspiró aliviado, al igual que yo al ver que no tenía ningún rasguño, ni nada y que iba perfectamente.
+---Tienes suerte ---Yoochun suspiró aliviado, al igual que yo al ver que no tenía ningún rasguño, ni nada y que iba perfectamente.
 
---- ¿Qué ha pasado? --- Changmin y Jaejoong aparecieron de repente --- Menudo escándalo.
+---¿Qué ha pasado? ---Changmin y Jaejoong aparecieron de repente --- Menudo escándalo.
 
---- Junsu, que es muy torpe --- Bufó Yoochun.
+---Junsu, que es muy torpe ---bufó Yoochun mientras le señalaba con un dedo acusatorio.
 
---- Hyung... --- Puso ojillos tiernos.
+---Hyung... ---el nombrado puso cara de niño bueno mirando a los recién llegados.
 
---- Va bien, va bien... --- Sonreí intentando calmar la situación.
+---Va bien, va bien ---sonreí intentando calmar la situación.
 
---- ¿Quién me quería conocer? --- Preguntó Jaejoong.
+---¿Quién me quería conocer? ---preguntó entonces Jaejoong.
 
-Puse el chat y me comencé a hablar con Hana, que estaba conectada. Los cuatro se sentaron a mi alrededor y se apretujaron, ya que iba a poner la cam. Yo en ese momento estaba algo incómoda, me sentía rara tenerlos tan cerca mía, y no solo eso, sino que me venía a la mente lo que pasó aquella noche. Di un respingo cuando Junsu me dio en el costado haciéndome cosquillas.
+Abrí la conversación con Hana en el facebook, ya que quería ver si funcionaba desde allí la cam. Los cuatro se sentaron a mi alrededor y se apretujaron. Yo en ese momento estaba algo incómoda, me sentía rara tenerlos tan cerca mía, y no solo eso, sino que me venía a la mente lo que pasó aquella noche. Di un respingo cuando Junsu me dio en el costado haciéndome cosquillas.
 
---- ¡Reacciona! --- Sonrió --- Ponlo, ponlo... ... ¡¡¡Yunho!!! --- Lo llamó a gritos --- ¡¡Ven, ven!!
+---¡Reacciona! ---sonrió mientras miraba mis ojos --- Ponlo, ponlo, ¡Yunho, ven, ven!
 
---- ... --- Suspiré vencida, lo que me faltaba, ahora tenía a Yunho sobre mi cabeza. Estaba muy acongojada con los cinco ahí. Suspiré y le puse la cam a Hana.
+Suspiré vencida, lo que me faltaba, ahora tenía a Yunho apoyando ligeramente su barbilla sobre mi cabeza. Estaba muy acongojada con los cinco ahí. Suspiré y le puse la cam a Hana.
 
-Esperamos impacientes a que se pudiera ver, pero nada, la conexión fallaba y no se podía. Como Hana no sabía que le esperaba tras esa cam dijo que daba igual, que lo intentáramos otro día... Y desistí, aunque Jaejoong y Junsu no dejaban de quejarse. Después, cuando me puse a decirle algo a Jane, se había ido y no estaba ninguna, y mi prima no contestaba a nada... Respiré aliviada.
+Esperamos impacientes a que se pudiera ver, pero nada, la conexión fallaba y no se podía. Como Hana no sabía que le esperaba tras esa cam dijo que daba igual, que lo intentáramos otro día. Y desistí, aunque Jaejoong y Junsu no dejaban de quejarse. Después, cuando me puse a decirle algo a Jane, se había ido y no estaba ninguna. Respiré aliviada de no tener que dar explicaciones.
 
---- Que pena --- Yunho puso morritos --- Yo quería ver a tus amigas...
+---Que pena ---Yunho se encogió de hombros --- Yo quería ver a tus amigas.
 
---- Si eran ellas las que te iban a ver --- Dijo Yoochun, que se estiró y bostezó.
+---Tengo mucha hambre Jae, ¿cómo va esa comida? ---dijo de pronto Changmin con las manos en su estómago.
 
---- Tengo mucha hambre... Jae... ¿cómo va esa comida? --- Dijo de pronto Changmin con las manos en su estómago.
+---Ya está lista ---sonrió el nombrado --- Vamos a comer.
 
---- Ya está lista --- Sonrió el nombrado --- Vamos a comer.
+---¡Mira que te pasas la vida comiendo! --- Dijo Junsu saltando sobre la espalda el menor.
 
---- ¡¡Mira que te pasas la vida comiendo!! --- Dijo Junsu saltando sobre el menor --- ¡¡Gordo!! ¡Algún día reventarás!
+---Oh, cállate delfín pesado ---dijo Changmin soltándose de él --- Tengo un buen estómago.
 
---- Oh, cállate delfín pesado --- Dijo Changmin soltándose de él --- Tengo un buen estómago...
+---Eso no lo dudes ---comenzó a reírse escandalosamente, y me contagió la risa --- ¿Ves? Ella opina como yo ---me señaló de pronto.
 
---- Eso no lo dudes --- Comenzó a reírse escandalosamente, y me contagió la risa --- ¡Ves! --- Me señaló de pronto --- Ella opina como yo.
+---¡No, yo no! ---me puse roja como un tomate.
 
---- ¡No, yo... no! --- Me puse roja como un tomate.
+---No la metas a ella --- Changmin me miró sonriente y se encaró hacia Junsu --- ¡Eres...!
 
---- ... --- Changmin me miró sonriente y se encaró hacia Junsu --- ¡Eres...!
+---Ya vale ---Yunho se puso por medio algo serio, parecía cansado de que ellos dos siempre estuviesen de aquella manera --- Vamos a cenar, ¿ok?
 
---- Ya vale --- Yunho se puso por medio serio --- Vamos a cenar, ¿ok?
-
---- ¡¡¡Siii Hyung!!! --- Junsu alzó un puño y corrió a sentarse.
+---¡Si Hyung! ---Junsu alzó un puño y corrió a sentarse.
 
 Vi como Changmin negó con la cabeza y se sentó en la mesa al lado de Junsu, que de nuevo comenzaron a picarse entre ellos. Cuando los cinco se sentaron, los miré y sonreí como una tonta.
 
---- ¡Oye! --- Dije de pronto --- ¿Puedo haceros una foto? --- Dije algo sonrojada.
+---¡Oye! ---dije de pronto, con las orejas ligeramente calientes --- ¿Puedo haceros una foto?
 
---- Claro --- Asintió Jaejoong arreglándose el pelo --- No veo porque no.
+---Claro ---asintió Jaejoong arreglándose el pelo --- No veo porque no.
 
---- ¡¡Hyung!! --- Junsu señaló a Yoochun --- ¡Pongámonos comida en la boca y la abrimos cuando eche la foto!
+Fui a mi habitación a por el móvil, al lado estaba mi antiguo teléfono y me di cuenta de que tenía un mensaje de Elena. Suspiré y lo abrí con miedo.
 
---- ... --- Yoochun se puso ligeramente colorado y negó con la cabeza --- Ahora no, Junsu...
+_“Sinceramente entiendo tu postura, ya que ya no tenemos tanta amistad. Pero me has mentido, evitado y me has decepcionado. No creí que fueras capaz de hacerme algo así. No soy la más indicada para hablar del tema, pero... no te creía capaz de mentir de esa manera.”_
 
---- Soso... --- Susurró poniendo morritos.
+Me quedé helada, ¿cómo podía decirme algo así? Respiré profundamente e intenté que las lágrimas no cayeran. Apreté el móvil con fuerza en la mano y la tentación de estrellarlo contra la pared fue tan grande que lo hice, haciendo un gran estruendo. Respiré algo aliviada y cuando miré a mi espalda, tenía cinco pares de ojos abiertos mirándome fijamente.
 
-Fui a mi habitación a por el móvil y, buscando, vi mi antiguo teléfono y me di cuenta de que tenía un mensaje de Elena. Suspiré y lo abrí con miedo.
+---¿Qué se ha roto? ---preguntó Yunho.
 
-_“Sinceramente entiendo tu postura, ya que ya no tenemos tanta amistad. Pero me has mentido, evitado y... me has decepcionado. No creí que fueras capaz de hacerme algo así. No soy la más indicada para hablar del tema, pero... no te creía capaz de mentir de esa manera.”_
+---¿No habrá sido el ordenador, verdad? ---preguntó Yoochun.
 
-Me quedé helada, ¿cómo podía decirme algo así? Respiré profundamente e intenté que las lágrimas no cayeran descontroladamente. Apreté el móvil con fuerza con la mano y la tentación de estrellarlo contra la pared fueron tan grandes... que lo hice, haciendo un gran estruendo. Respiré algo aliviada y cuando miré a mi espalda, tenía cinco pares de ojos abiertos mirándome fijamente.
+---No, no ---negué con rapidez y agarré el teléfono que había tirado --- El móvil, que se me ha caído al suelo... ---sonreí mintiendo. Miré a Junsu, el cual estaba algo serio --- ¿Vamos? Os quiero hacer la foto.
 
---- ¿Qué se ha roto? --- Preguntó Yunho.
+Fuimos hasta la mesa, se sentaron e hice la foto modo selfie para salir los seis. Pronto nos pusimos a cenar, ya que Changmin insistió que dejáramos las fotos para después de comer, tenía mucha hambre. Todos nos reímos por ese comentario. Y después de la cena, el móvil de Yunho sonó y se tuvieron que marchar, pero antes, Junsu se acercó a mí apartándome del resto, que comenzó a salir del piso.
 
---- ¿No habrá sido el ordenador, verdad? --- Preguntó Yoochun.
+---¿Qué ocurre? ---me sorprendí por esa insistencia.
 
---- No, no --- Negué --- El móvil... que se me ha caído al suelo... --- Sonreí mintiendo. Miré a Junsu, el cual estaba algo serio --- ¿Vamos? Os quiero echar la foto.
+---¿Qué decía ese mensaje? ---me preguntó más serio de lo normal.
 
-Fuimos hasta la mesa, se sentaron y yo les eché la foto. Pronto nos pusimos a cenar, ya que Changmin dijo que más fotos para luego, que había mucha hambre en el mundo. Todos nos reímos por ese comentario. Y después de la cena, el móvil de Yunho sonó y se tuvieron que marchar, pero antes, Junsu se acercó a mí apartándome del resto, que comenzó a salir del piso.
+---¿Mensaje? ---me extrañé, ya se me había olvidado --- No sé de qué hablas.
 
---- ¿Qué ocurre? --- Me sorprendí.
+---Antes de la cena ---era demasiado extraño ver a Junsu tan serio --- Vi como estrellabas el teléfono contra la pared.
 
---- ¿Qué decía ese mensaje? --- Me preguntó serio.
+---¡Junsu! ---Yoochun lo llamaba --- ¡Tenemos prisa!
 
---- ¿Mensaje? --- Me extrañé --- No sé de qué hablas...
+---¡Tenéis que iros! ---lo empujé fuera de mi casa con rapidez. Lo último que quería era darle explicaciones de lo que había pasado con Elena --- ¡Nos vemos mañana en la SM!
 
---- ... --- Me miró demasiado serio, era demasiado extraño ver a Junsu tan serio --- Vi como estrellabas el teléfono contra la pared.
+---¡Pero...!
 
---- ¡¡Junsu!! --- Yoochun lo llamaba --- ¡¡Tenemos prisa!!
+Y cerré la puerta en sus narices tras despedirme.
 
---- ¡Tenéis que iros! --- Lo empujé fuera de mi casa --- ¡Nos vemos mañana en la SM!
+Respiré profundamente y me eché en el sofá. Tenía que recapacitar sobre todo lo que me había pasado en los últimos dos meses y medio, los que llevaba allí viviendo. Me acurruqué echa un ovillo y de pronto escuché truenos. Me puse en pie y me asomé a la ventana, era tan bonito ver el crepúsculo de invierno con las nubes negras y los relámpagos azules... suspiré y pensé en Yoochun, en su sonrisa, su mirada. ¿De verdad me gustaba tanto como yo había creído? ¿O simplemente amaba a una ilusión en mi cabeza?
 
---- ¡Pe---pero...!
+Y se me vino a la mente las palabras de Junsu, ¿él había visto como estrellaba el teléfono contra la pared?
 
---- ¡¡Chao!! --- Y cerré la puerta en sus narices.
-
-Respiré profundamente y me eché en el sofá, tenía que recapacitar sobre todo lo que me había pasado en los úlimos dos meses y medio... los que llevaba allí viviendo. Me acurruqué echa un ovillo y de pronto escuché truenos. Me puse en pie y me asomé a la ventana, era tan bonito ver el crepúsculo de invierno con las nubes negras y los relámpagos azules... suspiré y pensé en Yoochun... su sonrisa, su mirada. ¿De verdad me gustaba tanto como yo había creído? ¿O simplemente amaba a una ilusión en mi cabeza?
-
-Y se me vino a la mente las palabras de Junsu... ¿él había visto como estrellaba el teléfono contra la pared?
-
---- Delfín estúpido... --- Susurré y comencé a reírme.
+---Delfín estúpido... ---susurré y comencé a reírme.
 
 Abrí la ventana y un frío invernal entró fuertemente haciéndome toser y mojándome la cara. Pero no me importó. Sonreí y alcé los brazos al cielo, disfrutando de la lluvia.
