@@ -7,13 +7,13 @@ por teléfono con Jae, me lo dijo. Y no solo él, sino Jane también me
 lo dijo.
 Pero no podía evitarlo, la cosa no iba bien, tenía muchas
 cosas en la dichosa cabeza, como la reunión con Yunho y Lee
-SooMan, que creía que me iba a gustar, pero nada... no me gustó
+Sooman, que creía que me iba a gustar, pero nada... no me gustó
 nada.
-- Sentaos – Lee SooMan nos ofreció asiento frente a su mesa
+- Sentaos – Lee Sooman nos ofreció asiento frente a su mesa
 – Supongo que ya sabréis por que estáis aquí, ¿no?
 - Si – Dije, al igual que Yunho, pero él me miraba algo
 sorprendido y sin comprender.
-- Bien... - Lee SooMan le explico el tema de que sería la
+- Bien... - Lee Sooman le explico el tema de que sería la
 nueva agente de Tohoshinki en Europa - ¿Qué te parece, Yunho?
 - … - El me miro y se quedó pensativo – A decir verdad, no
 está mal que ella sea nuestra agente allí, ya que se desenvuelve bien
@@ -21,24 +21,24 @@ está mal que ella sea nuestra agente allí, ya que se desenvuelve bien
 con nosotros.
 - Vaya – Ese “vaya” sonó decepcionado – No creo que sea
 muy apropiado, Yunho... Su relación con Junsu...
-- Señor SooMan – Yunho lo corto – Opino que está llevando
+- Señor Sooman – Yunho lo corto – Opino que está llevando
 esto a un extremo – Y lo mire sorprendida. Las palabras no salían de
-mi garganta y Lee SooMan endureció la mirada – Sus palabras
+mi garganta y Lee Sooman endureció la mirada – Sus palabras
 provocan que Junsu este mas desanimado de lo normal, si tan solo
 los dejara... si confiara en que ellos no causaran ningún problema a
 la empresa...
 - Yunho ya – Dije al fin – Él es libre de hacer lo que quiera, es
-el jefe – Mire a Lee SooMan, que se había quedado en silencio.
+el jefe – Mire a Lee Sooman, que se había quedado en silencio.
 - Kiki, lo hago por él, lo siento mucho – Negó – No puedo ver 
 400
-cómo está siempre tan serio. Señor SooMan, ¿seguirá siempre
+cómo está siempre tan serio. Señor Sooman, ¿seguirá siempre
 igual?
 - … - Cobró compostura – Seguiré siempre igual cuando lo
 vea necesario Yunho. La reunión ha terminado... María, ya le pasas
 los papeles y habláis del orden en que queráis que se haga la gira
 por Europa. Gracias...
 Y todo el tiempo pensando en lo que podría hacer Lee
-SooMan con respecto a lo que Yunho le había dicho... ¿tan mal
+Sooman con respecto a lo que Yunho le había dicho... ¿tan mal
 estaba Junsu? Ahora era yo la que parecía un alma en pena
 moviéndome por los rincones llenos de sombras. El drama tenía
 mucho éxito, teníamos ruedas de prensas casi todos los días,
@@ -49,7 +49,7 @@ propuesto salir de nuevo en un drama para la KBS. En un principio
 Elena dudo, pero entre todas la convencimos y ella y Hana
 aceptaron la propuesta para enfrentarse a un nuevo reto.
 Y llego el trozo del rodaje en el que viajábamos a España.
-Había intentado convencer a Lee SooMan de que no era necesario
+Había intentado convencer a Lee Sooman de que no era necesario
 viajar realmente a España para rodar ese trozo, pero entre él y los
 directivos de la SBS habían insistido tanto en viajar, que al final
 desistí. Hana, R y yo viajamos a España.
@@ -229,7 +229,7 @@ que me lo escondéis para que no me preocupe...
 no es pequeño – Gire la cabeza – Me parece increíble...
 No se habló más del tema hasta que llegamos a Corea. Sin
 descansar ni nada, fui directa a la SM, quería hablar personalmente
-con Lee SooMan, que no me sorprendió que él ya lo supiera.
+con Lee Sooman, que no me sorprendió que él ya lo supiera.
 - No habíamos previsto esto – Dijo el entrelazando sus
 dedos.
 - Pero si podría haberse evitado que llegara a más, ¿no cree?
@@ -239,7 +239,7 @@ podemos dejar que un grupo de niñas le hagan la vida imposible.
 - Ese grupo de niñas nos dan mucho dinero...
 - O no – Guiñe un poco los ojos – Esto solo causa más
 406
-problemas SooMan, muchos problemas – Me pase la mano por la
+problemas Sooman, muchos problemas – Me pase la mano por la
 sien – Solo es un jodido drama... nada va más allá... todo es ficción.
 - Acláralo.
 - ¿Yo?

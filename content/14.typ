@@ -74,7 +74,7 @@ las maletas. Tenían un avión de urgencia que coger con dirección a
 España.
 Esa noche solo durmieron Hana y Elena. Y no sé por qué yo no dormí nada... Estaba sentada en el salón junto con R y Jane, mientras tomábamos un chocolate casero bien calentito, al que Jane no dejaba de dar vueltas sin probar gota. En cuanto amaneció, más o menos las cinco y media de la mañana, llamé al aeropuerto para comprar dos billetes de ida y vuelta para España, los cuales, pagué yo la mitad por una ayuda de la empresa, al menos en el billete de Jane... el de R fue de mi bolsillo. Dijeron que los más rápidos saldrían ese mismo día ya entrada la tarde y fue lo mejor que encontramos.
 
-Enseguida caí rendida en el sofá, no recuerdo qué soñé, pero sí que me levanté agitada y muy nerviosa. Ya estaban todas despiertas, y Jane acurrucada en el sillón aún con la taza de chocolate en la mano y un cojín entre sus brazos y su barriga. R se quedó con ella y las demás fuimos al trabajo. La verdad es que tuve que hacer gran esfuerzo para tapar las horribles ojeras que tenía, pero al final lo conseguí... aunque parecía un payaso. Me despedí de Elena y Hana, que las dejé hablando con Boa, y me marché directa al despacho de Lee SooMan, llamé y asomé la cabeza. Y allí estaba él, hablando tranquilamente con dos hombres trajeados. No daba una, siempre que iba a buscarlo, estaba en una reunión.
+Enseguida caí rendida en el sofá, no recuerdo qué soñé, pero sí que me levanté agitada y muy nerviosa. Ya estaban todas despiertas, y Jane acurrucada en el sillón aún con la taza de chocolate en la mano y un cojín entre sus brazos y su barriga. R se quedó con ella y las demás fuimos al trabajo. La verdad es que tuve que hacer gran esfuerzo para tapar las horribles ojeras que tenía, pero al final lo conseguí... aunque parecía un payaso. Me despedí de Elena y Hana, que las dejé hablando con Boa, y me marché directa al despacho de Lee Sooman, llamé y asomé la cabeza. Y allí estaba él, hablando tranquilamente con dos hombres trajeados. No daba una, siempre que iba a buscarlo, estaba en una reunión.
 
 --- ¡Ah! --- Se puso en pie y los hombres trajeados se voltearon --- Ella es María, pasa por favor.
 
@@ -82,7 +82,7 @@ Enseguida caí rendida en el sofá, no recuerdo qué soñé, pero sí que me lev
 
 --- Hablábamos de usted --- Sonrió y me indicó que me colocara a su lado --- María, ellos son JiHoon y SeunHo.
 
---- Encantada --- Tenía los ojos abiertos como platos... claro que los conocía, a la perfección. ¿Qué hacían ellos hablando con Lee SooMan?
+--- Encantada --- Tenía los ojos abiertos como platos... claro que los conocía, a la perfección. ¿Qué hacían ellos hablando con Lee Sooman?
 
 --- Ellos han abierto y dirigen su propia empresa discográfica --- Los señaló --- No sé si conocerás algo de ellos, pero Tony An es un ex integrante de H.O.T., y perteneció a la SM.
 
@@ -104,15 +104,15 @@ Enseguida caí rendida en el sofá, no recuerdo qué soñé, pero sí que me lev
 
 --- Alguien me habló muy bien de ella...
 
---- ¿Dead End? --- Lee SooMan y JiHoon estaban extrañados.
+--- ¿Dead End? --- Lee Sooman y JiHoon estaban extrañados.
 
 --- Otra novela --- Dije.
 
 --- En la que mezcla japoneses, coreanos y taiwaneses --- Dijo SeunHo sonriente --- Sería buena inversión.
 
---- Habría que ver el auge que tiene este drama, va a ser muy complicado llevarlo a cabo --- Dijo Lee SooMan --- Tenemos que ver como se lo toman los directivos.
+--- Habría que ver el auge que tiene este drama, va a ser muy complicado llevarlo a cabo --- Dijo Lee Sooman --- Tenemos que ver como se lo toman los directivos.
 
---- Esto... señor SooMan --- Lo corté y me miró --- Tengo algo que decirle muy importante sobre eso... ya que... por eso vine...
+--- Esto... señor Sooman --- Lo corté y me miró --- Tengo algo que decirle muy importante sobre eso... ya que... por eso vine...
 
 --- ¿Y es...? --- Los tres me miraron.
 
@@ -128,11 +128,11 @@ Enseguida caí rendida en el sofá, no recuerdo qué soñé, pero sí que me lev
 
 --- Más de lo que te imaginas... --- Suspiró y miró a los chicos --- ¿Podéis retiraros? El lunes hablaremos con más detalles del asunto.
 
---- De acuerdo señor Lee SooMan --- Dijo JiHoon --- Encantado María.
+--- De acuerdo señor Lee Sooman --- Dijo JiHoon --- Encantado María.
 
 --- Hasta luego --- Dijo SeunHo --- María...
 
-Ambos se retiraron, y Lee SooMan y yo nos miramos. Sinceramente tenía pánico a la conversación que tendríamos a continuación... y normal, salí del despacho aguantándome las lágrimas... y cuando cerré la puerta a mi espalda, no pude evitar llorar como una tonta. Me solté el pelo, poniéndome más de la mitad sobre la cara, para tapar que estaba llorando y caminé hasta el ascensor, donde me crucé con Yunho.
+Ambos se retiraron, y Lee Sooman y yo nos miramos. Sinceramente tenía pánico a la conversación que tendríamos a continuación... y normal, salí del despacho aguantándome las lágrimas... y cuando cerré la puerta a mi espalda, no pude evitar llorar como una tonta. Me solté el pelo, poniéndome más de la mitad sobre la cara, para tapar que estaba llorando y caminé hasta el ascensor, donde me crucé con Yunho.
 
 --- ¿Kiki? --- Me quitó el pelo de la cara y se sorprendió --- ¿Qué ocurre?
 
@@ -152,7 +152,7 @@ Ambos se retiraron, y Lee SooMan y yo nos miramos. Sinceramente tenía pánico a
 
 --- Chao...
 
-Caminé sin mirar atrás y sin dejar de pensar en la conversación que había tenido con Lee SooMan. ¿Por qué ahora? ¿Por qué de repente? Llegué a mi despacho y lo primero que hice fue mandar a buscar a Elena y a Hana, necesitaba hablar con ellas. Tardaron un poco en llegar, pero pronto las tuve allí.
+Caminé sin mirar atrás y sin dejar de pensar en la conversación que había tenido con Lee Sooman. ¿Por qué ahora? ¿Por qué de repente? Llegué a mi despacho y lo primero que hice fue mandar a buscar a Elena y a Hana, necesitaba hablar con ellas. Tardaron un poco en llegar, pero pronto las tuve allí.
 
 --- ¿Ocurre algo? --- Preguntó la mayor muy preocupada.
 
@@ -160,7 +160,7 @@ Caminé sin mirar atrás y sin dejar de pensar en la conversación que había te
 
 Y sin previo aviso comencé de nuevo a llorar. Cuando vivía en España, tuve un pequeño problema con el novio que tuve allí y mi padre. Entendía el motivo por el cual mi padre no le gustaba, pero jamás me había dicho que cortara con él... que lo dejara... Era la primera vez que me enfrentaba a esas palabras tan serias... y no venían precisamente de la boca de mi padre, sino de mi jefe... el mío y el de mi novio.
 
---- ¿Has hablado con Lee SooMan? --- Preguntó Hana y yo me limité a asentir mientras iba a por un pañuelo. Ella suspiró --- ¿Le has dicho lo de Jane?
+--- ¿Has hablado con Lee Sooman? --- Preguntó Hana y yo me limité a asentir mientras iba a por un pañuelo. Ella suspiró --- ¿Le has dicho lo de Jane?
 
 --- Si --- Dije --- Y lo peor no ha sido eso... sino quién estaban allí y por qué... y lo que él ha dicho...
 
@@ -174,24 +174,24 @@ Y sin previo aviso comencé de nuevo a llorar. Cuando vivía en España, tuve un
 
 --- Dead End... --- Y Elena se perdió.
 
---- Al caso --- Capté su atención --- Es que no han dicho nada claro de Dead End, eso lo primero... y... --- Me quedé un momento en silencio --- Lee SooMan me ha echado en cara lo de Junsu... ahora... y
+--- Al caso --- Capté su atención --- Es que no han dicho nada claro de Dead End, eso lo primero... y... --- Me quedé un momento en silencio --- Lee Sooman me ha echado en cara lo de Junsu... ahora... y
 de mala manera.
 
 --- ¿Lo de Junsu? --- Ambas me miraron. Hana tomó la palabra --- ¿Y no te ha dicho nada de Jane?
 
 --- ¿Qué me va a decir? --- Puse un puchero --- La obligan sus padres, ella es menor de edad en España y aquí aún más... no podemos ir en contra de su voluntad... no podemos raptarla... Y ella menos se puede escapar.
 
---- Me has leído la mente --- Dijo Elena agachando la cabeza --- ¿Y qué harás? Tienes muy pocos días para sacar a la luz el episodio uno... y Jane es Mika.
+--- Me has leído la mente --- Dijo Elena agachando la cabeza --- ¿Y qué harás? Tienes muy pocos días para sacar a la luz el episodio uno... y Jane es Alicia.
 
 --- Eso ya lo sé, no me lo recuerdes... --- Me enfadé.
 
 --- Hay que recordártelo Kiki --- Dijo Hana --- Tienes que solucionarlo...
 
---- Claro, y aquí Kiki se calienta la cabeza con todo... --- Estallé y comencé a gritar mientras lloraba --- ¡Dile a Lee SooMan que Jane tiene que volver a España, que tal vez no vuelva, que el capítulo uno salga a la luz en menos de tres o cuatro días, que no me echen, que las compañías que me patrocinan queden bien! ... y lo peor... --- Me derrumbé en la silla --- Decirle a Junsu que tenemos que romper...
+--- Claro, y aquí Kiki se calienta la cabeza con todo... --- Estallé y comencé a gritar mientras lloraba --- ¡Dile a Lee Sooman que Jane tiene que volver a España, que tal vez no vuelva, que el capítulo uno salga a la luz en menos de tres o cuatro días, que no me echen, que las compañías que me patrocinan queden bien! ... y lo peor... --- Me derrumbé en la silla --- Decirle a Junsu que tenemos que romper...
 
 Y el silencio se hizo en mi despacho, yo lloraba como una quinceañera mientras las otras no decía nada... la verdad es que tampoco quería que dijeran mucho, tenía un cacao mental impresionante y no tenía ni idea de cómo lo iba a solucionar. Llamaron a la puerta del despacho, yo con rapidez me tranquilicé y dejé pasar a quien golpeaba. Un serio Kim Dongsea se dejó ver.
 
---- He hablado con Lee SooMan --- Dijo cerrando y mirando a Hana y Elena --- Y me lo ha dicho... ¿qué vas a hacer?
+--- He hablado con Lee Sooman --- Dijo cerrando y mirando a Hana y Elena --- Y me lo ha dicho... ¿qué vas a hacer?
 
 --- No me preguntes eso --- Le dije --- Ayúdame a poner una solución... no puedo hacerlo yo sola.
 
@@ -203,7 +203,7 @@ Y el silencio se hizo en mi despacho, yo lloraba como una quinceañera mientras 
 
 --- ... --- Resoplé --- Ha fallecido su hermano... no creo que sea un buen momento.
 
---- Si, pero no hay otro momento, puede que si ella vuelve a su país, no regrese aquí... y piensa qué ocurriría si ella no vuelve --- Hizo un gesto de despedida con la mano --- María, tu puesto depende de un hilo... y ese hilo es SM Entertainment High School... Lee SooMan ha hablado con los altos directivos y lo entienden... es el fallecimiento de un ser cercano... no son de piedra.
+--- Si, pero no hay otro momento, puede que si ella vuelve a su país, no regrese aquí... y piensa qué ocurriría si ella no vuelve --- Hizo un gesto de despedida con la mano --- María, tu puesto depende de un hilo... y ese hilo es SM Entertainment High School... Lee Sooman ha hablado con los altos directivos y lo entienden... es el fallecimiento de un ser cercano... no son de piedra.
 
 --- Pues menos mal...
 
@@ -211,13 +211,13 @@ Y el silencio se hizo en mi despacho, yo lloraba como una quinceañera mientras 
 
 --- ¿Se podría sustituir? --- Preguntó Hana.
 
---- ¿Colocar otra Mika? ¿Española? ¿Con esas características? ¿Sin que sepa coreano? --- Dongsea la miró de repente --- Es muy arriesgado hacer eso... --- Suspiró --- No podemos arriesgarnos.
+--- ¿Colocar otra Alicia? ¿Española? ¿Con esas características? ¿Sin que sepa coreano? --- Dongsea la miró de repente --- Es muy arriesgado hacer eso... --- Suspiró --- No podemos arriesgarnos.
 
 Y en realidad tenía razón, o poníamos a Jane, o yo me podía despedir de mi trabajo y de mi carrera como guionista en la SM, me despedía de Junsu y volvía a España con el rabo entre las piernas y la cabeza gacha... y no podía permitirme tener ese lujo. No había ahorrado dinero ni me había sacrificado, ni mucho menos había aguantado las duras palabras en mi familia para volver con las manos vacías.
 
 --- Dongsea --- Capté su atención --- Tengo un pequeño drama de dos o tres episodios... ¿lo podemos hacer mientras?
 
---- ... no es mala idea... --- Sonrió --- Hablaré con Lee SooMan y se lo comentaré; prepara el guión para esta tarde y preséntaselo, tal vez calme un poco las aguas.
+--- ... no es mala idea... --- Sonrió --- Hablaré con Lee Sooman y se lo comentaré; prepara el guión para esta tarde y preséntaselo, tal vez calme un poco las aguas.
 
 --- Gracias...
 
@@ -335,7 +335,7 @@ estará más “potable” que Jane...
 
 --- Si...
 
-Cogí la carpeta del guión que tenía preparado ya, escribí una nota para Lee SooMan y se lo di a mi secretaria para que se lo diera a él. Me despreocupé un poco y me marché con Dongsea a casa. Le indiqué el camino y, con el mismo miedo que la primera vez que me monté en su coche, me llevó al mi casa.
+Cogí la carpeta del guión que tenía preparado ya, escribí una nota para Lee Sooman y se lo di a mi secretaria para que se lo diera a él. Me despreocupé un poco y me marché con Dongsea a casa. Le indiqué el camino y, con el mismo miedo que la primera vez que me monté en su coche, me llevó al mi casa.
 
 --- Estás loco --- Me quité el cinturón de seguridad lentamente --- Muy loco.
 
@@ -620,7 +620,7 @@ Risas. Risas y más risas... y más botes de cervezas vacíos sobre el suelo y l
 
 --- ¿Estarás siempre conmigo? --- Me preguntó.
 
-Y me puse seria, esa pregunta hizo que me acordara de las palabras de Lee SooMan.
+Y me puse seria, esa pregunta hizo que me acordara de las palabras de Lee Sooman.
 
 --- Junsu estoy preocupada --- Susurré y lo miré.
 

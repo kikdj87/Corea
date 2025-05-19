@@ -44,7 +44,7 @@ Fui directa a mi portátil y comencé a leer todas las historias que había escr
 
 Llamaron a la puerta de mi casa, dejándome desconcertada. Fui a abrir y me sorprendí.
 
----Señorita María ---dos hombres bien trajeados estaban justo frente a mí --- Somos dos abogados que trabajan para la SM Entertainment. Nos ha enviado Lee SooMan para hablar con usted, ¿podemos pasar?
+---Señorita María ---dos hombres bien trajeados estaban justo frente a mí --- Somos dos abogados que trabajan para la SM Entertainment. Nos ha enviado Lee Sooman para hablar con usted, ¿podemos pasar?
 
 ---S-sí, claro ---reaccioné y los dejé pasar.
 

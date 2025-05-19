@@ -186,7 +186,7 @@ contacto con las chicas por internet...
 
 --- ¡Fijo que eso lo ha añadido M! --- Rió Hana.
 
---- Sigo... --- Carraspeé y seguí leyendo --- _“Espero no tardar más de lo acordado con Lee SooMan, él sabe de todo esto. Hablé con él y quedamos que el estreno sería el mes próximo... ensayad mucho allí y practicar... Mientras, aunque os moleste, buscad una chica con las características de Jane por si acaso yo aquí no consigo nada... Bueno, un saludo a Elena y Hana. Besos: Kim Dongsea”_
+--- Sigo... --- Carraspeé y seguí leyendo --- _“Espero no tardar más de lo acordado con Lee Sooman, él sabe de todo esto. Hablé con él y quedamos que el estreno sería el mes próximo... ensayad mucho allí y practicar... Mientras, aunque os moleste, buscad una chica con las características de Jane por si acaso yo aquí no consigo nada... Bueno, un saludo a Elena y Hana. Besos: Kim Dongsea”_
 
 --- Oh... besos --- Elena me dio un codazo y yo le di un pescozón --- Bruta...
 
@@ -202,7 +202,7 @@ contacto con las chicas por internet...
 
 --- Hana... --- Elena la abrazó --- Que palabras más profundas.
 
-Palabras profundas que me hicieron pensar. Me puse en pie y me acerqué a la cocina, cogí un vaso, lo llené con agua y bebí de él lentamente, pensando en todo lo que estaba pasando a mi alrededor. Y mi móvil comenzó a sonar. Sin prisa, fui hacia la habitación y lo miré, era Lee SooMan.
+Palabras profundas que me hicieron pensar. Me puse en pie y me acerqué a la cocina, cogí un vaso, lo llené con agua y bebí de él lentamente, pensando en todo lo que estaba pasando a mi alrededor. Y mi móvil comenzó a sonar. Sin prisa, fui hacia la habitación y lo miré, era Lee Sooman.
 
 --- Hola María --- Me dijo a través del altavoz --- ¿Qué tal estás?
 
@@ -214,7 +214,7 @@ Palabras profundas que me hicieron pensar. Me puse en pie y me acerqué a la coc
 
 --- Pues mañana a primera hora de la tarde, los quiero sobre mi despacho, ¿de acuerdo?
 
---- Si señor SooMan --- Me estaba poniendo nerviosa. De pronto me colgó y me reuní con las chicas. Las miré pensativa y suspiré --- ¿Qué hora es la primera hora de la tarde? --- Pregunté junto con un suspiro.
+--- Si señor Sooman --- Me estaba poniendo nerviosa. De pronto me colgó y me reuní con las chicas. Las miré pensativa y suspiré --- ¿Qué hora es la primera hora de la tarde? --- Pregunté junto con un suspiro.
 
 --- ... --- Las otras dos me miraron en silencio y comenzaron a reírse. Hana me agarró del brazo --- ¿Por qué no preguntas esas cosas penka?
 

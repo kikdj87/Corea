@@ -75,6 +75,6 @@ les explicó el problema que teníamos y se quedaron pensativos...
 A los dos días nos llamaron y nos dijeron que sí que
 vendrían, pero más tarde. Dongsea hizo unas llamadas y nosotros
 nos marchamos al aeropuerto. Me despedí de mis hermanos y de
-mis padres, nos montamos en el avión y Lee SooMan nos recogió en
+mis padres, nos montamos en el avión y Lee Sooman nos recogió en
 el aeropuerto. Le dijo a Dongsea algo de que no tardarían en llegar y
 no hablamos más del tema...”

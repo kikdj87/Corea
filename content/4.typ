@@ -165,7 +165,7 @@ La boca se me abrió sola, los colores se me subieron por la cara. Sinceramente 
 
 ---¡Harry Potter! ---gritó Heechul estallado en risas.
 
----Ah, ya ---asentí --- Cuando Kiki se enfada con Mika. Bueno... ---me puse a pensar como contaba yo eso, así miré el portátil y lo cogí --- Leerlo, anda.
+---Ah, ya ---asentí --- Cuando Kiki se enfada con Alicia. Bueno... ---me puse a pensar como contaba yo eso, así miré el portátil y lo cogí --- Leerlo, anda.
 
 Yoochun comenzó a leer y a traducir la historia que acababa de abrir. Yo mientras me incliné a coger la libreta que había en la mesa y fui a guardarla.
 

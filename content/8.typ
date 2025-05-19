@@ -129,7 +129,7 @@ Terminamos el almuerzo y fuimos a mi despacho, donde ya tenía preparados los gu
 
 --- Wow --- Elena miró por todos lados --- Kiki, me encanta tu despacho... mucho...
 
---- Gracias --- Sonreí y las invité a que se sentaran. Yo me senté en mi lugar --- Aquí tenéis vuestros correspondientes guiones --- Le expliqué como iban y tal --- Elena, tú serás Elena --- Me reí --- Jane, tu harás de Mika...
+--- Gracias --- Sonreí y las invité a que se sentaran. Yo me senté en mi lugar --- Aquí tenéis vuestros correspondientes guiones --- Le expliqué como iban y tal --- Elena, tú serás Elena --- Me reí --- Jane, tu harás de Alicia...
 
 --- ¡¡¡Bien!!! --- Se puso en pie y saltó por todo el despacho --- ¡¡Me beso con Sungmin, me beso con Sungmin!! --- Y siguió canturreando hasta que Hana la calmó y se sentó en su lugar.
 
@@ -145,7 +145,7 @@ Terminamos el almuerzo y fuimos a mi despacho, donde ya tenía preparados los gu
 
 --- No --- Negó R --- Los nombres originales están muy bien... además, supongo que para los coreanos es más fácil de aprender estos nombres que los originales...
 
---- Cierto --- Asentí recordando lo mal que pronunciaban María y lo rápido que habían aprendido el nombre de Kiki... al menos los chicos, porque oficialmente seguía siendo María... Dongsea me llamaba así, Lee SooMan también... --- Pues con los nombres originales...
+--- Cierto --- Asentí recordando lo mal que pronunciaban María y lo rápido que habían aprendido el nombre de Kiki... al menos los chicos, porque oficialmente seguía siendo María... Dongsea me llamaba así, Lee Sooman también... --- Pues con los nombres originales...
 
 --- ¿Tú harás de Kiki? --- Preguntó Hana.
 
@@ -585,7 +585,7 @@ Caminamos hasta llegar al ascensor, donde me di cuenta que era realmente enorme.
 
 --- Ahh... si --- Asentí --- La Elena original --- Reí y ella también sonrió.
 
---- ¿Y Mika? --- Preguntó --- Supongo que a Junsu le hará ilusión saber quién será... --- Miró a Jane y la señaló, pero el ascensor se detuvo y la puerta se abrió --- Ah... ya estamos aquí...
+--- ¿Y Alicia? --- Preguntó --- Supongo que a Junsu le hará ilusión saber quién será... --- Miró a Jane y la señaló, pero el ascensor se detuvo y la puerta se abrió --- Ah... ya estamos aquí...
 
 Los seis salimos y caminamos hasta una puerta de madera muy oscura, donde Yunho llamó a un telefonillo con una camarita. Escuché la voz de Jae.
 
@@ -629,7 +629,7 @@ Nos sentamos en la mesa, yo en una punta y Yunho en la otra. A mi derecha tenía
 
 Y me maldije un poco, porque vi a Junsu que intentaba gastar sus bromas, pero que con mis nervios de que ellas estuvieran allí y el caso de que somos “pareja” (cosa que me llevaba de cabeza), reía sin hacer muchos comentarios a las tonterías. Me fijé en Hana, que no le quitaba ojo de encima a Jaejoong cada vez que reía, hablaba, se movía, suspiraba... sonreí. También me fijé en una sonrojada Elena que tenía a lado a Yunho y en frente a Changmin, la situación me parecía tan extraña... tenerlos a ellos y a ellas juntos.
 
---- ¿Y quién es Mika? --- Soltó Junsu de golpe --- Porque será mi novia --- Se señaló --- ¿Tú? --- Señaló a una sobresaltada Jane --- Eres la única que encaja --- Dijo él mirándome.
+--- ¿Y quién es Alicia? --- Soltó Junsu de golpe --- Porque será mi novia --- Se señaló --- ¿Tú? --- Señaló a una sobresaltada Jane --- Eres la única que encaja --- Dijo él mirándome.
 
 --- ... --- Tosí --- Tranquilos, tranquilos --- Alcé las manos un poco --- Mañana se dirá todo oficialmente.
 
@@ -794,7 +794,7 @@ Entre risas ayudamos a los chicos a recoger la mesa, a limpiar un poco la cocina
 
 Pronto se hizo la hora de volver a casa y Yunho se volvió a ofrecer para llevarnos en el coche grande... Obviamente, porque no íbamos a ir los seis en el Ferrari... aunque a mí que me lo dejen y yo más feliz que nadie, aunque no me atrevería a conducir por la ciudad. Sinceramente, andando o en autobús se iba muy, pero que muy bien. Los otros cuatro nos acompañaron hasta el ascensor.
 
---- ¡¡Nos vemos mañana!! --- Canturreó Junsu sonriente --- Que espero saber quién será Mika...
+--- ¡¡Nos vemos mañana!! --- Canturreó Junsu sonriente --- Que espero saber quién será Alicia...
 
 --- Que pesado, Junsu --- Le saqué la lengua.
 

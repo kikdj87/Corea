@@ -209,7 +209,7 @@ viernes de esa misma semana.
 muy bien sobre el... estoy muy feliz.
 - Me alegro – Nos abrazamos.
 - Pues menos mal que tenemos algunos episodios grabados
-– Dijo Hana de fondo – Y que Lee SooMan ha sido comprensivo...
+– Dijo Hana de fondo – Y que Lee Sooman ha sido comprensivo...
 - La verdad es que si... - Temblé de miedo – Nunca sé por
 dónde saldrá ese hombre...
 - Kiki, la nariz ya la tienes mucho mejor – Dijo Elena – Yo
@@ -219,7 +219,7 @@ muy poco del episodio seis...
 guion para saber que parte es.
 - No creo que te agrade – Dijo de pronto Hana.
 No se habló más sobre eso hasta que llegamos a la SM. Tuve
-una pequeña reunión con Lee SooMan y volví al rodaje. Y claro que
+una pequeña reunión con Lee Sooman y volví al rodaje. Y claro que
 el episodio seis no me iba a gustar. Olvide por completo de que iba
 ese capítulo... y es que estaba demasiado rato con Yoochun.
 Llegamos al estudio y vimos a Se7en hablar tranquilamente con Jae,
@@ -312,7 +312,7 @@ Los DBSK enseguida se marcharon, al igual que Boa, Se7en y
 los SuJu. Yo fui a mi despacho y las chicas se quedaron merodeando 
 398
 por ahí sin saber que iban a hacer. Cuando llegue, me encontré con
-Lee SooMan que llevaba una carpeta verde en la mano, y me la
+Lee Sooman que llevaba una carpeta verde en la mano, y me la
 enseñaba.
 - Es una carta de la Rhythm Zone – Me señalo – En la que me
 redactan la conversación que tuvieron contigo... todo...
@@ -330,4 +330,4 @@ Inglaterra, Alemania, Francia, Italia, Países Bajos y España. No
 especificaban nada más. Habría que esperar... y realmente lo
 esperaba con muchas ganas.
 Cuando terminé de firmar todos los dichosos papeles, que
-no eran pocos, se los entregue a Lee SooMan y todo bien. 
+no eran pocos, se los entregue a Lee Sooman y todo bien. 

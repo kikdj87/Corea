@@ -260,7 +260,7 @@ Conteste el teléfono sin estar muy en mis cabales, pero su respuesta
 hizo que me despejara del todo.
 - Soy Kawamura, de la Rhythm Zone – Las piernas me
 temblaron y me senté en la cama – Quisiera saber si el Señor
-SooMan le entrego los papeles...
+Sooman le entrego los papeles...
 - Si, me los entrego hace unas semanas – Le dije extrañada -
 ¿Ocurre algo?
 - Me gustaría que hablara con el líder, Yunho, y decidierais el
@@ -427,7 +427,7 @@ ciudad que os guste más que otra?
 - No sé... - Me miró extrañado - ¿Por qué lo dices?
 - Vais a hacer un photobook y un videoclip en Europa – Le
 conté – Supongo que para promocionaros.
-- Si, algo me dijo SooMan en la reunión que tuve con él – Se
+- Si, algo me dijo Sooman en la reunión que tuve con él – Se
 quedó pensativo – De todas formas, gracias a Boa, hemos entrado
 bien en esos países.
 - ¿Boa ya ha promocionado allí? - Me sorprendí.

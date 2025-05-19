@@ -285,7 +285,7 @@ verdad?
 - Estoy aprendiendo – Me encogí de hombros.
 - ¿Y Yoochun...? - Señaló a la puerta.
 - ¿Qué tal todo por la agencia? - Cambié de tema mientras
-agarraba mis rodillas - ¿Que ha dicho Lee SooMan de esto?
+agarraba mis rodillas - ¿Que ha dicho Lee Sooman de esto?
 - … - Suspiró – Que te mejores – Se encogió de hombros -
 ¿Qué va a decir? Y que espera que tu nariz mejore, sin ella bien,
 poco podemos hacer...

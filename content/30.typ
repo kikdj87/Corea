@@ -51,10 +51,10 @@ ninguna de las dos se podía quejar.
 Pero R y Jane se sentían algo chafadas, porque habían
 terminado de rodar mi drama y veían que después de las galas y
 premios, volvían a España, y ninguna de las dos querían. Yo ya le
-propuse, antes de hablar con Jane, a Lee SooMan, que la rubia
+propuse, antes de hablar con Jane, a Lee Sooman, que la rubia
 entrara al grupo de las SNSD como una nueva integrante. Jane había
 demostrado tener gran habilidad para el canto y el baile, pero Lee
-SooMan se lo pensó mucho, ya que tuvo la experiencia de “Only13”
+Sooman se lo pensó mucho, ya que tuvo la experiencia de “Only13”
 con Super Junior y Henry. Aunque me dijo que lo estudiaría y que
 empezaría a pensarlo, ya que tampoco sonaba nada mal.
 Y R... ¿qué hacía con ella? Cada vez se llevaba mejor con
@@ -117,7 +117,7 @@ El día de navidad, hicimos una cena de empresa en el
 restaurante de los abuelos de Yoochun, que reservaron solo para
 nosotros en particular. E íbamos muchos famosos y trabajadores,
 con la ganancia que sumó mi drama, era lo menos que podía hacer
-Lee SooMan para nosotros. Y lo mejor de esa cena era que
+Lee Sooman para nosotros. Y lo mejor de esa cena era que
 estábamos solo nosotros, en confianza y familia. No había cámaras
 ni periodistas... Y yo pude ser más que feliz con Junsu sin que nadie
 me molestara, ahí cada uno iba a su bola y bebía lo que le daba la
@@ -262,7 +262,7 @@ decía. A primera vista no me caería bien ese hombre.
 - Pues aquí le estaré esperando – Él colgó primero y yo miré
 el teléfono con gesto de extrañada. ¿Por qué quería contactar
 conmigo el presidente de la KBS?
-Me puse a revisar los guiones cuando Lee SooMan irrumpió
+Me puse a revisar los guiones cuando Lee Sooman irrumpió
 amablemente en mi despacho. Se acercó a mi mesa y sonrió.
 - Vengo a aclarar un par de cosas – Se quedó de pie. Yo
 esperaba que se sentara, pero no lo hizo – Y son sobre tu contrato

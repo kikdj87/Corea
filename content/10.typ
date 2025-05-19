@@ -1,6 +1,6 @@
 = Capítulo 10
 
-A la mañana siguiente, yo ya estaba como una rosa. Todo estaba solucionado. Sonreí y, feliz, las desperté a todas, que me miraban muy extrañada. Nos arreglamos y nos fuimos, de camino, tomamos un descafeinado o café, les pegué mi costumbre. Llegamos a la agencia y las chicas se fueron a sus acostumbradas clases de coreano y yo a mi despacho... No sin antes pasar por el despacho de Lee SooMan.
+A la mañana siguiente, yo ya estaba como una rosa. Todo estaba solucionado. Sonreí y, feliz, las desperté a todas, que me miraban muy extrañada. Nos arreglamos y nos fuimos, de camino, tomamos un descafeinado o café, les pegué mi costumbre. Llegamos a la agencia y las chicas se fueron a sus acostumbradas clases de coreano y yo a mi despacho... No sin antes pasar por el despacho de Lee Sooman.
 
 --- ¿Se puede? --- Asomé la cabeza.
 
@@ -128,7 +128,7 @@ Después de leer unos papeles muy aburridos, llegaron Jane y Elena a mi despacho
 
 --- Bueno, pues empezamos... tenemos que meternos muy bien en el papel... tres chicas serias que no se dejan intimidar por las miradas que tienen a su alrededor --- Señalé --- ¡¡Somos muy buenas actrices!!
 
-Entre risas, comenzamos a hacer la primera parte del drama, donde ya salíamos las tres cambiadas y a lo chachi. Y más divertido fue ver a Jane en medio del despacho andar como Mika, a lo chulita y con media sonrisa, echándose su pelo rubio hacia atrás. De pronto entró Kim Dongsea, quien captó mi atención y me pidió que saliera un momento. Extrañada, lo acompañe y vi que estaba con mala cara.
+Entre risas, comenzamos a hacer la primera parte del drama, donde ya salíamos las tres cambiadas y a lo chachi. Y más divertido fue ver a Jane en medio del despacho andar como Alicia, a lo chulita y con media sonrisa, echándose su pelo rubio hacia atrás. De pronto entró Kim Dongsea, quien captó mi atención y me pidió que saliera un momento. Extrañada, lo acompañe y vi que estaba con mala cara.
 
 --- ¿Qué ocurre? --- Pregunté.
 
@@ -182,13 +182,13 @@ Yo me puse la mano en el pecho y respiré profundamente varias veces. De pronto 
 
 --- ¿Y tú que vas a hacer? --- Dijo Elena.
 
---- Yo iré a hablar con Lee SooMan --- Dije --- Tengo que decirle lo ocurrido... ... bueno, no se lo contaré todo, pero le diré que no tengo productor...
+--- Yo iré a hablar con Lee Sooman --- Dije --- Tengo que decirle lo ocurrido... ... bueno, no se lo contaré todo, pero le diré que no tengo productor...
 
 --- Vale --- Asintieron --- Nos vemos en casa.
 
-Me despedí de ellas y cerré el despacho para dirigirme al de Lee SooMan. La verdad es que no tenía ni idea de cómo se lo iba a contar... pero algo tenía que hacer. Suspiré y llamé a la puerta. No pasó mucho cuando me abrió y vi que estaba con Dongsea. Ambos nos miramos.
+Me despedí de ellas y cerré el despacho para dirigirme al de Lee Sooman. La verdad es que no tenía ni idea de cómo se lo iba a contar... pero algo tenía que hacer. Suspiré y llamé a la puerta. No pasó mucho cuando me abrió y vi que estaba con Dongsea. Ambos nos miramos.
 
---- ¿Qué ocurre, María? --- Me preguntó Lee SooMan.
+--- ¿Qué ocurre, María? --- Me preguntó Lee Sooman.
 
 --- Nada, nada --- Negué --- Ya me pasaré mañana... siento interrumpir.
 
@@ -216,7 +216,7 @@ Me marché antes de que pudiera decir algo. Bienvenida al mundo real, Kiki... Na
 
 --- ¿Kiki? --- Changmin apareció de pronto --- ¿Qué haces aún aquí? Vi a tus amigas irse...
 
---- Ah... yo estaba hablando con Lee SooMan --- Sonreí --- Les dije que se marcharan sin mí.
+--- Ah... yo estaba hablando con Lee Sooman --- Sonreí --- Les dije que se marcharan sin mí.
 
 --- Ok, vale --- Sonrió --- Bueno... nos veremos esta noche, ¿no? --- Preguntó sonriente, yo me quedé muerta, ¿cómo decía eso delante de Heechul?
 
@@ -294,7 +294,7 @@ Se llevaron el cuerpo de Junsu en camilla y el del otro también. Enseguida lleg
 
 --- ¿Por tu culpa? --- Yunho se quedó sorprendido.
 
---- María --- Mis abogados llegaron --- Lee SooMan nos llamó, ¿estás bien?
+--- María --- Mis abogados llegaron --- Lee Sooman nos llamó, ¿estás bien?
 
 --- ¡¡...!! --- Los miré sorprendida --- ¿Y cómo lo sabe él?
 

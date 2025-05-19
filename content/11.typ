@@ -33,7 +33,7 @@ Como era de suponer, la cena esa noche se suspendió. A la mañana siguiente me 
 
 --- ... --- Asintió --- Vale...
 
-Y salió del baño. Terminé de ducharme y salí puesta en toalla para la habitación. Una vez arregladas, las cinco fuimos directas a la SM. Nada más llegar, vimos que aquello era un auténtico caos. La prensa agobiaba a los empresarios con millones de preguntas que no tenían respuestas, o si las tenían, solo podía responderlas yo. Entramos discretamente y vi a Lee SooMan, quien se acercó a mí rápidamente.
+Y salió del baño. Terminé de ducharme y salí puesta en toalla para la habitación. Una vez arregladas, las cinco fuimos directas a la SM. Nada más llegar, vimos que aquello era un auténtico caos. La prensa agobiaba a los empresarios con millones de preguntas que no tenían respuestas, o si las tenían, solo podía responderlas yo. Entramos discretamente y vi a Lee Sooman, quien se acercó a mí rápidamente.
 
 --- ¿Estás bien? --- Me preguntó --- Me he enterado de todo lo ocurrido ayer, lo siento mucho María.
 
@@ -45,7 +45,7 @@ Y salió del baño. Terminé de ducharme y salí puesta en toalla para la habita
 
 --- Bueno --- Se quedó serio --- Quieren saber cosas de ti. Como por ejemplo, ¿qué hacían ellos en tu casa? --- Se pasó la mano por la sien --- Esto no está yendo nada bien... El drama se tiene que aplazar.
 
---- Supongo --- Agaché la cabeza --- Lo siento mucho señor Lee SooMan, no creía que esto iba a llegar tan lejos... no era mi intención...
+--- Supongo --- Agaché la cabeza --- Lo siento mucho señor Lee Sooman, no creía que esto iba a llegar tan lejos... no era mi intención...
 
 --- Tranquila, todo tiene su solución, aunque a veces sea dolorosa.
 
@@ -61,7 +61,7 @@ Me quedé en estado de shock, sin saber cómo reaccionar, pero desperté cuando 
 
 --- Bien... --- Intenté guardarme las lágrimas --- ¿Puedo ir a ver a Junsu?
 
---- Lee SooMan me ha llamado --- Esa fue su respuesta.
+--- Lee Sooman me ha llamado --- Esa fue su respuesta.
 
 --- Yunho --- Al final comencé a llorar --- De acuerdo... os lo contaré todo... pero no me dejéis sin ver a Junsu... necesito verle.
 
@@ -73,7 +73,7 @@ Me quedé en estado de shock, sin saber cómo reaccionar, pero desperté cuando 
 
 --- Chao... --- Colgué y me sequé las lágrimas. Miré a las chicas --- Vosotras no tenéis nada que ver con este follón... quedaros...
 
---- ¿Qué has hablado con Lee SooMan? --- Preguntó R --- ¿Por qué estás llorando?
+--- ¿Qué has hablado con Lee Sooman? --- Preguntó R --- ¿Por qué estás llorando?
 
 --- ... --- Y como una estúpida, volví a llorar al recordarlo --- Voy a estar un tiempo sin venir a trabajar y... sin ver a Junsu --- Elena me abrazó al decir eso --- Así que yo vuelvo a casa.
 
@@ -87,7 +87,7 @@ Me despedí de las chicas y me fui con Dongsea hacia el parking, donde tenía su
 
 --- ¿Por qué estabas ayer en mi casa? --- Pregunté seria.
 
---- Después de hablar con Lee SooMan, quería ir a pedirte perdón --- Dijo cabizbajo --- Dije unas palabras muy groseras... pero de pronto vi a los chicos, y más o menos vi el forcejeo entre Junsu y ese tipo que intentó hacerte daño --- Suspiró --- Por eso llamé a tus abogados... Pero no me quedé por la situación... ¿Por qué te atacó el tipo ese?
+--- Después de hablar con Lee Sooman, quería ir a pedirte perdón --- Dijo cabizbajo --- Dije unas palabras muy groseras... pero de pronto vi a los chicos, y más o menos vi el forcejeo entre Junsu y ese tipo que intentó hacerte daño --- Suspiró --- Por eso llamé a tus abogados... Pero no me quedé por la situación... ¿Por qué te atacó el tipo ese?
 
 --- Su hermano fue uno de los que me... --- Y la palabra que iba a decir se me atragantó en la garganta. Las lágrimas cayeron solas. Él me miró y suspiró --- Quería vengarse...
 
@@ -335,7 +335,7 @@ Extrañados, salimos de la habitación y fuimos al comedor, donde todos veían l
 
 --- ¡Es lo que dicen! --- Señaló Jae al televisor.
 
---- ... --- La pelirroja bufó --- Lee SooMan ha salido en televisión desmintiendo todo lo que han dicho, diciendo que era un ladrón que te pilló desprevenida y que ellos te salvaron porque de casualidad estaban allí.
+--- ... --- La pelirroja bufó --- Lee Sooman ha salido en televisión desmintiendo todo lo que han dicho, diciendo que era un ladrón que te pilló desprevenida y que ellos te salvaron porque de casualidad estaban allí.
 
 --- Solo existe un problema --- Dijo Elena.
 

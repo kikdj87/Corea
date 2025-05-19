@@ -1,7 +1,7 @@
 = Capítulo 19
 
 - Y eso es todo – Dijo R – Y al final han venido el mismo día...
-- Es que lo que no consiga Lee SooMan no lo consigue nadie
+- Es que lo que no consiga Lee Sooman no lo consigue nadie
 – Rió Elena y yo me puse seria a su expresión – Lo siento mucho
 Kiki... - Agachó la cabeza – No quería decir que...
 - Da igual – Sonreí – Estáis aquí, eso es lo que importa... y lo
@@ -281,7 +281,7 @@ momento - ¿Acaso quieres dejarlo? - Y comencé a llorar de verdad –
 Kiki... sé que no está yendo como ambos queríamos, pero hay que
 superarlo, no podemos rendirnos de buena a primeras – Seguía
 diciendo mientras yo lloraba – Si nos rendimos ahora habremos
-dejado que Lee SooMan gane... y aunque sea nuestro jefe, nosotros
+dejado que Lee Sooman gane... y aunque sea nuestro jefe, nosotros
 somos dueños de nuestras vidas. Te quiero...
 - Entonces...
 - ¿Qué pensarían tus padres al enterarse de que tienes un

@@ -10,7 +10,7 @@ Hablábamos con el director del Lotte, invitábamos a otras
 estrellas al evento, hacíamos publicidad por internet, televisión,
 radio y demás spot publicitarios. Teníamos ruedas de prensa para
 comentar como iba el progreso, a parte de las típicas y diarias
-reuniones con Lee SooMan para comentar el progreso del proyecto.
+reuniones con Lee Sooman para comentar el progreso del proyecto.
 El viernes era el día más estresante. Yo era la que más
 presión tenía acumulada, y lo pagaba con cualquiera que se me
 cruzara. Todos me evitaban o, directamente, cuando les gritaba me
@@ -26,7 +26,7 @@ Hana era lo más parecido a una madre para mí en ese momento –
 Esto no solo te molesta a ti... va para todas. Que ninguna te
 dejaremos sola.
 - Gracias – Me miré el reloj - ¡Cielos! Llego tarde a mi
-reunión con Lee SooMan.
+reunión con Lee Sooman.
 Corrí por los pasillos, me monté en el ascensor, me relajé un
 poco y caminé con una tranquilidad fingida hasta llegar a su
 despacho. Cuando abrí la puerta y vi lo que vi, el alma se me cayó al 
@@ -38,7 +38,7 @@ suelo.
 Los mire a todos sorprendida – Los he invitado a gastos pagados, con
 sus hoteles y sus guías turísticos...
 Y no pude aguantarlo más, me lance a los brazos de mis
-padres y llore. Después de unos minutos, Lee SooMan tomo la
+padres y llore. Después de unos minutos, Lee Sooman tomo la
 palabra.
 - Han venido para ver el estreno de tu drama, María... y para
 estar presentes en tu salto a la fama... el tuyo y el de tus
@@ -131,7 +131,7 @@ que todas las de la casa nos despertamos. Pero no solo sonaba el
 teléfono, sino que llamaban a la puerta incansablemente. Yo atendí
 el teléfono y Hana la puerta.
 - ¿Diga? - Conteste al estruendoso aparato.
-- María, soy Lee SooMan, he mandado a su casa unas
+- María, soy Lee Sooman, he mandado a su casa unas
 estilistas para que os relajéis y para que os arregléis...
 - ¿Eh? - Me quede un poco loca a lo que estaba diciendo.
 341
@@ -140,7 +140,7 @@ estilistas para que os relajéis y para que os arregléis...
 ¿Olvidarme? - Dije para mis adentros. Suspire y salí de la habitación
 - ¡Chicas, van a venir a... a...!
 Cuando alcé la vista, todo el equipo que me dijo Lee
-SooMan que vendrían ya estaban allí. Me encogí de hombros y
+Sooman que vendrían ya estaban allí. Me encogí de hombros y
 salude.
 - Hola...
 - ¿Que es todo esto? - Me pregunto Hana.
@@ -206,7 +206,7 @@ De todas formas, aún no ha empezado nada.
 Bajamos de la limusina en el parking del Lotte y nos 
 343
 encontramos con muchísima gente allí. Periodistas, famosos,
-técnicos... Y cuando Lee SooMan nos vio, se acercó a nosotras.
+técnicos... Y cuando Lee Sooman nos vio, se acercó a nosotras.
 - Vosotras cuatro venid conmigo – Señalo a las chicas – Tú te
 esperas aquí...
 Cuando el desapareció con las chicas, me sumí en un mar de

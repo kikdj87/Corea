@@ -74,7 +74,7 @@ mucho.
 - Pues no seré yo... - Dijo Elena con una sonrisa - ¿Verdad
 Kiki? - Rió – Me bastó con bachillerato...
 - Esto... Elena... - Capté su atención y me miró extrañada
-al ver mi expresión – Hablé sobre eso con Lee SooMan y...
+al ver mi expresión – Hablé sobre eso con Lee Sooman y...
 - ¿No me digas que voy a tener que ir...? - Dejó la pregunta
 en el aire y yo asentí – Jope... - Puso un puchero – No sabes lo que
 me costó sacar el bachiller, para que tenga que hacer la universidad.
@@ -139,7 +139,7 @@ gusta mucho todo – Sonreí.
 - Por cierto – Frunció el ceño y yo me sorprendí – Me han
 dicho que vas a trabajar en un drama.
 - Ah... ¿cómo te has enterado? - Pregunté sorprendida.
-- Pues Lee SooMan comentó algo – Se cruzó de brazos – Ya
+- Pues Lee Sooman comentó algo – Se cruzó de brazos – Ya
 te vale, me entero antes por él, que por mi propia novia...
 - En realidad, nadie lo sabe – Me encogí de hombros.
 - ¿Nadie? - Abrió la puerta - ¿Ni ellas tampoco?
@@ -260,7 +260,7 @@ canción... hasta ellos hacían piratería.
 La canción me gustó mucho y se la pasé a mi prima y a las
 demás chicas por correo, estaba segura de que la disfrutarían tanto
 como yo.
-- María – Lee SooMan entró de sorpresa a mi despacho -
+- María – Lee Sooman entró de sorpresa a mi despacho -
 ¿Podemos hablar?
 - Claro... - Asentí nerviosa.
 - Verás... - Esta vez se sentó frente a mí y cruzó sus piernas -
@@ -286,7 +286,7 @@ escenarios y demás cosas tenían que prepararse.
 Al terminar todo el trabajo recogí mis cosas, apagué las luces
 del despacho y lo cerré tras mi espalda. Me apoyé en la puerta un
 momento, pensando en la conversación que había tenido con
-SooMan momentos antes, ¿estaba pasando algo que se escapaba de
+Sooman momentos antes, ¿estaba pasando algo que se escapaba de
 su control? Sacudí la cabeza y comencé a caminar hacia casa, sin
 prisa, sabía que nadie me estaba esperando. Por el camino llamé a
 Junsu.
@@ -361,7 +361,7 @@ pasado.
 quedó pegado en sus mejillas húmedas por las lágrimas – Problemas
 de contratos.
 - No me jodas que… - De pronto entendí lo que me estaba
-hablando SooMan esa mañana. Le conté a Hana la conversación que
+hablando Sooman esa mañana. Le conté a Hana la conversación que
 habíamos tenido y resoplé – Quería saber si yo sabía algo.
 - Qué fuerte, es que de verdad – Se puso en pie y comenzó a
 caminar por la casa – Este hombre esconde algo oscuro que no me

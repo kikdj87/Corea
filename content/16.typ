@@ -61,7 +61,7 @@ despacho y no pasó mucho rato cuando comenzó a llegar gente.
 Aquello nos tiró toda la mañana, pero conseguimos a los cinco
 personajes principales y a unos cuantos secundarios. Repartí una
 copia del guión a cada uno y redacté unos informes para poder
-dárselos a Lee SooMan.
+dárselos a Lee Sooman.
 A la hora del almuerzo fuimos a la cafetería y vimos a Boa
 hablar tranquilamente con Heechul. Nos acercamos a ellos, quienes
 nos recibieron con una gran sonrisa.
@@ -78,7 +78,7 @@ acogida y, como no es la primera vez que canto allí, he tenido
 también muy buena ayuda.
 - Que bien – Hana sonrió.
 Charlamos lo cinco de cosas sin importancia hasta que cada
-uno tomó su camino. Y el mío era reunirme con Lee SooMan y
+uno tomó su camino. Y el mío era reunirme con Lee Sooman y
 hablar de cosas importantes. Llegué a su despacho con los informes
 en la mano y llamé a la puerta, al abrirla suspiré profundamente al
 ver que estaba solo.
@@ -155,7 +155,7 @@ Me senté al lado de ellas.
 preocupadas...
 - ¿Por qué has llegado tan tarde? - Preguntó Hana.
 Mientras me traía la cena y comía, ya que me moría de
-hambre, les conté la reunión con Lee SooMan y su plan. Y mientras
+hambre, les conté la reunión con Lee Sooman y su plan. Y mientras
 hablaba de él, más veía que quería romper mi relación con Junsu,
 aunque de una manera muy delicada.
 - Y a eso me voy a dedicar todo este mes... así que os dejo a

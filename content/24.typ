@@ -62,7 +62,7 @@ alrededor y solo me centrara en él.
 Me eché sobre la cama y medité largos minutos sobre
 todo... hasta que mi móvil, con el sonido desesperado que me había
 puesto Heechul, comenzó a sonar.
-- María – Dijeron a través del otro lado – Soy Lee SooMan –
+- María – Dijeron a través del otro lado – Soy Lee Sooman –
 Me llevé las manos a la cabeza y me maldije, había olvidado por
 completo el ir a hablar con él y darle una respuesta, me mordí la 
 359
@@ -145,10 +145,10 @@ Zone.
 lo justo de japonés, pero sí que sabía inglés, y ellos también. Me
 resolvieron la vida – Pasen, por favor – Les indique que pasaran y se
 sentaran.
-- El señor Lee SooMan nos llamó anoche y nos lo contó...
+- El señor Lee Sooman nos llamó anoche y nos lo contó...
 ¿qué tiene que decirnos? - Pregunto el que siempre hablaba.
 - Tomen asiento, por favor – Se sentaron, al igual que yo –
-Como sabrán por el señor Lee SooMan, he aceptado vuestra
+Como sabrán por el señor Lee Sooman, he aceptado vuestra
 propuesta para trabajar para ustedes – Asintieron – Y yo quiero
 saber las condiciones de trabajo.
 - Oh, descuide, señorita María – Me dijo otro hombre – Mi
@@ -161,7 +161,7 @@ manos entrelazadas sobre mi mesa de despacho.
 cada uno...
 - Matsura – Dijo el que siempre hablaba, en total eran tres
 hombres – No le proponga esa idea, ella apenas es novata.
-- Lee SooMan – Dijo el tercero – Dijo que no la pusiéramos
+- Lee Sooman – Dijo el tercero – Dijo que no la pusiéramos
 con Tohoshinki, pero nosotros discrepamos a su idea – Me sorprendí
 – Ya que usted tiene más relación y conoce más de cerca a
 Tohoshinki que Exile.
@@ -169,7 +169,7 @@ Tohoshinki que Exile.
 - Ir con Tohoshinki – Dijo el tercero.
 - Yo opino que tendría que ir con los dos – Dijo Matsura.
 - Y yo opino, que tendría que ir con Exile – Dijo el que
-siempre hablaba – Ya que Lee SooMan nos lo aconsejo.
+siempre hablaba – Ya que Lee Sooman nos lo aconsejo.
 362
 - Muy bien... - Me acomode en mi silla y los mire a los tres -
 ¿Cuándo seria ir a Europa?
@@ -181,7 +181,7 @@ Tohoshinki.
 para el puesto... escogería su propuesta – Y señale al tercer hombre.
 - ¿Kawamura? - El que siempre hablaba se sorprendió –
 Señorita María, no sé si usted debería hacer...
-- No sé qué tiene en mente el señor SooMan – Les dije –
+- No sé qué tiene en mente el señor Sooman – Les dije –
 Pero como bien dijisteis conozco Europa y su posible gusto musical,
 estilos y demás cosas... Y a quien mejor conozco es a Tohoshinki por
 trabajar con ellos en numerosas ocasiones...
@@ -206,7 +206,7 @@ irme, me encontré con Yunho.
 o no lo de la gira europea como Tohoshinki. Opte por no decírselo yo
 - ¿Y tú?
 363
-- Dos reuniones – Alzo los dedos – Una con Lee SooMan de
+- Dos reuniones – Alzo los dedos – Una con Lee Sooman de
 no tengo ni idea de que – Rió divertido y yo reí también – Y la otra
 para la fecha de lanzamiento del nuevo video y de la nueva versión
 de Mirotic.
@@ -256,7 +256,7 @@ Muchas gracias...
 - Hasta luego...
 Se marchó y yo me desplome en la silla. Junsu lo pasaba
 mal... ¿y por qué no me decía nada? Aunque lo entendía, yo
-tampoco le decía nada de lo que me decía Lee SooMan. Y eso estaba
+tampoco le decía nada de lo que me decía Lee Sooman. Y eso estaba
 mal, sinceramente, por ambas partes. Después de estar un buen
 rato mirando a la nada por la ventana, mi móvil sonó.
 - ¿Diga? - Conteste desganada.

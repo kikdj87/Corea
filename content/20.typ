@@ -27,14 +27,14 @@ que vaya a recoger unas pruebas, nada más...
 - Ahm... - Me miró pensativa – Ya me dirás qué es...
 - Si puedo ir – Suspiré y me miró – Es a las diez... y no sé si
 estaré grabando o yo que sé...
-- Kiki tienes que ir – Me dijo – Habla seria con Lee SooMan,
+- Kiki tienes que ir – Me dijo – Habla seria con Lee Sooman,
 esas cosas no las puedes dejar a un lado... son importantes...
 - No sabes de que va – Le dije.
 302
 - Lo supongo – Me dijo.
 Y nos quedamos un momento en silencio hasta que
 aparecieron las otras dos. Les comenté lo del hospital y estuvieron
-de acuerdo con Hana. Bien, mi relación con Lee SooMan no era
+de acuerdo con Hana. Bien, mi relación con Lee Sooman no era
 perfecta y encima tenía que pedirle eso... me iba a colgar desde el
 puente, seguro. Fuimos en taxi a la SM, y al llegar nos vimos a Jane y
 a sus padres en la puerta hablando, nos acercamos y los saludamos.
@@ -79,7 +79,7 @@ acuerdo, te sustituiremos... ¿qué es eso que tienes que hacer?
 soy yo... y ahora no tengo ninguna. Muchas gracias...
 Saqué una carpeta con todos los papeles de los dos dramas
 y me despedí de ellos, luego busqué a las chicas y le dije que me iba.
-Justo cuando estaba saliendo por la puerta, Lee SooMan captó mi
+Justo cuando estaba saliendo por la puerta, Lee Sooman captó mi
 atención.
 - Voy al hospital – Le dije, nos miramos serios y el ambiente
 estaba un poco tenso – Tengo una cita urgente e importante – Me
@@ -89,7 +89,7 @@ dramas...
 suerte.
 - Gracias... - Y vi cómo se alejaba.
 Me quedé un poco extrañada por su actitud, lo que bien
-había aprendido de Lee SooMan era que era un hombre
+había aprendido de Lee Sooman era que era un hombre
 impredecible... nunca sabía por dónde iba a salir. Cogí un taxi y me
 fui sola, ya con la seguridad de que nada me iba a pasar... todo lo
 malo había pasado siendo olvidado, y ahora solo reinaba la
@@ -295,7 +295,7 @@ miré mal.
 - Ya vale... - Miré a Dongsea - ¿Y cómo va el otro chico?
 - ¿JaeMin? - Asentí – Va muy bien... la verdad, han
 terminado con el rodaje. Está escribiendo un informe para Lee
-SooMan.
+Sooman.
 - Oh, perfecto – Alcé un puño - ¿Y este rodaje?
 - Va muy bien – Alzó un pulgar – Hemos rodado algunas
 escenas y nos han salido estupendas. También me han dicho que el
@@ -312,21 +312,21 @@ Mejor televisarlo una o dos veces a la semana...
 ver días que pueda tener más audiencia...
 310
 - Bueno, podemos tener una reunión con los directivos de la
-SBS y con Lee SooMan, a ver qué opinan, no solo nosotros podemos
+SBS y con Lee Sooman, a ver qué opinan, no solo nosotros podemos
 decidirlo – Se pasó la mano por la barbilla.
 - Vayamos a verlo...
 - ¡María! - Uno de los tantos técnicos que habían por ahí
 captó mi atención – Te necesitamos en escena... es algo urgente...
 siento interrumpir.
 - Ah, bueno, no pasa nada – Sonreí y miré a Dongsea – Dile
-todo esto a Lee SooMan, yo me atendré a mi deber... - Reí, al igual
+todo esto a Lee Sooman, yo me atendré a mi deber... - Reí, al igual
 que él – Avísame si algo ocurriese.
 - No te preocupes, déjalo todo en mis manos – Me guiñó un
 ojo.
 - Vale – Y me fui hacia donde me llamaban.
 Al llegar allí los vi a todos los que salían en las primeras
 escenas, extras y todo lo demás. Aquel escenario que estábamos era
-una recreación de la habitación de Mika y Elena. Era tan
+una recreación de la habitación de Alicia y Elena. Era tan
 divertido.
 - Bueno, aquí llego – Me planté delante de todos.
 - ¿No te vas a arreglar, maquillar? - Elena me miró de

@@ -343,7 +343,7 @@ su voz y Junsu rió - ¿Junsu?
 Quiero presentarte... a mi novia.
 - ¿Tu novia...? - Me señalo boquiabierta.
 Sí, con suerte, era su novia... le gustara a ella o no.
-Sinceramente ya había pasado el huracán Lee SooMan, huracán
+Sinceramente ya había pasado el huracán Lee Sooman, huracán
 prensa y el huracán apuñalada, el que me dejo un mal sabor de boca 
 323
 al recordarlo. Nos miramos serias durante un instante y se puso en

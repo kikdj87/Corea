@@ -121,7 +121,7 @@ pero llegan a ser pesadas hasta un punto y abusan de su... “caridad”.
 hablamos de... - Dio una vuelta con los ojos por toda la habitación y
 miro a alguien – De ti.
 - ¿De mí? - R se señaló sorprendida - ¿Que hablasteis?
-Mi móvil interrumpió la conversación. Y era Lee SooMan el
+Mi móvil interrumpió la conversación. Y era Lee Sooman el
 que estaba al otro lado y el que exigía nuestra presencia en la SM de
 inmediato, tenía que decirnos algo. Así que, conforme íbamos,
 cogimos el autobús y nos marchamos a la SM sin volver a tocar ese
@@ -146,7 +146,7 @@ trabajo para ti.
 Miró a quienes tenía a su espalda y de nuevo me miró a mí –
 Tendrás hasta el día del estreno del drama para pensarlo, ¿de
 acuerdo?
-- S-sí, señor SooMan – Tragué saliva con miedo.
+- S-sí, señor Sooman – Tragué saliva con miedo.
 - Verás... se trata de...
 Me había encerrado en mi despacho después de decir a las
 chicas que se fueran a ensayar el rodaje y a grabar algunas escenas,
@@ -158,7 +158,7 @@ escrito una carta de... ¿despedida? Me eché sobre la mesa y me
 pasé la mano por la cara. Si negaba esa oferta, mi carrera se
 hundiría, pero si la aceptaba... tal vez apenas podría ver a Junsu y a
 los demás.
-“- Verás... se trata de la Rhythm Zone – Dijo Lee SooMan –
+“- Verás... se trata de la Rhythm Zone – Dijo Lee Sooman –
 Una discográfica Japonesa, donde los DBSK participan...
 - Si, la conozco – Le respondí sin saber a dónde quería llegar.
 - Bien, ellos quieren abrir sus puertas en Europa y Estados
@@ -174,7 +174,7 @@ Europa...
 sería para ya, requiere su tiempo...
 - Principalmente – Comenzó a decir un hombre en japonés –
 Tenemos dos grupos con vistas en Europa: Exile y Tohoshinki...
-- Bueno, bueno – Lee SooMan lo cortó – Ya veremos... con
+- Bueno, bueno – Lee Sooman lo cortó – Ya veremos... con
 quien vas – Aquello me supo muy mal – Te lo piensas... y nos dices...
 - Señor... - Los miré a los dos – Me gustaría saber con quién
 iré antes de aceptarlo...

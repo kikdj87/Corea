@@ -62,7 +62,7 @@ algo fría, pero no importaba, yo me moría de sueño.
 Ahora sí, cuando el sol dio en la ventana y los insistentes
 sonidos en mi móvil no pararon, yo me desperté. Cogí el móvil y
 contesté.
-- ¿María? - Era Lee SooMan – Os quiero a Elena y a ti en
+- ¿María? - Era Lee Sooman – Os quiero a Elena y a ti en
 la SM en media hora... hemos pensado en algo
 - Hoy es domingo... - Estaba tan cansada que no razonaba 
 271
@@ -70,7 +70,7 @@ con quien hablaba.
 - María... - Dijo una sola vez – En media hora... trataremos
 de algo importante.
 - Vale... allí estaremos... - Colgué y me estiré – Oh, mierda –
-Reaccioné – Era Lee SooMan... y le he colgado... - Di varios
+Reaccioné – Era Lee Sooman... y le he colgado... - Di varios
 cabezazos contra la almohada y me puse en pie - ¡¡¡Elena!!! -
 Comencé a gritar - ¡¡Vamos dormijosa, Elena!! ... ¡Ah!, buenos
 días Hana – Sonreí al verla tomando un café mientras miraba la
@@ -90,7 +90,7 @@ de Elena, quién dormía sin saber lo que le esperaba conmigo... -
 me miró embobada.
 - ¿Por qué gritas? - Estampó la cara contra la almohada –
 Necesito dormir...
-- No será hoy – Comencé a moverla – Lee SooMan ha
+- No será hoy – Comencé a moverla – Lee Sooman ha
 llamado, en menos de media hora tenemos que estar listas para
 estar allí...
 - Hoy es domingo Kiki... - Bostezó - ¿Para qué nos quiere?
@@ -107,7 +107,7 @@ Kiki... si a ti te echan, yo también voy a la calle... ale, deja que me
 cambie tranquila...
 Salí de su habitación directa a la mía. Tenía veinte minutos
 para estar listas, desayunadas y estar en la SM para saber qué quería
-Lee SooMan un domingo tan... perfecto para dormir como era ese.
+Lee Sooman un domingo tan... perfecto para dormir como era ese.
 Cuando salí de la habitación quedaban quince minutos.
 - ¿A dónde vais con tanta prisa? - Preguntó Hana y se lo
 conté – Vaya... ¿Y yo no? - Se señaló – Esto es racismo... Es porque
@@ -124,7 +124,7 @@ Tenemos que ir en coche...
 - ... - Puse un puchero con horror y me resigné – Ok,
 vayamos en coche...
 Era la primera vez que iba a la SM en coche y estaba algo
-nerviosa, ya no solo por eso, sino por el hecho de que Lee SooMan
+nerviosa, ya no solo por eso, sino por el hecho de que Lee Sooman
 nos estaba esperando en menos de diez minutos un domingo y
 quería decirnos algo muy importante. Y no fue nada más al llegar
 que le di un roce al coche al intentar meterlo en la cochera de la SM.
@@ -153,12 +153,12 @@ pasado media hora.
 - ¡¡Mierda!!
 Fui corriendo hacia el ascensor y apreté el botón cero, que
 era donde estaba recepción. El ascensor se detuvo y nosotras
-salimos, nos encontramos a Lee SooMan con unos hombres
+salimos, nos encontramos a Lee Sooman con unos hombres
 trajeados, entre ellos estaba Rain y Tony An. De pronto todas las
 miradas iban hacia nosotras, hasta noté que Elena se arrinconó
 detrás de mí y vi en sus ojos que toda la fortaleza que tenían se
 había ido al traste al ver que todos esos hombres nos miraban.
-- Vaya María – Sonrió Lee SooMan – Te esperaba por la
+- Vaya María – Sonrió Lee Sooman – Te esperaba por la
 puerta principal... ¿Qué tal estás?
 - Bi-bien – Sonreí con miedo, ya no sabía qué esperar de
 ellos - ¿Qué es eso... importante?
@@ -175,7 +175,7 @@ es el presidente de la YG Company.
 - Oh... - Hice una reverencia – Encantada.
 - Igualmente – Él también la hizo.
 - Bien, ya podemos hablar del resumen que haremos...
-Todos seguimos a Lee SooMan hacia el ascensor, pero no era
+Todos seguimos a Lee Sooman hacia el ascensor, pero no era
 lo suficientemente grande para que entráramos todos, así que yo
 me ofrecí para ir por las escaleras, a lo que Elena se sumó.
 - Pero que bien le sienta a Rain el traje de chaqueta Kiki –
@@ -210,7 +210,7 @@ y yo confiamos en vosotras.
 Tranquilamente hablábamos sobre varias cosas, y él nos
 contó los proyectos que tenía en USA para el año próximo. Y sin
 darnos cuenta, ya habíamos llegado a la planta del despacho de Lee
-SooMan... bueno, mis pulmones lo notaron, pero era de los puros
+Sooman... bueno, mis pulmones lo notaron, pero era de los puros
 nervios que tenía.
 - Vaya JiHoon, así que subiste con ellas – Rió SeunHo.
 Dos o tres risas más y entramos al despacho, donde me
@@ -219,14 +219,14 @@ me contuve. Los DBSK estaban charlando amenamente sentados en
 unas sillas junto a Kim Dongsea, R, Super Junior y el resto de
 personas que salían en el drama. Todos se voltearon y nos miraron,
 vi en el rostro de Junsu la misma sonrisa que a mí me salió y nos
-sonrojamos. Lee SooMan captó la atención de todos y me senté en
+sonrojamos. Lee Sooman captó la atención de todos y me senté en
 el primer hueco que pillé, junto a Elena, justo al lado de Sungmin,
 quien me miró con una sonrisa agradable. Y entonces pensé, nunca
 había intercambiado palabra con Sungmin... estaba algo cortada por
 ello, pero él tampoco había dado de su parte para poder charlar...
 - ¡María! - Alcé la cabeza y toda la sala me miraba. Vi que
 Junsu se reía por lo bajo, al igual que Heechul, que al percatarse de
-eso ambos, se miraron con mala cara. Lee SooMan tosió - ¿Te has
+eso ambos, se miraron con mala cara. Lee Sooman tosió - ¿Te has
 enterado?
 - ¿Podría repetir, por favor? - Agaché la cabeza sonrojada.
 - Tienes que estar más atenta – Bufó – Lo que te estaba
@@ -236,7 +236,7 @@ avance en la SBS, y aunque aún quede un tiempo, necesitamos el
 avance, como bien sabéis... Los DBSK, Super Junior...
 - Eh... - Alguien abrió la puerta – Ya está aquí la otra chica.
 - Hola... - Hana, sonrojada, se dejó ver con una sonrisa.
-- No te sientes – Dijo Lee SooMan – Elena, R y los demás
+- No te sientes – Dijo Lee Sooman – Elena, R y los demás
 integrantes, iros con ella, y una chica que hay fuera, os llevará al
 estudio para prepararos.
 - ¿Y yo? - Me señalé.
@@ -268,7 +268,7 @@ diseñador de imágenes por ordenador estupendo que me prometió
 que metería las imágenes de Jane en cuanto las tuviera y que no se
 notaría la aplicación. Lo abracé y, en justo una hora, salíamos del
 despacho para ir a la sala de ensayos.
-Entonces fuimos allí, donde vimos a Lee SooMan hablando
+Entonces fuimos allí, donde vimos a Lee Sooman hablando
 con un hombre, lo interrumpí de buena manera y le comenté que ya
 estaba todo listo. Él me dijo que los lugares de rodaje estaban listos,
 y que empezaríamos en breves... para mi sorpresa, alguien me
@@ -282,7 +282,7 @@ y vi a su espalda dos figuras paternales con brazos cruzados – Ah,
 hola – Los saludé - ¿Qué tal el viaje?
 - Bien, cansado pero bien... - Respondió su madre.
 - Así que mi hija será actriz... - Dijo su padre.
-- Yo me encargo de ellos – Dijo Lee SooMan en un español
+- Yo me encargo de ellos – Dijo Lee Sooman en un español
 perfecto. Yo me sorprendí – He estado aprendiendo en estos
 meses...
 - Vaya... - Vi como se alejaba con los padres de Jane y yo me
@@ -296,7 +296,7 @@ poco con Jane, después de todo, ella había pasado por un mal
 momento y tenía que superarlo... y lo haría con nuestra ayuda.
 Enseguida empezamos con el rodaje del tráiler.
 La primera escena fue una de las mejores. Elena, Jane...
-en su caso Mika y yo caminando por los pasillos de la escuela,
+en su caso Alicia y yo caminando por los pasillos de la escuela,
 vestidas para la ocasión, como bien empieza la historia en sí... Y el
 resto, se puede imaginar... ese día fue agotador. Agotador pero
 totalmente completo.
@@ -439,7 +439,7 @@ me acurruqué en él – Te echo de menos.
 - Y yo – Acarició mi pelo – Y tenía pensado invitarte a cenar...
 ir los dos solos, pero no puedo...
 - ¿Te vas con ella? - Puse un puchero y él rió.
-- No, me vuelvo a Japón – Resopló triste – Mira, Lee SooMan
+- No, me vuelvo a Japón – Resopló triste – Mira, Lee Sooman
 no ha dicho literalmente que lo dejemos, y al principio no le dio
 importancia porque creo que hasta no lo sabía... pero se ha
 enterado y no quiere que estemos juntos...
@@ -456,7 +456,7 @@ verdad?
 podemos tener relaciones entre los empleados...
 - Bu-bueno, yo la conocí de antes de que entrara a la SM –
 Dijo él nervioso y me soltó, yo lo miré con preocupación.
-- ¿Lee SooMan lo sabe? - Giró la cabeza como una perra... lo
+- ¿Lee Sooman lo sabe? - Giró la cabeza como una perra... lo
 que era.
 - Si – Al fin dije yo.
 - ¿Y no se opone? - Manita en la boca, como una niñita
@@ -506,10 +506,10 @@ atención y me miró - ¡¡No lo hemos dejado!!
 Me miró con una mirada de enfado y dio media vuelta, cogió
 a YoonA de la mano y salieron del estudio. Las chicas y yo reímos un
 par de veces y alguien me tocó el hombro. Me giré.
-- María – Lee SooMan estaba tras de mi con un cd en la
+- María – Lee Sooman estaba tras de mi con un cd en la
 mano – Ha sido un día muy bien aprovechado, aquí tienes una copia
 del tráiler – Lo cogí – Enhorabuena, eres una persona muy efectiva...
-- Gracias señor SooMan – Me incliné.
+- Gracias señor Sooman – Me incliné.
 - A ti...
 Dicho esto se marchó. Yo, con el cd en la mano, grité y
 abracé a las chicas, quienes saltamos de la alegría y llenas de

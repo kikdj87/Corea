@@ -28,7 +28,7 @@ Caso omiso... seguí durmiendo sin saber qué hacían él y los demás. Me acurr
 
 --- Tranquila... --- Me tranquilizó --- No pasa nada, no tienes un jefe quien pueda echarte la bronca ---Rió.
 
---- ¿Y Lee SooMan quién es? --- Dije muy nerviosa.
+--- ¿Y Lee Sooman quién es? --- Dije muy nerviosa.
 
 --- Bueno, no creo que se moleste contigo --- Me tranquilizó --- Aunque se molestaría si no vienes a la reunión que tenemos dentro de media hora.
 

@@ -4,7 +4,7 @@ Y tanto que tiempo al tiempo... me tiré más de un mes de vacaciones por culpa 
 
 En ese mes pude arreglar muchas cosas del drama que no me gustaba y solucioné muchos problemas con los juicios y con la prensa... Ah, también con las Cassiopeia malditas... la cosa se calmó bastante y enseguida me llegó la llamada que tanto esperaba.
 
---- María --- Lee SooMan estaba al otro lado del altavoz --- Mañana me gustaría que te pasaras por aquí y charlamos sobre todo lo ocurrido.
+--- María --- Lee Sooman estaba al otro lado del altavoz --- Mañana me gustaría que te pasaras por aquí y charlamos sobre todo lo ocurrido.
 
 --- De acuerdo --- Dije seria mientras me comía un donuts --- ¿A qué hora quiere que vaya?
 
@@ -16,7 +16,7 @@ Entre risas, abrazos y cachondeos, celebramos mi futura vuelta al trabajo. Lleg�
 
 --- ¿Cómo has conseguido la dirección? --- Pregunté sorprendida en la puerta.
 
---- Uff... --- Suspiró y se pasó la mano por el pelo --- Se lo pedí a Lee SooMan... ¿te ha molestado? --- Preguntó.
+--- Uff... --- Suspiró y se pasó la mano por el pelo --- Se lo pedí a Lee Sooman... ¿te ha molestado? --- Preguntó.
 
 --- No, para nada... pasa... --- Le invité a pasar.
 
@@ -134,7 +134,7 @@ Heechul enseguida se marchó y le rogué que no le dijera a nadie donde vivía, 
 
 --- ¿Un gran día? --- Me hice la loca --- ¿De qué?
 
---- Lee SooMan nos dijo algo --- Sonrió y yo me desilusioné un poco, pero lo entendía, yo no se lo había dicho a nadie... y menos a él --- Y bueno, la fiesta organizada por Jane y Heechul.
+--- Lee Sooman nos dijo algo --- Sonrió y yo me desilusioné un poco, pero lo entendía, yo no se lo había dicho a nadie... y menos a él --- Y bueno, la fiesta organizada por Jane y Heechul.
 
 --- Ah... si --- Asentí --- ¿Qué tal con las chicas?
 
@@ -195,7 +195,7 @@ Colgó y yo me eché en la cama muy sonrojada, nerviosa y... ante todo feliz. De
 
 --- Hay madre cuantas cosas tienes que contarme... --- Dijo junto a una cara de risa.
 
-Hablamos de todo. Le conté que estaba saliendo con Junsu, aunque no le pilló muy de sorpresa, ya se rumoreaba que Junsu tenía una novia, y que no era coreana precisamente. Le conté lo de las chicas y lo de mi ascenso, le conté también lo de mi mudanza y sin más detalles, dejé la cosa ahí. Pronto me despedí para ir a dormir, ya que a la mañana siguiente madrugaba para ir a hablar con Lee SooMan.
+Hablamos de todo. Le conté que estaba saliendo con Junsu, aunque no le pilló muy de sorpresa, ya se rumoreaba que Junsu tenía una novia, y que no era coreana precisamente. Le conté lo de las chicas y lo de mi ascenso, le conté también lo de mi mudanza y sin más detalles, dejé la cosa ahí. Pronto me despedí para ir a dormir, ya que a la mañana siguiente madrugaba para ir a hablar con Lee Sooman.
 
 --- Kiki --- Jane entró sonriente --- ¿Me dejas el portátil? Necesito hablar con mis padres.
 
@@ -221,7 +221,7 @@ A la mañana siguiente me costó despertarme, pero lo hice algo animada, ya que 
 
 --- No, no, no --- Negó con el dedo --- Nada de bus hasta que no pase más tiempo... aún hay fans locas.
 
-Eso último lo dijo entre carcajadas y no pude evitar reírme yo también. Y nos fuimos con el chófer hacia la SM, sinceramente me sentía algo extraña, pero era lo que había. Cuando llegamos, nuestros caminos se separaron, las chicas fueron por un lado y yo fui por otro, la verdad sea dicha, no tenía ni idea de cuál era el trabajo de las chicas allí, pero veía que estaban muy bien aceptadas. Caminé despacio hasta llegar a mi despacho, me acerqué a la puerta y no hacía falta abrirla, pues ya estaba abierta. Y Lee SooMan estaba dentro.
+Eso último lo dijo entre carcajadas y no pude evitar reírme yo también. Y nos fuimos con el chófer hacia la SM, sinceramente me sentía algo extraña, pero era lo que había. Cuando llegamos, nuestros caminos se separaron, las chicas fueron por un lado y yo fui por otro, la verdad sea dicha, no tenía ni idea de cuál era el trabajo de las chicas allí, pero veía que estaban muy bien aceptadas. Caminé despacio hasta llegar a mi despacho, me acerqué a la puerta y no hacía falta abrirla, pues ya estaba abierta. Y Lee Sooman estaba dentro.
 
 --- Hola María --- Sonrió poniéndose en pie, ya que estaba sentado en mi silla --- ¿Estás ya mejor?
 
@@ -251,7 +251,7 @@ trabajes aquí y hagas lo que haces.
 
 --- Se acabaron las vacaciones jovencita --- Alzó un dedo --- Empieza el trabajo puro y duro. Espero que puedas dar lo mejor de ti y tu expediente quede impecable dentro de unas semanas.
 
---- Muchas gracias señor SooMan --- Me incliné más que agradecida.
+--- Muchas gracias señor Sooman --- Me incliné más que agradecida.
 
 --- No hace falta que las des --- Me estrechó la mano --- Ahora a trabajar --- Sonrió --- En dos horas empezará el rodaje. Las demás chicas están también como tú, en el punto de mira. Ya están
 preparadas y saben lo que le espera. Confío en vosotras.
@@ -361,14 +361,14 @@ para ti de parte de todos los SuJu.
 
 --- No está mal... --- Me encogí de hombros --- Pero no soy famosa... no merezco esto...
 
---- Jajajajaja --- Comenzó a reírse y me sentí extraña. ¿De qué se reía? --- No digas tonterías... eres famosa. Hay algo que Lee SooMan no te ha dicho... ¡ah! Ahí está --- Lo señaló. Estaba hablando con las cámaras --- Ve a hablar con él...
+--- Jajajajaja --- Comenzó a reírse y me sentí extraña. ¿De qué se reía? --- No digas tonterías... eres famosa. Hay algo que Lee Sooman no te ha dicho... ¡ah! Ahí está --- Lo señaló. Estaba hablando con las cámaras --- Ve a hablar con él...
 
---- Pero está ocupado --- Lo miré y luego miré a Lee SooMan.
+--- Pero está ocupado --- Lo miré y luego miré a Lee Sooman.
 
 --- No lo está --- Sonrió y me dio un empujón.
 
-Caminé lentamente hacia donde estaba Lee SooMan llena de miedo. ¿Algo que no me había dicho? Maldita sea, odiaba muchísimo esas incógnitas.
+Caminé lentamente hacia donde estaba Lee Sooman llena de miedo. ¿Algo que no me había dicho? Maldita sea, odiaba muchísimo esas incógnitas.
 
 --- ¡Ah! María --- Alargó la mano y me tomó del brazo mientras miraba a las cámaras.
 
-Lo que vino a continuación fue sencillo, hablamos sobre la promoción del drama y se presentó al público. Se habló de los personajes y de esas cosas. Hablamos de mí y de mi carrera artística. Un periodista hizo una pregunta comprometedora que Lee SooMan supo responder diciéndole gilipollas de la manera más sofisticada que en la vida había escuchado.
+Lo que vino a continuación fue sencillo, hablamos sobre la promoción del drama y se presentó al público. Se habló de los personajes y de esas cosas. Hablamos de mí y de mi carrera artística. Un periodista hizo una pregunta comprometedora que Lee Sooman supo responder diciéndole gilipollas de la manera más sofisticada que en la vida había escuchado.
