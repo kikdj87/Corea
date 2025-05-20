@@ -311,7 +311,7 @@ fin, y que parecía que él no la ignoraba mucho... y a ella se la veía
 tan feliz a su lado. Pero la cara de Elena era un auténtico poema.
 Estaba sentada en una silla, de brazos y piernas cruzadas, mirando a 
 278
-Donghae y quedándose dormida en la silla. De pronto KangIn se
+Donghae y quedándose dormida en la silla. De pronto Kangin se
 puso a su lado, la movió y ella se espabiló sonrojada. La pobre...
 había dormido tan poco...
 Y Hana hablaba con Yoochun y Boa con grandes risas, se

@@ -359,7 +359,7 @@ Bueno, aquella vuelta fue de lo más entretenida, hablamos, jugamos a juegos est
 
 --- Oye... --- Lo miré pensativa y me miró --- ¿Qué opinan los demás chicos de Super Junior de nosotras?
 
---- ¿Los otros? --- Preguntó sorprendido y yo asentí. Se quedó pensativo --- Bueno, algunos están felices... dígase de KangIn, hombre contento cuando hay mujeres. Y otros pasan un poco, como Sungmin, KyuHyun y RyeoWook...
+--- ¿Los otros? --- Preguntó sorprendido y yo asentí. Se quedó pensativo --- Bueno, algunos están felices... dígase de Kangin, hombre contento cuando hay mujeres. Y otros pasan un poco, como Sungmin, KyuHyun y RyeoWook...
 
 --- ¿Y los demás?
 

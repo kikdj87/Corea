@@ -227,7 +227,7 @@ Después de estar unas horas con el maldito guión, mi tripa comenzó a pedirme 
 
 --- Vaya, disculpa...
 
---- No te preocupes --- Al levantar la cabeza me fijé en que era uno de los Super Junior, KangIn --- Yo también iba algo despistado.
+--- No te preocupes --- Al levantar la cabeza me fijé en que era uno de los Super Junior, Kangin --- Yo también iba algo despistado.
 
 --- A estas horas solo se piensa en la comida --- Afirmé.
 
@@ -259,7 +259,7 @@ Después de estar unas horas con el maldito guión, mi tripa comenzó a pedirme 
 
 --- Que sí, que si --- Insistí mientras llamaba al camarero --- Que iré... al próximo que haya...
 
-Me miró no muy convencido y comencé a reírme. La verdad es que KangIn era muy divertido, tenía que profundizar más con los Super Junior, podía sacar cosas buenas de ellos. Enseguida pedimos algo para almorzar y seguimos hablando de muchas cosas sobre ambos... y ya, como no, sobre el drama.
+Me miró no muy convencido y comencé a reírme. La verdad es que Kangin era muy divertido, tenía que profundizar más con los Super Junior, podía sacar cosas buenas de ellos. Enseguida pedimos algo para almorzar y seguimos hablando de muchas cosas sobre ambos... y ya, como no, sobre el drama.
 
 --- Oye... me leí el guión --- De pronto se puso algo nervioso mientras lo veía con su zumo en la mano --- Y... ¿es cierto que me acuesto con una de las chicas?
 
@@ -288,7 +288,7 @@ así...
 
 --- Kiki --- De pronto apareció Elena y Hana. La segunda hablaba por teléfono --- Jane se ha puesto muy mal... Creo que... le está afectando en serio.
 
---- Normal --- Miré a KangIn --- Bueno, ya hablamos... Hasta luego.
+--- Normal --- Miré a Kangin --- Bueno, ya hablamos... Hasta luego.
 
 --- Si, hasta luego --- Se despidió.
 

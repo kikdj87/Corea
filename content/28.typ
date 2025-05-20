@@ -155,7 +155,7 @@ Junsu.
 voy más allá con Junsu, sé que está contigo.
 La mire de reojo y volví al rodaje. Ya me hacía que pensar su
 actitud tan amable, cariñosa y simpática. Volví la vista atrás y la vi
-mientras hablaba con KangIn como si nada. TaeYeon... esa chica era
+mientras hablaba con Kangin como si nada. TaeYeon... esa chica era
 muy rara. El almuerzo fue muy bien, aunque se echaba de menos a
 muchos de los compañeros que ya no saldrían más en el drama,
 como por ejemplo Se7en o Boa.
@@ -221,7 +221,7 @@ frío. Suspire vencida y me monte en la furgoneta abrigándome
 mucho.
 Llegamos al piso y estuvimos hablando de miles de cosas.
 Como por ejemplo, que había sentido Elena con respecto a
-cuándo su personaje se acostaba con KangIn.
+cuándo su personaje se acostaba con Kangin.
 - Bueno... - Se sonrojo – No sé qué pasara cuando esto salga
 a la luz, la verdad – Se acarició la mejilla desviando la mirada –
 Aunque en realidad se deja ver que va a pasar eso, pero nosotros no

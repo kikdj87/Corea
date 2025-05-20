@@ -2,408 +2,416 @@
 
 Cuando sonó el despertador no me moví de la cama, por mucha rabia que me diera que estuviera sonando. No me encontraba bien, no quería salir de la cama. Elena se movió a mi lado, pero antes de que saliera, unos pasos entraron y lo apagaron a lo bestia.
 
---- ¡Kiki! --- Dijo Hana malhumorada --- Voy a reventar tu teléfono... --- No contesté, no quería. ¿Por qué me sentía tan mal? Tal vez era al recordar por qué no podía salir con Junsu y en como él llevaba la situación sin saber nada. Hana me movió --- Kiki, ¿estás bien?
+---¡Kiki! ---dijo Hana malhumorada --- Voy a destrozar tu teléfono ---no contesté, no quería. ¿Por qué me sentía tan mal? Tal vez era al recordar por qué no podía salir con Junsu y en como él llevaba la situación sin saber nada. Hana me movió --- Kiki, ¿estás bien?
 
---- ... --- Negué moviendo la cabeza.
+---No... ---negué moviendo la cabeza, hablando en un hilo de voz.
 
---- Mírame --- Me obligó a que la mirase y se sorprendió al verme. Me puso la mano en la frente --- Elena, tiene fiebre --- La miró.
+---Mírame ---me obligó a que la mirase agarrando mis brazos y se sorprendió al verme. Me puso la mano en la frente --- Elena, tiene fiebre --la miró.
 
---- ¿Qué pasa? --- R y Jane entraron a la habitación con sueño.
+---¿Qué pasa? ---R y Jane entraron a la habitación con sueño.
 
---- Kiki --- Hana se volvió --- Tiene fiebre... aparte de una cara de no haber dormido en toda la noche...
+---Kiki ---Hana se volvió --- Tiene fiebre, aparte de una cara de no haber dormido en toda la noche.
 
---- ... --- Tosí un par de veces y suspiré profundamente. Me incorporé desganada --- Pero tengo que ir... hoy es la reunión...
+---No dormí ---tosí un par de veces y suspiré profundamente. Me incorporé desganada --- Pero tengo que ir, hoy es la reunión.
 
---- Si Junsu te ve con esa cara huye --- Rió Elena por lo bajo.
+---Si Junsu te ve con esa cara huye ---rió Elena por lo bajo.
 
---- Ja, ja, ja --- Reí irónicamente. Me levanté de la cama, pero Hana me empujó hasta hacerme volver a caer. La miré sorprendida --- ¿Qué haces?
+---Muy graciosa ---reí irónicamente. Me levanté de la cama, pero Hana me empujó hasta hacerme volver a caer. La miré sorprendida --- ¿Qué haces?
 
---- No puedes ir al trabajo por varias razones --- Alzó un dedo --- Una: tienes fiebre. Dos: tienes los ojos rojos e hinchados. Tres: ¡estás mala! --- Dijo cruzándose de brazos --- Lee Sooman lo entenderá, ya lo verás...
+---No puedes ir al trabajo por varias razones ---alzó un dedo --- Una: tienes fiebre. Dos: tienes los ojos rojos e hinchados. Tres: ¡estás mala! ---dijo cruzándose de brazos --- Lee Sooman lo entenderá, ya lo verás.
 
---- No puedo faltar --- Dije --- Ya falté una semana cuando entré por resfriarme --- Puse pucheros --- Y la reunión de hoy es muy importante...
+---No puedo faltar ---dije entre quejidos --- Ya falté una semana cuando entré por resfriarme. Y la reunión de hoy es muy importante.
 
---- ... --- Todas se miraron muy pensativas. R alzó un dedo sonriente --- Tenemos dos opciones, o la aplazamos para cuando estés bien, o la tenemos aquí.
+Todas se miraron muy pensativas. R alzó un dedo sonriente.
 
---- ... --- Abrí mucho la boca, dejando ver lo alucinada que estaba con su comentario --- Aquí no pienso meterlos a todos, ¡son muchísima gente! --- Señalé --- No habéis visto ni a la mitad.
+---Tenemos dos opciones, o la aplazamos para cuando estés bien, o la tenemos aquí.
 
---- Ya --- Hana me miró seria --- Pero tú estás mala... no te irás.
+---No ---abrí mucho la boca, dejando ver lo alucinada que estaba con su comentario --- Aquí no pienso meterlos a todos, ¡son muchísima gente! ---señalé --- No habéis visto ni a la mitad.
 
-Me enfadé muchísimo, tanto, que me volví a echar en la cama tapándome con las sábanas hasta la cabeza. Resoplé maldiciendo tres o cuatro veces hasta que sentí que estaba sola en la habitación con la puerta cerrada. Solo faltaría que pusieran un cartel de “cuarentena” y todo solucionado.
+---Ya ---Hana me miró seria --- Pero tú estás mala, no te irás.
 
---- Kiki --- Jane se asomó --- Nosotras nos vamos... --- No sé si esperaba respuesta, pero yo no se la di --- Ya... nos vemos... sentimos dejarte sola --- Bufé --- Bueno... hasta luego Kikita...
+Me enfadé muchísimo, tanto, que me volví a echar en la cama tapándome con las sábanas hasta la cabeza. Resoplé maldiciendo tres o cuatro veces hasta que sentí que estaba sola en la habitación con la puerta cerrada. Solo faltaría que pusieran un cartel de "cuarentena" y todo solucionado.
 
-Dejé pasar unos minutos, hasta que supuse que ya se habían marchado. Salí de la cama con rapidez y asomé la cabeza por la puerta. Bingo, estaba sola. Salí y comencé a dar vueltas. El piso estaba hecho un desastre desde que las chicas habían llegado. Y no era porque ellas fueran desastradas, sino que habían maletas abiertas, ropa por el suelo, zapatos y miles de cosas más... aparte de las camas desechas.
+---Kiki ---al cabo de un rato Jane se asomó --- Nosotras nos vamos ---no sé si esperaba respuesta, pero yo no se la di --- Ya nos vemos, sentimos dejarte sola ---bufé molesta como respuesta --- Bueno, hasta luego Kikita.
 
-Me acerqué a mi apreciado portátil, que estaba bajo un montón de ropa y me puse a escribirles un mail a mis padres, ya que desde que habían llegado las chicas, no les había dicho nada de cómo me estaba yendo. Pues después de enviarles aquel mail, miré mi piso algo triste y comencé a recogerlo... A pesar de no tener ganas para nada, de querer tumbarme en la cama y desparecer del planeta, no me fiaba ni de Junsu ni de cualquier otro cuando las chicas le dijeran que yo estaba resfriada... fijo que alguno caía por casa.
+Dejé pasar unos minutos, hasta que supuse que ya se habían marchado. Salí de la cama con rapidez y asomé la cabeza por la puerta. Bingo, estaba sola. Salí y comencé a dar vueltas. El piso estaba hecho un desastre desde que las chicas habían llegado. Y no era porque ellas fueran desastradas, sino que habían maletas abiertas, ropa por el suelo, zapatos y miles de cosas más. Aparte de las camas desechas.
 
-Mientras ponía un poco de orden pensaba en la cena en casa de los chicos y en mi conversación con Junsu. Realmente él estaba celoso de Yoochun, pero veía como la amistad se podía hacer más importante que cualquier otra cosa... Intenté mentalizarme, pensar en que podía salir con Junsu sin causar daño a nadie, mucho menos daño a mí misma... Tanto me mentalicé en lo ocurrido, que hasta yo misma creía que lo había solucionado.
+Me acerqué a mi apreciado portátil, que estaba bajo un montón de ropa, y me puse a escribirle a mis padres. Desde que habían llegado las chicas, no les había dicho nada de cómo me estaba yendo. Pues después de enviarles un buen mensaje --en España era de madrugada--, miré mi piso algo triste y comencé a recogerlo. A pesar de no tener ganas para nada, de querer tumbarme en la cama y desparecer del planeta, no me fiaba ni de Junsu ni de cualquier otro cuando las chicas le dijeran que yo estaba resfriada, fijo que alguno caía por casa.
 
-Tranquilamente y sin follones, me metí en la ducha y tuve el día más tranquilo en mucho tiempo. Sobre el medio día, estaba tumbada en mi cama mientras navegaba por Internet sin hacer mucho cuando mi móvil comenzó a sonar. Extrañada, fui hacia él.
+Mientras ponía un poco de orden pensaba en la cena en casa de los chicos y en mi conversación con Junsu. Realmente él estaba celoso por la manera en la que yo miraba a Yoochun, pero veía como la amistad entre ellos era más importante que cualquier otra cosa. Intenté mentalizarme, pensar en que podía salir con Junsu sin causar daño a nadie y mucho menos daño a mí misma. Tanto me mentalicé en lo ocurrido, que hasta yo misma creía que lo había solucionado.
 
---- ¿Diga? --- Contesté.
+Tranquilamente y sin follones, me metí en la ducha y tuve el día más tranquilo en varios días. Pasada la una, estaba tumbada en mi cama tratando de recuperarme, cuando mi móvil comenzó a sonar. Extrañada, fui hacia él.
 
---- María, soy Dongsea --- Dijo en tono preocupado --- ¿Cómo estás? Tus amigas me han dicho que estás con fiebre...
+---¿Diga? ---contesté.
 
---- ... --- Me lo esperaba de todos menos de él --- Bien, bien, gracias --- Dije muy agradecida --- Siento no poder ir...
+---María, soy Dongsea ---dijo en tono preocupado --- ¿Cómo estás? Tus amigas me han dicho que estás con fiebre.
 
---- No te preocupes --- Dijo con rapidez --- ¿Estas igual que el último resfriado?
+---Dongsea... ---me lo esperaba de todos menos de él --- Bien, gracias ---dije muy agradecida --- Siento no poder ir.
 
---- ... --- Y recordé que él era el único, a parte del médico, que sabía de verdad qué me había pasado --- No, no, quédate tranquilo --- Me quedé pensativa --- Se ve que anoche cogí frío o no sé... ¿Habéis tenido la reunión?
+---No te preocupes ---dijo con rapidez --- ¿Estas igual que el último resfriado?
 
---- No, la hemos aplazado para cuando vengas --- Dijo él --- Para cuando te encuentres mejor...
+---¿Cómo? ---y recordé que él era el único, a parte del médico, que sabía de verdad qué me había pasado --- No, no, quédate tranquilo ---me quedé pensativa --- Se ve que anoche cogí frío o no sé. ¿Habéis tenido la reunión?
 
---- Es decir, mañana...
+---No, la hemos aplazado para cuando vengas ---dijo él --- Para cuando te encuentres mejor.
 
---- Tomate tu tiempo...
+---Es decir mañana.
 
---- Mañana estaré bien --- Dije y él no dijo nada --- ¿Estaban todos hoy?
+---Tomate tu tiempo.
 
---- Si, hoy han llegado el resto de los Super Junior --- Asintió --- Y no sabes qué follonero puede llegar a ser Heechul.
+---Mañana estaré bien ---dije y él no dijo nada --- ¿Estaban todos hoy?
 
---- Jajaja --- Reí --- ¿Y eso? ¿Ha dicho algo?
+---Si, hoy han llegado el resto de los Super Junior ---asintió --- Y no sabes qué follonero puede llegar a ser Heechul.
 
---- ¿Que si ha dicho? --- Reía --- Ha estado a punto de presentarse en tu casa para ver cómo estabas...
+---Me lo imagino ---me eché a reí --- ¿Ha dicho algo?
 
---- Que bonico... --- Susurré sonriente.
+---¿Que si ha dicho? ---reía junto a mi --- Ha estado a punto de presentarse en tu casa para ver cómo estabas.
 
---- Si no hubiera sido por Yunho, ya lo tendrías allí --- Se calmó --- Bueno, también quería preguntarte algo sobre lo que te comenté ayer --- Hizo una pausa --- ¿Cuándo te vendría bien quedar conmigo?
+---Que bonico --- Susurré sonriente.
 
---- ... --- Me quedé pensativa --- ¿El sábado? --- Pregunté.
+---Si no hubiera sido por Yunho, ya lo tendrías allí ---se calmó --- Bueno, también quería preguntarte algo sobre lo que te comenté ayer ---hizo una pausa --- ¿Cuándo te vendría bien quedar conmigo?
 
---- Vale --- Asintió animado --- Bueno... mañana hablamos del sábado, ¿vale?
+---Pues... ---me quedé pensativa --- ¿El sábado? ---pregunté.
 
---- De acuerdo --- Dije extrañada a su repentino ánimo --- Hasta mañana...
+---Vale ---asintió animado --- Bueno, mañana hablamos del sábado, ¿vale?
 
---- Que te mejores...
+---De acuerdo ---dije extrañada a su repentino ánimo --- Hasta mañana.
 
-Colgué y miré el teléfono. Me pasé la mano por la frente, estaba ardiendo. ¿Aún tenía fiebre? Me eché sobre mi cama y me quedé dormida hasta que escuché el ruido de unas llaves y unas voces... ¿masculinas? Para qué decir nada, me miré la ropa... iba en pijama... me miré el pelo... iba sin peinar. Comencé a dar vueltas por mi habitación sin saber que hacer, porque no sabía si meterme en la cama o cambiarme, peinarme y salir a saludarlos... pero se suponía que estaba enferma.
+---Que te mejores.
 
-Me puse las manos en la cabeza sin saber qué hacer, pero unos pasos en dirección a la habitación me hicieron reaccionar. Llamaron a mi puerta y yo me tiré en plancha sobre la cama, me tapé y tosí un par de veces.
+Colgué y miré el teléfono. Me pasé la mano por la frente, estaba ardiendo. ¿Aún tenía fiebre? Me volví a echar en la cama y me quedé dormida hasta que escuché el ruido de unas llaves y unas voces... ¿masculinas? Para qué decir nada, me miré la ropa e iba en pijama. Me miré el pelo, iba sin peinar. Comencé a dar vueltas por mi habitación sin saber que hacer, porque no sabía si meterme en la cama o cambiarme, peinarme y salir a saludarlos. Pero recordé que estaba enferma.
 
---- ¡¡Pasa!! --- Grité.
+Me puse muy nerviosa sin saber qué hacer, pero unos pasos en dirección a la habitación me hicieron reaccionar. Llamaron a mi puerta y yo me tiré en plancha sobre la cama, me tapé y tosí un par de veces.
 
---- ... --- La linda sonrisa de Junsu se dejó ver seguido de Changmin y Yunho --- ¿Qué tal estás, enfermita?
+---Pasa ---dije tratando de calmar mi sofoco.
 
---- Bien, bien --- Sonreí --- ¿Y eso que habéis venido?
+---Hola ---la linda sonrisa de Junsu se dejó ver seguido de Changmin y Yunho --- ¿Qué tal estás, enfermita?
 
---- ... --- Las miradas fueron para Junsu, quien sonrió sonrojado. Yunho tomó la palabra --- Te hemos traído algo de...
+---Bien, bien ---sonreí y me incorporé un poco --- ¿Y eso que habéis venido?
 
---- Comida --- Concluyó Changmin sonriente --- Jae dice que te irán bien --- Dijo amablemente.
+Las miradas fueron para Junsu, quien sonrió sonrojado mientras se pasaba la mano por la nuca.
 
---- Gracias --- Me sorprendí a tanta cordialidad --- ¿Y los otros dos? --- Pregunté.
+---Te hemos traído algo de... ---comenzó a decir Yunho
 
---- No saben que hemos venido --- Junsu sonrió ampliamente.
+---Comida ---interrumpió Changmin sonriente --- Jae dice que te irán bien ---dijo amablemente.
 
---- Jae si --- Dijo Changmin.
+---Gracias ---me sorprendí a tanta cordialidad --- ¿Y los otros dos? ---pregunté.
 
---- ¿Yoochun no lo sabía? --- Yunho se sorprendió --- ¿Dónde estaba?
+---No saben que hemos venido ---Junsu sonrió ampliamente.
 
---- ... --- Junsu rió --- Bueno, vamos a estar poco aquí... solo era para ver cómo estabas y tal...
+---Jae si, se lo dije yo y por eso me dio comida ---dijo Changmin.
 
---- ¡¡Enfermita!! --- Jane se asomó muy sonriente --- ¡Hola! --- Entró, llevaba una bandeja en las manos con comida y una botella de agua --- Hana me dio esto para ti... --- Y miró a los chicos, estaba algo nerviosa, pero lo disimulaba muy bien --- Es lo que te ha traído Jae con unas cosillas más...
+---¿Yoochun no lo sabía? ---Yunho se sorprendió --- ¿Dónde estaba?
 
---- ... --- Me sonrojé --- No os toméis tantas molestias... la fiebre bajará...
+---No sé ---Junsu rió --- Bueno, vamos a estar poco aquí, solo era para ver cómo estabas.
 
---- No, no, no --- Negó Yunho alzando un dedo --- Tienes que descansar y recuperarte. No tomes tan a la ligera la fiebre, ¿vale?
+---¡Enfermita! ---Jane se asomó muy sonriente --- ¡Hola! --- Entró, llevaba una bandeja en las manos con comida y una botella de agua --- Hana me dio esto para ti ---y miró a los chicos, estaba algo nerviosa, pero lo disimulaba muy bien --- Es lo que te ha traído Jae.
 
---- Vale... --- Me sorprendí al ver como Yunho se preocupó por mí... parecía mi hermano.
+---Gracias ---me sonrojé --- No os toméis tantas molestias, la fiebre bajará.
 
---- Nos tenemos que ir --- Changmin miró el reloj --- Tenemos sesión de fotos y... un Yoochun nos matará.
+---No, no, no ---negó Yunho alzando un dedo --- Tienes que descansar y recuperarte. No tomes tan a la ligera la fiebre, ¿vale?
 
---- No será para tanto --- Junsu se quedó parado un momento mientras los otros salían. Me miró sonriente, pero su sonrisa estaba algo... ¿triste? Miró la puerta y la cerró un momento a su espalda. Se acercó a mí. En ese proceso, yo temblaba y temía que se me cayera todo encima. Me miró a los ojos y puso su mano en mi frente. Al retirarla se colocó en cuclillas --- Más tarde vendré a verte... solo --- Dijo casi susurrando --- Tengo que hablar contigo, ¿vale?
+---Vale ---me sorprendí al ver como Yunho se preocupó por mí. Parecía mi hermano.
 
---- Vale --- Dije muy, muy nerviosa.
+---Nos tenemos que ir ---Changmin miró el reloj --- Tenemos sesión de fotos, además Yoochun nos matará.
 
---- ¡Nos vemos! --- Se puso en pie y salió de la habitación más feliz que nadie.
+---No será para tanto ---Junsu se quedó parado un momento mientras los otros salían. Me miró sonriente, pero su sonrisa estaba algo ¿triste? Miró la puerta y la cerró un momento a su espalda. Se acercó a mí. En ese proceso, yo temblaba y temía que se me cayera todo encima. Me miró a los ojos y puso su mano en mi frente. Al retirarla se colocó en cuclillas --- Más tarde vendré a verte solo ---dijo casi susurrando --- Tengo que hablar contigo, ¿vale?
 
-Me costó un tiempo reaccionar a lo que me había dicho, a lo que iba a pasar... ¿de qué tenía que hablarme? Me pasé la mano por la cara intentando asimilar demasiada información... Llegué a la conclusión de que la fiebre estaba causada por eso. Resoplé y comencé a tomar lo que me habían dado aun pensando en demasiadas cosas.
+---Vale ---dije muy, muy nerviosa.
 
---- ¡¡Kiki!! --- Y la paz y tranquilidad que intentaba tener se esfumó gracia a las chicas, que entraron alocadamente a mi habitación. Perdón, rectifico, gracias a Elena y Jane, que estaban que se subían por las paredes. Se colocaron a mi alrededor y Jane tomó la palabra --- ¡¡¡He visto a SungMiiiiin!!!
+---¡Nos vemos! ---se puso en pie y salió de la habitación más feliz que nadie.
 
---- ¡¡Y yo a Donghae!! --- Dijo Elena, que se subió sobre mi cama y provocó que cayera agua y comida sobre las sábanas. La miré mal --- Lo siento... --- Agachó la cabeza.
+Me costó un tiempo reaccionar a lo que me había dicho, a lo que iba a pasar, ¿de qué tenía que hablarme? Me pasé la mano por la cara intentando asimilar demasiada información. Llegué a la conclusión de que la fiebre estaba causada por eso. Resoplé y comencé a tomar lo que me habían dado aun pensando en demasiadas cosas.
 
---- Hoy estaban todos los que salían en tu película... --- Comenzó a decir Hana --- Todos los que salían al principio, tu amigo ese estaba organizando a los extras y eso...
+---¡Kiki! ---y la paz y tranquilidad que intentaba tener se esfumó gracia a las chicas, que entraron alocadamente a mi habitación. Perdón, rectifico, gracias a Elena y Jane, que estaban que se subían por las paredes. Se colocaron a mi alrededor y Jane tomó la palabra ---¡He visto a Sungmin!
 
---- Bueno, mañana se empezará todo --- Sonreí y miré hacia R, que tenía cierto rubor en su cara --- ¿Estás bien? --- Le dije.
+---¡Y yo a Donghae! ---dijo Elena, que se subió sobre mi cama y provocó que cayera agua y comida sobre las sábanas. La miré mal --- Lo siento... ---agachó la cabeza.
 
---- ¡...! --- Ella alzó la cabeza y sonrió --- S---sí, sí, no te preocupes...
+---Hoy estaban todos los que salían en tu película ---comenzó a decir Hana ---todos los que salían al principio. Tu amigo ese estaba organizando a los extras.
 
---- ¡¡Es que ha visto al monito hoy!! --- Señaló Jane sonriente --- Y han hablado.
+---Bueno, mañana se empezará todo ---sonreí y miré hacia R, que tenía cierto rubor en su cara --- ¿Estás bien? ---le dije.
 
---- ¿Has hablado con Eun? --- Flipé, ni yo lo conocía aún.
+---Ah --- Ella alzó la cabeza y sonrió --- Sí, sí, no te preocupes.
 
---- Si... bueno... --- Desvió la cabeza muy sonrojada --- Ha sido culpa de Jane, que ha hecho que me tropezara con él... --- Agachó la cabeza y pude ver como estaba muy roja. Reí y me miró --- No tiene gracia... yo lo he pasado muy mal...
+---¡Es que ha visto al monito hoy! ---señaló Jane sonriente --- Y han hablado.
 
---- Pero habéis hablado --- Señaló Elena --- Ya es algo, ¿no? Yo no he podido hablar con Donghae --- Dijo con un puchero, al cual todas comenzamos a reír.
+---¿Has hablado con Eun? ---aluciné, ni yo lo conocía aún.
 
---- Mañana hablaré con Sungmin --- Dijo Jane muy convencida.
+---Si... bueno... ---desvió la cabeza muy sonrojada --- Ha sido culpa de Jane, que ha hecho que me tropezara con él ---agachó la cabeza y pude ver como estaba muy roja. Reí y me miró --- No tiene gracia, yo lo he pasado muy mal.
 
---- ¿Hablaras? --- R rió --- Si solo había que verte esta mañana. Lo has mirado embobada, con la boca abierta, las piernas te temblaban y tartamudeaste un par de veces.
+---Pero habéis hablado ---señaló Elena --- Ya es algo, ¿no? Yo no he podido hablar con Donghae ---dijo con un puchero, al cual todas comenzamos a reír.
 
---- ... --- El color de su cara pasó del blanquecino al rojo tomate. Fue muy divertido verla. Tosió un par de veces y se puso seria --- Pero eso solo hoy... mañana será otro día...
+---Mañana hablaré con Sungmin ---dijo Jane muy convencida.
 
-Ese rato pasó muy divertido, la verdad, reímos y hablamos de todo. Cuando se acercaba la hora de la cena, yo temblaba. Temblaba por el hecho de hablar cara a cara con Junsu, a solas sobre ese tema. Enseguida Junsu me llamó avisando que salía de casa.
+---¿Hablaras? ---R rió --- Si solo había que verte esta mañana. Lo has mirado embobada, con la boca abierta, las piernas te temblaban y tartamudeaste un par de veces.
 
---- Chicas --- Capté su atención. Me miraron extrañadas, estaban sentadas en el sofá y yo me asomé al comedor puesta de ropa de calle --- ¿Me podéis hacer un favor?
+---Jope ---el color de su cara pasó del blanquecino al rojo tomate. Fue muy divertido verla. Tosió un par de veces y se puso seria --- Pero eso solo hoy, mañana será otro día.
 
---- ¿Tú no estás mala? --- Me dijo Hana.
+Ese rato pasó muy divertido, reímos y hablamos de todo el día. Cuando se acercaba la hora de la cena, yo temblaba. Temblaba por el hecho de hablar cara a cara con Junsu, a solas sobre _ese_ tema. Enseguida Junsu me mandó un mensaje avisando que salía de casa.
 
---- Si, si... --- Asentí --- Si no voy a salir... es solo que... viene Junsu --- Desvié la cabeza.
+---Chicas ---capté su atención. Me miraron extrañadas, estaban sentadas en el sofá y yo me asomé al comedor puesta de ropa de calle --- ¿Me podéis hacer un favor?
 
---- ¡¡Ohh!! --- Jane se puso en pie --- ¡¡Vale, vale!! ¿Intimidad?
+---¿Tú no estás mala? ---me dijo Hana.
 
---- ... --- Asentí con la cabeza, muy roja --- Por favor...
+---Si, si ---asentí --- Si no voy a salir. Es solo que... viene Junsu ---desvié la cabeza.
 
---- No hay problema --- Dijo Elena sonriente --- A ver qué hacéis...
+---¡Ohh! ---Jane se puso en pie --- ¡Vale, vale! ¿Intimidad?
 
---- Usar protección --- Añadió R alzando un dedo. Todas la miramos sorprendida, y yo más... Me esperaba eso de todos menos de ella. Me sonrojé aún más --- Eh, era una broma...
+---Si... ---asentí con la cabeza, muy roja --- Por favor.
 
---- ... ya... --- Suspiré. Alcé la cabeza --- Bueno, muchas gracias...
+---No hay problema ---dijo Elena sonriente --- A ver qué hacéis.
 
---- No te preocupes --- Me abrazaron. Elena me miró seria --- Nada de cochinadas en esa cama, que también duermo yo.
+---Usar protección ---añadió R alzando un dedo. Todas la miramos sorprendida, y yo más. Me esperaba eso de todos menos de ella. Me sonrojé aún más --- Eh, era una broma.
 
---- ¡¡Elena!! --- Grité más que sonrojada.
+---Ya... ---suspiré. Alcé la cabeza --- Bueno, muchas gracias.
 
-Entre risas, salieron del piso y yo respiré profundamente, intentando ahogar los malditos nervios que me comían por dentro. El timbre de la puerta sonó y me alarmé tirando parte del contenido del agua que tenía en un vaso en la mano. Miré el telefonillo y descolgué, escuchando la risueña voz de Junsu; le abrí y no tardó en asomar su cabeza en el piso. Sonrió.
+---No te preocupes ---me abrazaron. Elena me miró seria --- Nada de cochinadas en esa cama, que también duermo yo.
 
---- ¿Estamos solos? --- Preguntó.
+---¡Elena! ---grité más que sonrojada.
 
---- Si --- Asentí --- ¿Por qué no pasas? --- Pregunté extrañada --- ¿Escondes algo?
+Entre risas salieron del piso y yo respiré profundamente, intentando ahogar los malditos nervios que me comían por dentro. El timbre de la puerta sonó y me alarmé tirando parte del contenido del agua que tenía en un vaso en la mano. Miré la pantalla y vi a Junsu sonriendo, le abrí y no tardó en asomar su cabeza en el piso. Sonrió.
 
---- No --- Entró y cerró la puerta. Cogió el móvil, lo apagó y lo colocó sobre una mesita junto con las llaves de un coche. Me sonrió --- ¿Te encuentras ya mejor?
+---¿Estamos solos? ---preguntó aún asomado por la puerta.
 
---- Si --- Me toqué la frente --- Creo que ya me bajó la fiebre...
+---Si ---asentí --- ¿Por qué no pasas? ---pregunté extrañada --- ¿Escondes algo?
 
---- Me alegra saber eso --- Miró el sofá, la habitación, el cuarto de baño, la cocina.
+---No ---entró y cerró la puerta. Cogió el móvil, lo apagó y lo colocó sobre una mesita junto con las llaves de un coche. Me sonrió --- ¿Te encuentras ya mejor?
 
---- Junsu, que estamos solos --- Lo miré extrañada y el me miró con su inseparable sonrisa. Me fijé que tenía las mejillas algo sonrojadas --- Ponte serio, ¿de qué querías hablarme?
+---Si ---me toqué la frente --- Creo que ya me bajó la fiebre.
 
---- ... --- Suspiró y al final se decantó por el sofá, se sentó --- Quería hablar... de ti --- Me señaló --- Y de mi...
+---Me alegra saber eso ---miró el sofá, la habitación, el cuarto de baño y la cocina.
 
---- Supongo --- Me encogí de hombros y me senté a su lado. Estaba que me moría de los nervios.
+---Junsu, que estamos solos ---lo miré extrañada y el me miró con su inseparable sonrisa. Me fijé que tenía las mejillas algo sonrojadas --- Ponte serio, ¿de qué querías hablarme?
 
---- Verás... --- Me cogió de la mano y la miró --- Quiero estar contigo, pero por alguna razón, no podemos... y esa razón... --- Me miró --- Eres tú.
+---Ya voy ---suspiró y al final se decantó por el sofá, se sentó --- Quería hablar de ti y de mi.
 
---- ¿Yo? --- Me señalé muy sorprendida --- ¿Por qué soy yo?
+---Supongo ---me encogí de hombros y me senté a su lado. Estaba que me moría de los nervios.
 
---- No lo sé --- Negó sonriente --- Aún espero que me lo digas... --- Pero no me soltó de la mano.
+---Verás ---me cogió de la mano y la miró --- Quiero estar contigo, pero por alguna razón, no podemos. Y esa razón... --- Me miró a la cara --- Eres tú.
 
---- Pero... ambos tendremos problemas si salimos --- Dije preocupada.
+---¿Yo? ---me señalé muy sorprendida --- ¿Por qué soy yo?
 
---- ¿Realmente es eso lo que más te preocupa? --- Preguntó sin separarse de esa tranquila sonrisa que hacía que, por un lado, me pusiera nerviosa y por otro me calmara. Suspiré --- Kiki... Entiendo que sea difícil...
+---No lo sé ---negó sonriente --- Aún espero que me lo digas ---no me soltó de la mano.
 
---- ¿Lo entiendes? --- Me sorprendí.
+---Pero... ambos tendremos problemas si salimos ---dije preocupada.
 
---- Bueno... --- Se sonrojó --- Hice... mis investigaciones, de aquella época que te ingresaron en el hospital y estuviste dos días desaparecida...
+---¿Realmente es eso lo que más te preocupa? ---preguntó sin separarse de esa tranquila sonrisa que hacía que, por un lado, me pusiera nerviosa y por otro me calmara. Suspiré --- Kiki, entiendo que sea difícil.
 
---- ¿Con quién hablaste? --- Me sobresalté.
+---¿Lo entiendes? ---me sorprendí.
 
---- ... --- Él se sorprendió --- Con... Yunho y Yoochun --- Sonrió --- Me dijeron que te ingresaron por una pulmonía... pero... ¿sabes qué? --- Lo miré muy curiosa --- No me lo trago --- Comencé a temblar --- Después de lo que pasó aquella vez... entre tú y yo --- Me miró a los ojos y me perdí. Otra vez aquella extraña sensación en mi cuerpo. Apreté su mano y él desvió la mirada hacia ellas --- ¿Estás bien? --- Me volvió a mirar.
+--- Bueno ---se sonrojó --- Hice mis investigaciones, de aquella época que te ingresaron en el hospital y estuviste dos días desaparecida.
 
---- S... si --- Conseguí decir sin dejar de mirar sus ojos hipnotizada.
+---¿Con quién hablaste? ---me sobresalté muy tensa.
 
---- Kiki --- Me agarró de la mejilla --- ¿Por qué me miras así? --- Y reaccioné, provocando que me sonrojara mucho y él riera --- ¿En qué pensabas? --- Y soltó su risa aguda y escandalosa.
+---Pues... --- Él se sorprendió a mi reacción --- Con Yunho y Yoochun. Me dijeron que te ingresaron por una pulmonía, pero ¿sabes qué? ---lo miré muy curiosa por saber qué era lo que él sabía --- No me lo trago ---comencé a temblar --- Después de lo que pasó aquella vez... entre tú y yo ---me miró a los ojos y me perdí. Otra vez aquella extraña sensación en mi cuerpo. Apreté su mano y él desvió la mirada hacia ellas --- ¿Estás bien? ---me volvió a mirar.
 
---- ... --- En ese momento pensé _tierra, por favor, trágame_. Pero solo me sonrojé y desvié la cabeza --- No pensaba en nada fuera de lo normal, que lo sepas.
+---Si... ---conseguí decir sin dejar de mirar sus ojos hipnotizada.
 
---- Ya... --- Me cogió de las mejillas y nos miramos --- Quiero que sepas algo... sea lo que sea, me lo puedes contar... confía en mí --- Se acercó poco a poco a mi cara --- Yo... --- Dijo casi en un susurro --- Te quiero...
+---Kiki ---me agarró de la mejilla --- ¿Por qué me miras así? ---y reaccioné, provocando que me sonrojara mucho y él riera --- ¿En qué pensabas? ---soltó su risa aguda y escandalosa.
 
-Y justo cuando nos íbamos a besar, sonó el puñetero telefonillo, que quise estrellar contra el suelo y pisotearlo. Ambos nos miramos sorprendidos.
+---Yo... ---en ese momento pensé _tierra, por favor, trágame_. Pero solo me sonrojé y desvié la cabeza --- No pensaba en nada fuera de lo normal, que lo sepas.
 
---- Las chicas no son y... no espero a nadie --- Me acerqué y contesté. Me quedé sorprendida, abrí y miré a Junsu --- Es... Heechul...
+---Ya... ---me cogió de las mejillas y nos miramos --- Quiero que sepas algo, sea lo que sea me lo puedes contar, confía en mí ---se acercó poco a poco a mi cara --- Yo... ---dijo casi en un susurro --- Te quiero.
 
---- ¿Heechul? --- Junsu se puso algo pálido y miró a la puerta, donde un sonriente Heechul se dejaba ver, pero su rostro cambió al mirar al alocado --- Hola... --- Saludó el menor.
+Y justo cuando nos íbamos a besar, sonó el puñetero timbre. Quise arrancarlo de la pared y golpearlo contra el suelo y pisotearlo. Ambos nos miramos sorprendidos.
 
---- Hola --- Heechul no parecía el mismo... Era como si hubiera salido de una película de terror. Me miró y en nuevo a Junsu --- ¿Ya estás mejor? --- Dijo muy seco.
+---Las chicas no son y no espero a nadie ---me acerqué y me sorprendí, abrí la puerta y miré a Junsu --- Es... Heechul.
 
---- Si --- Lo miré con preocupación. Luego miré a Junsu y de nuevo a Heechul --- ¿Qué ocurre?
+---¿Heechul? ---Junsu se puso algo pálido y miró a la puerta, donde un sonriente Heechul se dejaba ver, pero su rostro cambió al mirar a mi acompañante --- Hola --- Saludó Junsu.
 
---- Nada --- Heechul era un bicho raro, de verdad... y Junsu... él no levantaba la cabeza --- Bueno, me alegra saber que ya estás mejor...
+---Hola ---Heechul no parecía el mismo. Era como si hubiera salido de una película de terror. Me miró y de nuevo a Junsu --- ¿Ya estás mejor? ---dijo muy seco.
 
---- ... --- Y pensé, ambos me contaron un problema, ¿era entre ellos? Resoplé --- ¿Estáis enfadados mutuamente?
+---Si --- Lo miré con preocupación. Luego miré a Junsu y de nuevo a Heechul --- ¿Qué ocurre?
 
---- ... --- Ambos me miraron y Junsu dijo “si” en un susurro. Heechul tomó la palabra --- Puede ser... pero es cosa de él...
+---Nada ---Heechul era un bicho raro, de verdad, y Junsu no levantaba la cabeza --- Bueno, me alegra saber que ya estás mejor.
 
---- ¿De mí? --- Y Junsu al fin miró a Heechul a la cara. Se señaló y se enfadó --- ¡Perdona, es cosa tuya, “don quiero todo perfecto con la gente perfecta”!
+Y pensé en que ambos me contaron un problema, ¿era entre ellos? Resoplé molesta, ya que la forma en la que se trataban lo daba a ver.
 
---- ... --- Yo flipaba.
+---¿Estáis enfadados mutuamente? ---me crucé de brazos.
 
---- ¿Qué me has dicho? --- Se puso algo chulo --- Yo no soy así --- Lo cierto es que Heechul era algo especial en ese tema... Punto para Junsu.
+---Si... ---Junsu lo susurró y ambos me miraron.
 
---- Perdona pero sí... --- Dijo Junsu extraño, no parecía él --- Estoy harto de ti y tus chorradas en la SM... siempre estás acaparando a Yunho y nosotros vamos atrasados con algunas cosas. Y no hablar de Jae, que lo acosas...
+--- Puede ser, pero es cosa de él ---Heechul tomó la palabra.
 
---- ¿Qué dices? --- Heechul lo miró ofendido. Ahí Junsu se había pasado --- No tienes sentido lo que dices, porque yo podría decir lo mismo con Eunhyuk...
+---¿De mí? ---y Junsu al fin miró a Heechul a la cara. Se señaló y se enfadó --- ¡Perdona, es cosa tuya, "don quiero todo perfecto con la gente perfecta"!
 
---- ¿Y qué relación tienes con ese estúpido? --- Junsu se enfureció --- No lo metas...
+Comenzaron a discutir y yo me quedé con la boca abierta.
 
---- No metas tú a Jae y a Yunho --- El mayor se cruzó de brazos. Punto para Heechul.
+---¿Qué me has dicho? ---se puso algo chulo --- Yo no soy así --- Lo cierto es que Heechul era algo especial en ese tema.
 
---- ... --- Junsu desvió la cabeza --- Eres demasiado raro Heechul, eres un caso especial y...
+---Perdona pero sí ---dijo Junsu extraño, no parecía él --- Estoy harto de ti y tus chorradas en la SM, siempre estás acaparando a Yunho y nosotros vamos atrasados con algunas cosas. Y no hablar de Jae, que lo acosas.
 
---- Espera --- Lo corté y miré a ambos --- ¿Cuál es la razón de esto?
+---¿Qué dices? ---Heechul lo miró ofendido. Ahí Junsu se había pasado --- No tienes sentido lo que dices, porque yo podría decir lo mismo con Eunhyuk.
 
---- ... verás --- Heechul sonrió --- Este Junsu sabrá.
+---¿Y qué relación tienes con ese estúpido? ---Junsu se enfureció --- No lo metas.
 
---- No me llames Junsu --- Dijo enfadado.
+---No metas tú a Jae y a Yunho ---Heechul se cruzó de brazos y lo miró desafiante.
 
---- Junsu... --- Lo miré seria y él desvió la cabeza.
+---Paso ---Junsu desvió la cabeza --- Eres demasiado raro Heechul, eres un caso especial y...
 
---- Él es demasiado feliz...
+---Espera ---lo corté y miré a ambos alzando las manos hacia ellos --- ¿Cuál es la razón de esto?
 
---- ¿Eso es excusa? --- Dijo Junsu.
+---No lo sé ---Heechul sonrió --- Junsu sabrá.
 
---- No --- Negué yo.
+---Como que yo sabré ---dijo enfadado.
 
---- Lo sé, lo sé --- Dijo con rapidez Heechul --- Pero me raya con sus risitas, estupideces y comentarios.
+---Junsu... ---lo miré seria y él desvió la cabeza.
 
---- Tápate los oídos... --- Junsu le sacó la lengua.
+---Él es demasiado feliz ---dijo Heechul de pronto.
 
---- ¡¡No estés donde yo estoy!! --- Señaló el otro.
+---¿Eso es excusa? ---dijo Junsu ofendido.
 
---- ¡¡Has sido tú el que ha venido ahora!! --- Junsu se encaró --- ¿Yo que culpa tengo?
+---No ---negué yo.
 
---- ¿Y qué hacías aquí...? --- Miró por toda la casa --- ¿Con ella y a solas? --- Dijo con sonrisa malvada.
+---Lo sé, lo sé ---dijo con rapidez Heechul --- Pero me raya con sus risitas, estupideces y comentarios.
 
---- ... --- Junsu lo miró con odio --- No dirás nada, ¿cierto? --- El otro solo rió --- No...
+---Tápate los oídos ---Junsu le sacó la lengua.
 
---- ¡¡Eh!! --- Grité y me volvieron a mirar --- ¡Estoy aquí! --- Alcé los brazos --- No lo olvidéis --- Suspiré profundamente y, cogiéndolos de la mano, los arrastré hasta el sofá, los senté --- Tonto --- Señalé a Heechul, quien desvió la cabeza --- Idiota --- Señalé a Junsu, quien puso un puchero --- ¿Y vosotros tenéis que hacer una película juntos? --- Reí --- ¿Por qué no cooperáis? Pertenecéis a la SM, ambos... compartís amigos, compañeros... ¿Por qué cada uno no da de su parte?
+---¡No estés donde yo estoy! ---señaló el otro.
 
---- Heechul es muy especial --- Dijo Junsu señalándolo --- Muy poca gente lo traga... entre ellos yo...
+---¡Has sido tú el que ha venido ahora! ---Junsu se encaró hacia él y le agarré a tiempo del brazo --- ¿Yo que culpa tengo?
 
---- Pero esto es cosa desde hace tiempo --- Señaló Heechul como si nada --- Pero ha sido ahora cuando han saltado las chispas...
+---¿Y qué hacías aquí? ---miró por toda la casa --- ¿Con ella a solas? ---dijo con sonrisa malvada.
 
---- Recién enterarnos de la película y todo, discutimos --- Continuó Junsu.
+---Heechul ---Junsu lo miró con odio --- No dirás nada, ¿cierto? ---el otro solo rió --- No...
 
---- Por eso te dije que no podía hacer la peli en ese momento...
+---¡Eh! ---grité y me volvieron a mirar --- ¡Estoy aquí! ---alcé los brazos. Suspiré profundamente y, cogiéndolos de la mano, los arrastré hasta el sofá y los senté --- Tonto ---señalé a Heechul, quien desvió la cabeza --- Idiota ---señalé a Junsu, quien puso un puchero --- ¿Y vosotros tenéis que hacer una película juntos? ---reí --- ¿Por qué no cooperáis? Pertenecéis a la SM ambos. Compartís amigos, compañeros, ¿por qué cada uno no da de su parte?
 
---- ¿Tú también? --- Junsu se sorprendió y me miró --- ¿Por eso me dijiste aquella vez...?
+---Heechul es muy especial ---dijo Junsu señalándolo --- Muy poca gente lo traga, entre ellos yo.
 
---- Si --- Asentí desganada y me senté sobre la mesa. Los miré --- Ahora --- Señalé --- ¿Podéis comportaros como adultos que sois? Aprender a convivir el uno con el otro... No será una peli, será un Drama...
+---Pero esto es cosa desde hace tiempo ---señaló Heechul como si nada --- Pero ha sido ahora cuando han saltado las chispas.
 
---- ... --- Se miraron y me miraron. Heechul suspiró --- Ok, Kikita... pero porque lo pides tú --- Sonrió y vi una mirada furtiva por parte de Junsu --- Tranquilo, tranquilo --- Alzó las manos --- No te voy a quitar a tu chica.
+---Recién enterarnos de la película y todo, discutimos ---continuó Junsu.
 
-Y se quedó tan pancho. A mí me costó reaccionar, pero Junsu ya estaba sonrojado mientras le daba con un cojín en la cara. Yo me puse nerviosa y me puse en pie. Di varias vueltas y los miré en
-silencio.
+---Por eso te dije que no podía hacer la película en ese momento...
 
---- Bueno, me voy --- Sonrió Heechul --- Me alegra saber que estás bien --- Me dio un par de golpes en el hombro --- Y no te creas que, por ser la novia de este Junsu, dejaré de venir a visitarte...
+---¿Tú también? ---Junsu se sorprendió y me miró --- ¿Por eso me dijiste aquella vez que yo también?
 
---- No me llames Junsu --- Lo miró enfadado. Se sonrojó y sorprendió --- ¿Novios?
+---Sí ---asentí desganada y me senté sobre la mesa. Los miré --- Ahora, ¿podéis comportaros como adultos que sois? Aprender a convivir el uno con el otro. Y por cierto, no será una película, será un drama.
 
---- Efectos retardados --- Rió alocadamente --- ¡Chao Kikita!
+---¿Ah si? ---se miraron y me miraron. Heechul suspiró --- Vale, Kikita, pero porque lo pides tú ---sonrió y vi una mirada furtiva por parte de Junsu --- Tranquilo, tranquilo ---alzó las manos --- No te voy a quitar a tu chica.
 
-Y conforme vino, se fue. Junsu me miró y me abrazó para mi sorpresa. Yo también lo abracé. Parecía que la conversación estaba predestinada a no comenzar. Sonreí tontamente, no debería de sonreír en ese momento. Suspiré y Junsu me miró.
+Y se quedó tan pancho. A mí me costó reaccionar, pero Junsu ya estaba sonrojado mientras le daba con un cojín en la cara. Yo me puse nerviosa y me puse en pie. Di varias vueltas y los miré en silencio.
 
---- Kiki --- Colocó su mano sobre mi mejilla --- ¿Seguimos por donde lo dejamos?
+---Bueno, me voy ---sonrió Heechul --- Me alegra saber que estás bien ---me dio un par de golpes en el hombro --- Y no te creas que, por ser la novia de Junsu dejaré de venir a visitarte.
 
-Hubiera dicho que sí, si me hubiera dejado, pero me besó. En ese momento mi mente voló y no pensé en nada más que en los labios de Junsu sobre los míos, y su lengua jugando con la mía. Fue una sensación maravillosa. Nos separamos y nos miramos sonrientes y sonrojados, como dos amantes.
+---Que pesado eres... ---lo miró enfadado, pero de pronto se sonrojó y sorprendió --- ¿Novios?
 
---- ¿Quieres ser mi novia? --- Me dijo casi en un susurro. Yo lo miré sorprendida --- A pesar de tu... problema... Seguro que juntos podremos superarlo...
+---Efectos retardados ---rió Heechul alocadamente --- ¡Chao Kikita!
 
-No dije nada, simplemente sonreí y lo abracé. Me acerqué a su oído y, después de unos segundos, le dije el famoso _si_. Me tomó en peso y reímos como dos idiotas. Nos volvimos a besar hasta que sonó mi teléfono. Lo miré y vi extrañada que era Yoochun.
+Se acercó a la puerta, la abrió, se despidió de nosotros y la cerró dejando a su espalda puro silencio. Junsu me miró y me abrazó para mi sorpresa. Yo también lo abracé. Parecía que la conversación estaba predestinada a no terminar. Sonreí tontamente, no debía de sonreír en ese momento, pero lo hacía. Suspiré y Junsu me miró.
 
---- Dime --- Contesté mientras le daba a Junsu para que no me hiciera cosquillas.
+---Kiki ---colocó su mano sobre mi mejilla --- ¿Seguimos por donde lo dejamos?
 
---- ¿Sabes dónde está Junsu? --- Preguntó algo preocupado --- Ha desaparecido sin decir nada... y el móvil lo tiene apagado.
+Hubiera dicho que sí, si me hubiera dejado, pero me besó. En ese momento mi mente voló y no pensé en nada más que en los labios de Junsu sobre los míos y su lengua jugando con la mía. Fue una sensación maravillosa. Nos separamos y nos miramos sonrientes y sonrojados, como dos amantes.
 
---- ... --- Miré a Junsu, que puso su dedo en su boca en señal de que no le dijera nada --- No sé dónde está Yoochun, por aquí no ha pasado...
+---¿Quieres ser mi novia? ---me dijo casi en un susurro. Yo lo miré sorprendida --- A pesar de tu problema. Seguro que juntos podremos superarlo.
 
---- Este Junsu idiota... --- Masculló y yo reí --- Escucha, si lo ves o algo, dile que venga, que tenemos una entrevista en la Mnet...
+No dije nada, simplemente sonreí, asentí con la cabeza y lo abracé. Me acerqué a su oído y, después de unos segundos, le dije el famoso _si_. Me tomó en peso y reímos como dos idiotas. Nos volvimos a besar hasta que sonó mi teléfono. Lo miré y vi extrañada que era Yoochun.
 
---- Ok, aunque lo dudo un poco --- Sonreí y Junsu también.
+---Dime ---contesté mientras le daba a Junsu para que no me hiciera cosquillas.
 
---- Bueno, hasta luego --- Y colgó antes de que yo pudiera despedirme.
+---¿Sabes dónde está Junsu? ---preguntó algo preocupado --- Ha desaparecido sin decir nada y el móvil lo tiene apagado.
 
---- Tienes una entrevista en la Mnet --- Le dije, a lo que él puso un puchero --- Vamos, la obligación es lo primero... no yo...
+---Junsu... ---lo miré y puso su dedo en su boca en señal de que no le dijera nada --- No sé dónde está Yoochun, por aquí no ha pasado.
 
---- Pero... --- Puso un puchero ante mi seria mirada --- Yo... --- Agachó la cabeza --- Vale, vale... --- Encendió el móvil y vio unas llamadas perdidas de los chicos --- Me voy --- Y me abrazó.
+---Este Junsu idiota ---masculló y yo reí --- Escucha, si te llamara le dices que venga a casa, tenemos una entrevista en la Mnet.
 
---- ¿Les dirás a los chicos lo nuestro? --- Le pregunté seria.
+---Ok, de acuerdo ---sonreí y Junsu también.
 
---- ... --- Suspiró y asintió --- Será lo mejor por Yoochun --- Dijo --- Además, Heechul lo sabe, prefiero decirlo yo antes que él.
+---Bueno, hasta luego ---y colgó antes de que yo pudiera despedirme.
 
---- ... --- Reí y le di un beso en la mejilla --- Que te vaya bien, mi Junsu --- Le di un suave pellizco en la mejilla.
+---Tienes una entrevista en la Mnet ---le dije, a lo que él puso un puchero --- Vamos, la obligación es lo primero, no yo.
 
---- A ti también, mi princesa --- Me besó y abrió la puerta.
+---Pero... ---puso un puchero ante mi seria mirada --- Yo... ---agachó la cabeza rendido al ver que no cambiaba el rostro --- Vale, vale ---encendió el móvil y vio unas llamadas perdidas de los chicos --- Me voy ---y me abrazó.
 
---- ¡Ah, Junsu! --- Capté su atención, se volteó y me miró. Saqué mi móvil --- Date la vuelta...
+---¿Les dirás a los chicos lo nuestro? ---le pregunté preocupada.
 
---- ¿Qué? --- Se extrañó --- ¿Qué pasa? ¿Tengo algo?
+---Pues... ---suspiró y asintió --- Será lo mejor por Yoochun ---dijo pensativo mientras pasaba una mano por mi espalda --- Además, Heechul lo sabe, prefiero decirlo yo antes que él.
 
---- No, no --- Negué --- Por favor, date la vuelta un momento... --- Extrañado, dio media vuelta y le eché una foto a su culo, comencé a reírme --- Ya está...
+---Cierto ---reí y le di un beso en la mejilla --- Que te vaya bien, mi Junsu ---le di un suave pellizco en la mejilla.
 
---- ¿Qué has hecho? --- Se encaró hacia mí --- ¿Qué has hecho? --- Insistió.
+---A ti también, mi princesa ---me besó y abrió la puerta.
 
---- Te he echado una foto --- Me guardé el móvil.
+---¡Ah, Junsu! ---capté su atención, se volteó y me miró. Saqué mi móvil --- Date la vuelta.
 
---- ¿De espaldas? --- Abrió mucho los ojos --- ¿Por qué de espaldas? ¿No quieres una foto de mi cara, que es mejor? --- Y yo no podía dejar de reírme --- ¡Kiki! --- Me zarandeó, pero optó por quitarme
-el móvil y mirar --- Ok, ok, yo lo buscaré...
+---¿Qué? ---se extrañó --- ¿Qué pasa? ¿Tengo algo?
 
---- ¡Junsu no! --- Intenté quitarle el móvil, pero por poco, él era más alto que yo y lo puso en alto --- Te echaré una foto de cara... lo prometo.
+---No, no ---negué --- Por favor, date la vuelta un momento ---extrañado, dio media vuelta y le eché una foto a su culo, comencé a reírme --- Ya está.
 
---- ¿Dónde me has echado la foto? --- Se ponía a mirar.
+---¿Qué has hecho? ---se acercó a mí, pero no dije nada --- ¿Qué has hecho? ---insistió.
 
---- A ti... --- Insistí.
+---Te he echado una foto ---apoyé el móvil contra mi pecho notando las orejas muy rojas.
 
---- Lo sé, pero a qué --- Me miró a los ojos, luego miró al móvil y se sorprendió --- Pervertida...
+---¿De espaldas? ---abrió mucho los ojos --- ¿Por qué de espaldas? ¿No quieres una foto de mi cara, que es mejor? ---y yo no podía dejar de reírme muy nerviosa --- ¡Kiki! ---me zarandeó, pero optó por quitarme el móvil de las manos y mirar --- Ok, ok, yo lo buscaré.
 
---- ¡No soy pervertida! --- Y comencé a hacerle cosquillas bajo el brazo y él lo bajó deprisa. Yo aproveché eso para quitarle el móvil y sacarle la lengua. Vi la foto --- Me hace ilusión tener una foto de tu culo...
+---¡Junsu no! ---intenté quitarle el móvil, pero él era más alto que yo y alzó la mano mientras miraba la pantalla --- Te echaré una foto de cara, lo prometo.
 
---- ... --- Y él solo podía reírse de mí --- Eres una pervertida --- Me señaló --- ¡¡Pervertida, pervertida!!
+---¿Dónde me has echado la foto? ---dijo mientras trataba de entrar a mi teléfono.
 
---- Dame... --- Le quité su móvil y me eché una foto en el culo --- Toma, una foto igual --- Se lo di.
+---A ti... ---insistí rendida de forcejear con él.
 
---- No la quiero --- La borró con un puchero --- Prefiero una foto de tu cara... --- Y me echó una foto. Pero de pronto vi que se puso muy sonrojado y se acercó a la puerta --- Bu-bueno... me voy...
+---Lo sé, pero a qué ---me miró a los ojos, luego miró al móvil y se sorprendió mucho al encontrar la foto --- Pervertida.
 
---- Junsu, ¿me has echado la foto en la cara? --- Pregunté.
+---¡No soy pervertida! ---y comencé a hacerle cosquillas bajo el brazo y él lo bajó deprisa. Yo aproveché eso para quitarle el móvil y sacarle la lengua. Vi la foto --- Me hace ilusión tener una foto de tu culo.
 
---- S-sí, claro --- Dijo algo sonrojado --- En... la cara.
+---No me lo puedo creer ---y él solo podía reírse de mí --- Eres una pervertida.
 
---- Dame el móvil --- Extendí la mano hacia él.
+---Dame tu móvil ---estiré la mano para que me lo diera --- me haré una foto de mi culo para que la tengas.
 
---- Kiki, no te preocupes, que ha sido en la cara --- Y me enseñó una foto de mi cara, pero era vieja --- ¿Ves?
+--- No la quiero, prefiero una foto de tu cara ---y me echó una foto, pero de pronto vi que se puso muy sonrojado y se acercó a la puerta --- Bu-bueno... me voy...
 
---- ¿Crees que me chupo el dedo? --- Y en un descuido le quitéel teléfono y me puse de espaldas --- ¿Dónde está la foto, Junsu?
+---Junsu, ¿me has echado la foto en la cara? ---pregunté.
 
---- No te lo pienso decir --- Me agarró por la cintura y se acercó a mi oído. Yo me puse roja como un tomate al sentirlo tan cerca de mí --- Secreto de estado... --- Volvió a susurrar, provocando que mi piel erizara.
+---S-sí, claro ---dijo algo sonrojado --- En... la cara.
 
---- Jun... Su... --- Me giré hasta mirarlo y nos besamos. De pronto el encanto terminó gracias a su teléfono. Di un respingo y lo miré --- Es Yoochun.
+---Dame el móvil ---extendí la mano hacia él.
 
---- ... --- Resopló enfadado y lo cogió --- Dime --- Contestó de mala gana --- Mmmm... Vale, enseguida estoy allí... --- Me miró y sonrió --- Ahhh... secreto --- Rió --- Ya hablamos cuando llegue, corta royos --- Le sacó la lengua y colgó. Me guiñó un ojo --- Bueno, al curro...
+---Kiki, no te preocupes, que ha sido en la cara ---y me enseñó una foto de mi cara, pero era vieja --- ¿Ves?
 
---- Pásatelo bien --- Sonreí mientras me despedía con la mano.
+---¿Crees que me chupo el dedo? ---y en un descuido le quité el teléfono y me puse de espaldas --- ¿Dónde está la foto, Junsu?
 
---- Sin ti, imposible --- Rió y se marchó dándome un último y fugaz beso... El del día, claro.
+---No te lo pienso decir ---me agarró por la cintura y se acercó a mi oído pegando todo su cuerpo en mi espalda. Yo me puse roja como un tomate al sentirlo de aquella manera --- Es un secreto ---volvió a susurrar, provocando que mi piel erizara.
 
-No habían pasado cinco minutos de que se había marchado y ya estaban las cuatro mirándome con ojos ansiosos, con ganas de que respondiera.
+---Junsu... ---me giré, apoyando las manos sobre su pecho, le miré a los ojos y nos besamos. De pronto el encanto terminó gracias a su teléfono. Di un respingo y lo miré --- Es Yoochun.
 
---- Hemos visto a Junsu irse... --- Dijo R.
+---Qué pesadilla ---resopló enfadado y lo cogió --- Dime ---contestó de mala gana --- Mmmm... Vale, enseguida estoy allí ---me miró y sonrió --- Ahh secreto ---rió --- Ya hablamos cuando llegue, corta royos ---le sacó la lengua al teléfono y colgó. Me guiñó un ojo --- Bueno, al trabajo.
 
---- Y a Heechul ir y venir --- Dijo Jane.
+---Pásatelo bien ---sonreí mientras me despedía con la mano.
 
---- ¿Habéis estado vigilando? --- Me sorprendí.
+---Sin ti imposible ---rió y se marchó dándome un último y fugaz beso.
 
---- Si --- Asintió Hana bien seria --- No queríamos perdernos detalles, así que ya puedes estar soltando.
+Pensé en lo que habíamos pasado y me llevé las manos al pecho. El corazón me latía rápido y sentía mariposas en la tripa. Bajé la mirada y me vi la camiseta que llevaba, recordando su dichosa foto. Esa tarde me había puesto una camiseta ajustada y con escote. Me quise morir.
 
---- ... --- Miré a Elena, que había entrado a la habitación --- ¿Qué se supone que haces?
+Pero no habían pasado cinco minutos de que se había marchado y ya estaban las cuatro mirándome con ojos ansiosos, con ganas de que respondiera.
 
---- Sábanas intactas --- Dijo sonriente.
+---Hemos visto a Junsu irse ---dijo R.
 
---- ¿En el sofá? --- Jane se sobresaltó --- ¡¡No!! Ahí dormimos R y yo...
+---Y a Heechul ir y venir ---dijo Jane.
 
---- ... --- Negué con la cabeza --- Sois unas pervertidas... Heechul ha estado aquí mucho rato... ¿qué vamos a hacer? --- Suspiré --- Pero... --- Sonreí --- He conseguido algo para Cora, Hana...
+---¿Habéis estado vigilando? ---me sorprendí.
 
---- ¿Una foto del culo de Junsu? --- Se sorprendió y yo asentí --- ¡Se va a poner muy contenta!
+---Si ---asintió Hana bien seria --- No queríamos perdernos detalles, así que ya puedes estar soltando.
 
---- ¡¡Kiki pervertida!! --- Señaló Elena entre risas, a lo que las demás la siguieron. La di como caso perdido ya.
+---Pero... ---miré a Elena, que había entrado a la habitación --- ¿Qué se supone que haces?
 
---- Está aquí, Hana --- Le di el móvil --- Pásasela... pero no le digas como la he conseguido --- Me acaricié el cuello --- Aprecio mi vida.
+---Sábanas intactas ---dijo sonriente.
 
---- ... --- Hana rió --- No creo que se enfade contigo... solo te hará vudú --- Dijo en un susurró.
+---¿En el sofá? ---Jane se sobresaltó --- ¡No! Ahí dormimos R y yo.
 
---- ¡¡Te he oído!! --- Dije con cara de pánico.
+---Ya os vale ---negué con la cabeza --- Sois unas pervertidas. Heechul ha estado aquí mucho rato, ¿qué vamos a hacer? Pero... ---sonreí con malicia --- He conseguido algo para Cora.
 
-Mientras Hana le enviaba eso a Cora, yo hacía la cena junto con R, Jane ponía la mesa y la gandula de Elena veía la televisión. Después de la agradable cena entre amigas, nos fuimos a la cama, pero no a dormir, sino a que les contara lo que había pasado esa tarde con Junsu... fue muy entretenido, la verdad. Sobre todo por los comentarios de Hana, cuando decidía sacar a Cora en la conversación. Yo temblaba.
+---¿Una foto del culo de Junsu? ---se sorprendió y yo asentí --- ¡Se va a poner muy contenta!
 
---- No te preocupes Kikita --- Me dio en el hombro --- Cora solo tendrá un altar con velas negras para ti, con un muñeco al que pinchará todos los días y hará rezos para que te vaya mal con él... --- Sonrió y yo la miré muy mal --- Pero tú no sufras, ¿eh?
+---¡Kiki pervertida! ---señaló Elena entre risas, a lo que las demás la siguieron. La di como caso perdido ya.
 
---- Oh, creo que así estoy más tranquila... --- Resoplé y todas rieron.
+---Está aquí, Hana ---le di mi móvil --- Pásasela, pero no le digas como la he conseguido ---me acaricié el cuello --- Aprecio mi vida.
+
+---Tranquila ---Hana rió --- No creo que se enfade contigo, solo te hará vudú ---dijo en un susurró.
+
+---¡Te he oído! --- Dije con cara de pánico.
+
+Mientras Hana le enviaba la foto a Cora yo hacía la cena junto con R, Jane ponía la mesa y la gandula de Elena veía la televisión. Después de la agradable cena entre amigas, nos fuimos a la cama, pero no a dormir, sino a que les contara lo que había pasado esa tarde con Junsu. Fue muy entretenido, la verdad. Sobre todo por los comentarios de Hana, cuando decidía sacar a Cora en la conversación. Yo temblaba.
+
+---No te preocupes Kikita ---me dio en el hombro --- Cora solo tendrá un altar con velas negras para ti, con un muñeco al que pinchará todos los días y hará rezos para que te vaya mal con él ---sonrió y yo la miré muy mal --- Pero tú no sufras, ¿eh?
+
+---Oh, creo que así estoy más tranquila --- Resoplé y todas rieron.

@@ -76,7 +76,7 @@ expectantes. De pronto se asomó Elena, con cara muy enfadada.
 Extrañada, salimos de la habitación y me encontré con
 Heechul con una gran sonrisa, con una botella de vino en la mano
 izquierda y dos copas en la derecha. HangNeng, que estaba detrás,
-sonreía. Al igual que Siwon, KangIn y YeSung.
+sonreía. Al igual que Siwon, Kangin y YeSung.
 - ¡Sorpresa! - Grito Heechul alzando los brazos.
 Yo me quede muda. Totalmente muda. Muda, sorda... y solo
 tenía ojos para Heechul y su radiante sonrisa. Di unos pasos hasta su
@@ -107,7 +107,7 @@ no estábamos muy de acuerdo.
 cosa? - Me acerque a él – Tu sabes muy bien lo mal que lo pase en
 aquel tiempo... y se te ocurre esa idea... Heechul, ¿tu cabeza no
 riega bien o qué?
-- Va a ser que no – Escuche de fondo a KangIn.
+- Va a ser que no – Escuche de fondo a Kangin.
 - Lo siento mucho...
 Se giró, cogió la botella de vino y salió de la casa sin decir
 nada y cerrando la puerta a su espalda. HangNeng salió tras él y los
@@ -115,7 +115,7 @@ demás se quedaron extrañados por la actuación de Heechul.
 - Se lo merece – Bufo Hana enfadada – Con eso no se
 juega...
 - ¿Gritaste enfadada al verlo? - Le pregunto R a Elena.
-- Si – Asintió – KangIn me tapo la boca, creyendo que sería
+- Si – Asintió – Kangin me tapo la boca, creyendo que sería
 una grata sorpresa.
 - De grata nada – Dijo Jane.
 - Lo siento mucho, de verdad María – Siwon me volvió a

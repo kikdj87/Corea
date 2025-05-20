@@ -81,7 +81,7 @@ junto a su hermano y se debatía en si me miraba o no. Yunho abrió
 la puerta y entramos. Me fijé que todo estaba lleno de zapatitos
 horteras y zapatos de chico... Ya estaban allí. Y escuché unas risitas y
 una gran carcajada. Entramos al comedor y vimos a cuatro de las
-SNSD hablando con KangIn y Yoochun sobre los cd's de música que
+SNSD hablando con Kangin y Yoochun sobre los cd's de música que
 el menor tenía.
 A las otras chicas sentadas por el sofá y el suelo junto a
 algunos de los SuJu que habían venido. Pero a quien no vi por
@@ -181,7 +181,7 @@ hacer más hueco, porque nos veía a algunos comiendo en el sofá o
 en el suelo. Yo me senté al lado de Junsu y al lado de la insistente de
 TaeYeon, que no sé qué le había dado de repente conmigo.
 - ¿Dónde estabas, Changmin? - Preguntó una de las SNSD
-que había estado con Yoochun y KangIn viendo los cd's. Tenía el pelo
+que había estado con Yoochun y Kangin viendo los cd's. Tenía el pelo
 por encima del hombro, con flequillo y un color muy similar al resto
 de las otras SNSD – Has desaparecido de pronto...
 - Ah – El menor la miró – Fui a dar un paseo.
@@ -211,13 +211,13 @@ disponer, que a decir verdad, no eran muchos. Y todo fue en
 armonía. Había que admitir, que, para mi punto de vista las SNSD
 eran un poco tontas, o lo eran de verdad o actuaban muy bien, pero
 parecía que en cada carcajada se iban a romper. Menos TaeYeon,
-que reía como una loca a comentarios de KangIn mientras me cogía
+que reía como una loca a comentarios de Kangin mientras me cogía
 del brazo y asentía.
 Después de la agradable comida y del rico postre: natillas
 con galletas. Muchas de las SNSD se fueron porque tenían sus cosas
 que hacer, igual que algunos de los SuJu, que en sí, ya habían podido
 venir pocos. Y es que los que quedaron yo los conocía bien. TaeYeon,
-YoonA, Tiffany y Sunny. De los SuJu se quedaron KangIn, Heechul,
+YoonA, Tiffany y Sunny. De los SuJu se quedaron Kangin, Heechul,
 HangNeng y Sungmin. Y nada, todos estábamos esparcidos por el
 comedor, en sillones, sillas y suelo. Y silencio.
 - ¿Por qué no han venido todos los de SuJu? - Preguntó
@@ -227,7 +227,7 @@ venido...
 HangNeng – Que a Siwon le hubiera encantado venir, pero tenía que
 irse con su madre...
 - El deber del niño – Bufó Heechul.
-- ¡Heechul no te enfades! - KangIn le dio un golpetazo en el
+- ¡Heechul no te enfades! - Kangin le dio un golpetazo en el
 brazo.
 - No estoy enfadado – Puso un puchero y desvió la mirada.
 Mientras aquellos hablaban, en una conversación absurda
@@ -267,7 +267,7 @@ presión, esas cosas llegan solas.
 - Gracias... - Conseguí susurrar.
 - ¡Hey! - Dijo de pronto Hana – Vaya un royo, aquí cada uno
 va a su bola...
-- Pues sí... - Salto KangIn casi con un grito – A ver, tú – Señalo
+- Pues sí... - Salto Kangin casi con un grito – A ver, tú – Señalo
 a la primera que tuvo delante – Sunny, di algo divertido.
 - ¿Yo? - Se señaló - ¿Algo divertido?
 Al final, nos reunimos todos, hasta los que estaban en la

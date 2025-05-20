@@ -58,7 +58,7 @@ Me acerqué a ella, que discutía sutilmente con una chica, a la que conocía mu
 
 --- Pero no hace falta que grites --- Me calmó --- Kiki, lo siento... estabas demasiado liada.
 
---- ¡¡Esa escusa ya la he oído!! --- Grité, la gente a nuestro alrededor nos miraba, algunos periodistas habían comenzado a gravar, pero vi como Yunho los quitaba de en medio con la ayuda de KangIn --- ¡¡Me siento como si no encajara, como si esto no estuviera echo para mí... porque no conozco nada!! --- Lo último lo grité y todo a mi alrededor se paró. Los miré a todos y me marché de allí envuelta en lágrimas.
+--- ¡¡Esa escusa ya la he oído!! --- Grité, la gente a nuestro alrededor nos miraba, algunos periodistas habían comenzado a gravar, pero vi como Yunho los quitaba de en medio con la ayuda de Kangin --- ¡¡Me siento como si no encajara, como si esto no estuviera echo para mí... porque no conozco nada!! --- Lo último lo grité y todo a mi alrededor se paró. Los miré a todos y me marché de allí envuelta en lágrimas.
 
 --- ¡Kiki, Kiki! --- Escuché la voz de R y varios pasos detrás de mi.
 
