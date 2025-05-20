@@ -438,7 +438,7 @@ Los chicos hicieron un gesto para que las siguiéramos... y eso hice, en cuanto 
 
 Las tres seguimos al tal SangHun y entramos a la discoteca, que nos la pagó él. Parecía tener muchísimo dinero. Y dentro nos reunimos con tres chicos más, uno de ellos también estaba en el coche antes. Y para qué decir, estaban para mojar pan y comerlos hasta el amanecer. Cerré los ojos, negué con la cabeza y los miré.
 
---- Ellos son YoungWha, JunHo y HyukHae --- Dijo SangHun --- Ellas son Kiki, Hana y Elena.
+--- Ellos son YoungWha, Juno y HyukHae --- Dijo SangHun --- Ellas son Kiki, Hana y Elena.
 
 --- ¡Buah, las del cumpleaños! --- Dijo HyukHae flipando.
 
@@ -450,7 +450,7 @@ Las tres seguimos al tal SangHun y entramos a la discoteca, que nos la pagó él
 
 Y es que YoungWha era como yo más o menos de alto, con los ojos rasgados y grandes, parecía japonés, tenía una sonrisa tranquilizadora y un pelo negro y largo. No estaba demasiado fuerte, pero estaba en su punto... Elena fue lista. Miré a los otros tres y me quedé pensativa. SangHun era poco más alto que yo, tenía pinta de ser deportista, porque llevaba unos piratas y tenía unos buenos gemelos. El pelo lo tenía corto y decolorado, bastante bonito, sus ojos eran pequeños y rasgados, bien oscuros... y una boca de labios finos y sonrisa picarona. Se notaba que era un ligón.
 
-HyukHae era el menos agraciado de los tres, tenía el pelo corto y negro, sus ojos eran pequeños y los tenía algo juntos, pero un color chocolate muy bonito. Era alto, poco más que SangHun, y físicamente estaba bien delgado, pero eso sí, tenía una sonrisa muy bonita... Hasta que me fijé en JunHo. Muy alto, más que los otros, unos ojos grandes, pero a su vez pequeños, sus labios, algo gruesos se veían lindos sobre sus dientes blancos y perfectos, tenía buenos brazos y buenas piernas... para mi gusto el más guapo de los cuatro... y ligeramente me recordaba a alguien.
+HyukHae era el menos agraciado de los tres, tenía el pelo corto y negro, sus ojos eran pequeños y los tenía algo juntos, pero un color chocolate muy bonito. Era alto, poco más que SangHun, y físicamente estaba bien delgado, pero eso sí, tenía una sonrisa muy bonita... Hasta que me fijé en Juno. Muy alto, más que los otros, unos ojos grandes, pero a su vez pequeños, sus labios, algo gruesos se veían lindos sobre sus dientes blancos y perfectos, tenía buenos brazos y buenas piernas... para mi gusto el más guapo de los cuatro... y ligeramente me recordaba a alguien.
 
 --- Kiki, ¿quieres bailar? --- Me preguntó SangHun.
 
@@ -460,13 +460,13 @@ HyukHae era el menos agraciado de los tres, tenía el pelo corto y negro, sus oj
 
 --- ... --- Me miró, me encogí de hombros y sonrió --- Vale.
 
-Vi como se alejaban y entraban entre la muchedumbre a la pista de baile. Miré a HyukHae y a JunHo sonriente, sonrojada y nerviosa.
+Vi como se alejaban y entraban entre la muchedumbre a la pista de baile. Miré a HyukHae y a Juno sonriente, sonrojada y nerviosa.
 
 --- ¿Quieres tomar algo? --- Me preguntó HyukHae.
 
 --- Vale --- Dije para romper el hielo. Los tres nos acercamos a una mesa libre con varias sillas y nos sentamos. Yo en medio de los dos --- ¿Qué edad tenéis? --- Pregunté.
 
---- Yo tengo aún veintiseis --- Dijo JunHo.
+--- Yo tengo aún veintiseis --- Dijo Juno.
 
 --- Yo veintisiete --- Sonrió HyukHae mientras captaba la atención de una camarera --- ¿Y tú?
 
@@ -480,11 +480,11 @@ Y silencio sepulcral. Vino la camarera y nos tomó nota; yo pedí una cola y los
 
 --- En... --- Iba a decir la verdad pero rectifiqué, aunque en el vídeo de la fiesta se podía ver claramente donde trabajaba --- Pues... trabajo en la SM --- Asentí.
 
---- ¡Vaya! --- Sonrió JunHo de pronto --- Tal vez conozcas a mi hermano, trabaja allí.
+--- ¡Vaya! --- Sonrió Juno de pronto --- Tal vez conozcas a mi hermano, trabaja allí.
 
 --- Ya está alardeando de su hermano --- Bufó HyukHae ya con mala cara --- Tiene novio.
 
---- Bueno... --- JunHo se sonrojó --- Es por si... lo conocía... nada más --- Se puso algo nervioso.
+--- Bueno... --- Juno se sonrojó --- Es por si... lo conocía... nada más --- Se puso algo nervioso.
 
 --- ¿Cómo se llama? --- Le pregunté --- Tal vez, si no le conozco, lo he visto por ahí.
 
@@ -514,7 +514,7 @@ Esa pregunta me dio que pensar. ¿Junsu no le había hablado a su familia de mí
 
 --- Bueno, aquí hablando ya de Junsu, me aburro --- HyukHae cogió su cerveza y se puso en pie --- Me voy a ver si ligo algo...
 
-Dicho y hecho, se marchó directo a un grupo de chicas que bailaban muy animadas, las cuales, lo recibieron con mucha alegría. Miré a JunHo, quien me sonrió.
+Dicho y hecho, se marchó directo a un grupo de chicas que bailaban muy animadas, las cuales, lo recibieron con mucha alegría. Miré a Juno, quien me sonrió.
 
 --- ¿Y echas de menos a tu hermano? --- Pregunté después de beber un trago de mi refresco.
 

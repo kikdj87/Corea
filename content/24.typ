@@ -490,7 +490,7 @@ Llegamos a su casa y a mí me comían los nervios... y a él
 también, que intentaba relajarse mientras me cogía con fuerza de la
 mano. Llegue a un punto en el que no sabía si me llegaba la sangre
 ahí o no. Entramos en la casa y un olor me golpeo en la cara,
-además, un olor muy buena. JunHo acababa de terminar de poner la
+además, un olor muy buena. Juno acababa de terminar de poner la
 mesa nada más que entramos nosotros, me miro y sonrió.
 - Hola Kiki – Y luego saludo a mis padres. Me miro - ¿Todo
 bien?
@@ -505,17 +505,17 @@ cocina.
 - Ya que Junsu no lo dice – Miro a mis padres – Kiki, dile que
 se pueden sentar en el sofá mientras tanto, ¿quieren algo de beber?
 - Señalo el sofá.
-- … - Los mire – Él es JunHo, el hermano mellizo de Junsu,
+- … - Los mire – Él es Juno, el hermano mellizo de Junsu,
 quien nos invita a sentarnos al sofá y si queréis algo de beber...
 - Gracias – Dijo mi madre mientras ambos iban hacia el sofá
 – No hija, esperaremos a la cena.
-- Dicen que no les apetece nada – Le dije a JunHo – Pueden
+- Dicen que no les apetece nada – Le dije a Juno – Pueden
 esperar a la cena.
 Nos pusimos a cenar tranquilamente. La madre de Junsu
 hizo pescado, carne y arroz, mas complementos de verduras, sopas y
 demás cosas. Había muchísima comida, era cierto lo que veía en
 algunos dramas en la hora de la comida, tienen infinidad de platos.
-Después de que terminara la cena, JunHo se marchó, ya que
+Después de que terminara la cena, Juno se marchó, ya que
 SangHun vino a por él, pese a que su madre fue un poco reacia a
 que se fuera.
 Después de que mi madre ayudara a quitar la mesa a la

@@ -16,7 +16,7 @@ razonó – Pues sí... los chicos eran bien guapos...
 - Oye, tú te quedaste sola con los otros dos – Me señaló
 Hana - ¿Qué tal son?
 - ... - Me mordí la lengua... ¿se lo decía o no? - HyukHae es
-más hablador, pero tiene poca paciencia... es divertido. Y JunHo... -
+más hablador, pero tiene poca paciencia... es divertido. Y Juno... -
 Me quedé pensativa.
 - Se llama como Yunho – Sonrió Hana.
 - Yunho... - Elena se quedó pensativa.
@@ -27,21 +27,21 @@ húmedo, sin camiseta! - Empezó a ponerse nerviosa y a
 hiperventilar – Y ese maldito Yoochun entrometido... - Pataleó -
 ¿Por qué sabe español? ¡¡Lo odio!!
 - ... - Hana y yo nos miramos sonrientes. Yo tomé la palabra
-– JunHo es tímido...
+– Juno es tímido...
 - ¿Yunho? - Alzó la cabeza Elena.
-- No, JunHo, el de la fiesta de ayer – Me pasé la mano por el 
+- No, Juno, el de la fiesta de ayer – Me pasé la mano por el 
 252
 pelo – A parte de muy guapo.
 - Estoy contigo – Señaló Hana – Me recuerda a alguien... - ¿A
 ella también? Lo tenía que decir – No sé a quién... pero el tío está
 potable... y Kiki... - Me señaló y me sobresalté – Tú tienes novio.
-- ¡Ah! - Me pasé la mano por la cara – Lo sé, lo sé... JunHo es
+- ¡Ah! - Me pasé la mano por la cara – Lo sé, lo sé... Juno es
 mi cuñado.
 - Pues eso... - Silencio. Me miraron boquiabiertas, sin saber
 qué decir. La verdad es que lo solté de sopetón. Ninguna
 reaccionaba hasta que al fin Hana tomó aire - ¿Has dicho... tu
 cuñado?
-- ¿JunHo es el famoso hermano gemelo de Junsu? -
+- ¿Juno es el famoso hermano gemelo de Junsu? -
 Preguntó Elena.
 - Eso de gemelo... - Sonreí – Es su mellizo...
 - ¿Cómo lo supiste? - Preguntó Hana.
@@ -259,7 +259,7 @@ sonriente - ¿Queréis salir esta noche? - Preguntó.
 - ¿Va YoungWha? - Preguntó Elena y yo reí.
 - Si, él viene... van los mismo que la semana pasada –
 Contestó - ¿Qué decís?
-- ¿Va JunHo? - Pregunté y asintió – Ok, pues entonces voy.
+- ¿Va Juno? - Pregunté y asintió – Ok, pues entonces voy.
 - ... - Las dos me miraron extrañadas y yo me sonrojé –
 SangHun – Hana captó su atención – Sí que vamos, nos vemos en
 una hora en la discoteca... vale, pues hasta entonces, chao – Colgó y
@@ -287,10 +287,10 @@ qué pasaba, ya que el tiempo corría en mi contra. Nos bajamos del
 coche y en la puerta nos reunimos con los cuatro chicos. YoungWha
 parecía algo ausente y eso a Elena le provocó unos pucheros.
 SangHun sonrió a Hana y la agarró de la mano, atrayéndola
-hacia él y riendo de miles de cosas. JunHo cogió del hombro a
+hacia él y riendo de miles de cosas. Juno cogió del hombro a
 HyukHae y me miró con una sonrisa radiante, el otro solo pudo
 suspirar. Yo miré a Elena, quien miraba a YoungWha.
-- Ah... eh... - Miré a JunHo, quien me miró extrañado –
+- Ah... eh... - Miré a Juno, quien me miró extrañado –
 Vamos dentro, me apetece un refresco.
 - Vale... - Sonrió extrañado.
 Entramos con tanta rapidez que los otros dos no pudieron
@@ -301,32 +301,32 @@ suspiré algo triste, acordándome de Junsu.
 - No, la verdad – Sonreí.
 - ¿Por qué no vienes con tu novio? - Me preguntó y yo me
 entristecí agachando la cabeza.
-- No seas brusco – Dijo JunHo - ¿Has discutido con él o algo?
+- No seas brusco – Dijo Juno - ¿Has discutido con él o algo?
 - Más o menos – Suspiré – Pero aunque quisiera, no puedo
 venir a estos sitios con él – Y me di una patada mentalmente, no
 podía dar pistas a su propio hermano... Seguro que habría bronca...
-Junsu conmigo por decirlo, y JunHo con él por ocultárselo.
+Junsu conmigo por decirlo, y Juno con él por ocultárselo.
 - ¿No le gustan las discotecas? - Preguntó HyukHae.
 - La verdad es que no – Mentí, aunque no del todo – Pero
 bueno, todo está bien...
 - ¿Y a qué se dedica él? - Volvió a preguntar el mismo. Yo me 
 260
 puse algo incómoda.
-- ¿No ves que no quiere hablar de él? - Señaló JunHo – Para
+- ¿No ves que no quiere hablar de él? - Señaló Juno – Para
 ya...
 - Tal vez sea mentira de que tienes novio – HyukHae acercó
 su cara a la mía y yo me sobresalté y me separé bastante, casi
-chocando con JunHo – Tal vez sea una excusa para pasar de
+chocando con Juno – Tal vez sea una excusa para pasar de
 nosotros...
 - Pero si estoy con vosotros... - Le dije extrañada, me separé
-de JunHo y me sonrojé – No es mentira...
+de Juno y me sonrojé – No es mentira...
 - Demuestra que tienes novio – HyukHae sonrió – A mí me
-has gustado – Puso su mano en su barbilla. Yo miré a JunHo
+has gustado – Puso su mano en su barbilla. Yo miré a Juno
 buscando auxilio en la mirada, pero él solo sonrió - ¿Alguna foto?
-- ... - JunHo al fin reaccionó, suspiró y le dio un golpe en el
+- ... - Juno al fin reaccionó, suspiró y le dio un golpe en el
 hombro – Si no quiere decir nada, déjala, no la presiones...
 Y de pronto y de la nada, aparecieron un montón de chicas
-que rodearon a JunHo, riendo y hablando sobre si era el hermano de
+que rodearon a Juno, riendo y hablando sobre si era el hermano de
 Junsu. Yo resoplé y me crucé de brazos, busqué con la mirada a
 Elena y Hana... y las encontré... vaya si las encontré, dándose el
 lote con los chicos... puse morritos y las maldije para mis adentros.
@@ -338,10 +338,10 @@ a él – Yo tampoco...
 - Pero... que corra el aire, ¿no? - Me separé un poco y él se
 quedó algo molesto.
 - Ok, vale, lo pillo – Resopló y me soltó – A ti te ha gustado
-JunHo porque es el hermano de Junsu y mucho más guapo que yo –
+Juno porque es el hermano de Junsu y mucho más guapo que yo –
 Parecía enfadado – Por eso la excusa de que tienes novio...
 - Oye, de verdad que tengo novio... - Alcé la manos – A mí
-no me interesa JunHo para nada... De verdad que solo vengo por
+no me interesa Juno para nada... De verdad que solo vengo por
 acompañar a mis amigas.
 - Es que... no sé, pero no me fío – Se pasó la mano por el
 pelo – Muchas chicas ya me han puesto esa excusa...
@@ -362,9 +362,9 @@ terror. Sucias imágenes se me pasaron por la cabeza y estuve a
 punto de echar a correr envuelta en un mar de lágrimas – No está
 en Seúl...
 - Mentirosa – Me agarró del brazo.
-- HyukHae – JunHo hizo que me soltara y como un acto
+- HyukHae – Juno hizo que me soltara y como un acto
 reflejo lo abracé. Olía igual que Junsu. Unas lágrimas cayeron por mi
-cara, pero ninguno lo vio. Escuché la voz de JunHo algo entrecortada
+cara, pero ninguno lo vio. Escuché la voz de Juno algo entrecortada
 por lo nervioso que lo había puesto mi abrazo – No te pases con
 ella... no creo que lo haga con mala intención...
 - Tsk... - El otro bufó y no oí nada más.
@@ -373,7 +373,7 @@ sonrojado - ¿Te ha hecho algo?
 - No... - Negué – Pero... - Desvié la mirada hacia el suelo y
 una última lágrima cayó por mi cara, que murió en la comisura de
 mis labios - ¿Por qué no creer que tengo novio?
-- ... - JunHo sonrió – HyukHae es un chico muy inseguro...
+- ... - Juno sonrió – HyukHae es un chico muy inseguro...
 pero yo si te creo... - Me agarró del brazo con algo de brusquedad,
 seguía algo nervioso – Vamos, que te invito a lo que quieras...
 - Gracias – Suspiré.
@@ -404,7 +404,7 @@ HyukHae, que se acercaba a nosotros con dos cervezas en la mano -
 - Ah... bueno, no pasa nada... - Sonreí – Pero no bebo
 cerveza.
 - Vaya... - Se quedó cortado.
-- Pero yo si – JunHo la cogió y me miró – HyukHae, sí que
+- Pero yo si – Juno la cogió y me miró – HyukHae, sí que
 tiene novio... no es para ponerse así... no todas mienten...
 - Ya... en eso he recapacitado – Sonrió y se sentó a mi lado -
 ¿Y tienes más amigas?
@@ -417,30 +417,30 @@ somos...
 - Ya sabes, trabajar... yo estoy en la SM – Sonreí – Y ellas 
 263
 pues... me ayudan en mi proyecto.
-- En el que participa mi hermano, ¿verdad? - Dijo JunHo.
+- En el que participa mi hermano, ¿verdad? - Dijo Juno.
 - Si – Me sobresalté, ya que me vibró el móvil. Lo miré y vi el
 dichoso mensaje que esperaba de Junsu. Me dijo que lo escribía a
 escondidas... que lo sentía mucho, que me echaba de menos y que...
-Miré a JunHo y él sonrió sonrojado.
+Miré a Juno y él sonrió sonrojado.
 - Bueno, muchos lo saben ya, menos en mi casa – Dijo
-JunHo. HyukHae estaba extrañado.
+Juno. HyukHae estaba extrañado.
 - ¿Lo de su proyecto? - Preguntó señalándome.
-- No – Negó JunHo.
+- No – Negó Juno.
 - Casi nadie lo sabe... - Susurré desviando la mirada – Sí que
 se me vio con un chico en mi cumpleaños, pero se pusieron los
 vídeos en los que no salía su cara – Suspiré - ¿Estás enfadado?
-- ¿Yo? - JunHo se sorprendió.
+- ¿Yo? - Juno se sorprendió.
 - Oye, que yo no me entero de nada – Rió HyukHae algo
 molesto.
 - Mi novio es... - Busqué en el móvil y puse una foto de
 ambos – La verdad es que nadie debería saberlo...
-- Entonces – JunHo me quitó el móvil y, sin siquiera mirarlo,
+- Entonces – Juno me quitó el móvil y, sin siquiera mirarlo,
 quitó lo que puse y me lo devolvió – No lo digas...
 - ... - Ganamos unas malas palabras de HyukHae, unos
 bufidos y que se marchara.
 - ¡¡Kiki, Kiki!! - Las chicas llegaron solas y muy animadas -
 ¿Nos vamos ya?
-- ¿Y SangHun y YoungWha? - Preguntó JunHo.
+- ¿Y SangHun y YoungWha? - Preguntó Juno.
 - ... - Las chicas se miraron. Hana sonrió – Se han marchado -
 ¿Tienes como volver?
 - No – Echó la cabeza para atrás y dijo un taco – Bueno, ya
@@ -454,11 +454,11 @@ HyukHae...
 miró.
 - Que vive muy lejos de aquí...
 Los cuatro salimos de la discoteca y nos montamos en el
-coche. Una vez de camino a casa de JunHo... Que era lo mismo que
-ir a la casa oficial de Junsu, se hizo el silencio en el coche. JunHo iba
+coche. Una vez de camino a casa de Juno... Que era lo mismo que
+ir a la casa oficial de Junsu, se hizo el silencio en el coche. Juno iba
 adelante conmigo y las otras dos reían atrás. Cuchichearon algo en
 español, de lo cual me enteré... estaban planeando preguntarle a
-JunHo si era el hermano de Junsu... que Hana no se cortó ni un pelo
+Juno si era el hermano de Junsu... que Hana no se cortó ni un pelo
 en decirlo.
 - Si, lo soy – Respondió él con una sonrisa.
 - No os parecéis tanto... - Dijo Elena pensativa.
@@ -471,13 +471,13 @@ español, a lo que yo asentí que si - ¿Se lo has dicho tu?
 - No, ha sido Junsu quien se lo ha dicho – Suspiré – Le caló
 hondo lo que le dije...
 - ¿Qué le dijiste? - Preguntó Hana.
-- ¡Kiki, gira a la derecha! – Dijo de pronto JunHo y yo giré
+- ¡Kiki, gira a la derecha! – Dijo de pronto Juno y yo giré
 bastante rápida, así que se me fue un poco el coche y pasó rozando
 unos cubos de basura por el morro.
 - ... - Yo me quedé blanca como el papel, aflojé la velocidad y
 me sequé el sudor de la frente – Avisa... con antelación... no es mi
 coche...
-- Lo siento... - JunHo se sonrojó. Escuché las escandalosas
+- Lo siento... - Juno se sonrojó. Escuché las escandalosas
 risas de las dos petardas que tenía detrás – Y ahora a la izquierda...
 Giré y quedé maravillada con lo que vi... aquello no eran
 casas, eran mansiones. Toda la calle llena de preciosos chalets de los
@@ -487,23 +487,23 @@ su jardín.
 - ¿Cómo lo hacéis para no confundiros de casa? - Preguntó 
 265
 Hana – Son todas iguales...
-- Van por números y letras – Rió JunHo – Mira, la mía es
+- Van por números y letras – Rió Juno – Mira, la mía es
 esta... aquí a la derecha Kiki – Señaló una casa, igual que todas, pero
 con un jardín tan bonito... mucho más bonito que las otras casas –
 Anda... - Se quedó parado y me miró – Mis padres están ahí – Señaló
 a una pareja que salían de un coche y se nos quedaron mirando – Yo
 mejor me bajo ya...
 Salió del coche y Hana también salió para montarse
-adelante, ya que era un coche de tres puertas. JunHo nos agradeció
+adelante, ya que era un coche de tres puertas. Juno nos agradeció
 el que lo trajéramos y yo memoricé el número y la letra. 22C. Miré a
 sus padres y me puse muy nerviosa, tanto, que se me caló el coche.
 - Kiki tranquila – Elena me puso la mano en el hombro –
 Solo son tus suegros...
 - Solo – No atinaba para volver a arrancar el coche. Miré al
-frente y vi que su padre se acercaba a nosotras, pese a que JunHo lo
+frente y vi que su padre se acercaba a nosotras, pese a que Juno lo
 cogía del brazo para retenerlo – Mierda, viene hacia aquí... ¿la
 madre también?
-- No, la madre se queda al lado de JunHo mirándonos con
+- No, la madre se queda al lado de Juno mirándonos con
 cara de inspección... Preguntándose por qué tres chicas con un
 coche tan chulo traen a su hijo a casa a las dos de la madrugada... -
 Dijo de sopetón Hana.
@@ -518,14 +518,14 @@ arrancaba.
 – La miré mal... ¿qué iba a soltar ya por ese pico de oro que ella
 tenía?
 - ¿Es tuyo el coche? - Volvió a preguntar.
-- Papá – JunHo llegó seguido de la madre – Va siendo hora
+- Papá – Juno llegó seguido de la madre – Va siendo hora
 de que entremos...
 266
 - No sois asiáticas, ¿cierto?
-- ¡Mamá! - JunHo se estresó.
+- ¡Mamá! - Juno se estresó.
 - ¿No será alguna tu novia, verdad? - Dijo con el entrecejo
 fruncido y yo castañeé mientras apretaba con fuerza el volante... y si
-me descuidaba lo mordía de los nervios – JunHo, responde.
+me descuidaba lo mordía de los nervios – Juno, responde.
 - Mamá – Suspiró – No, solo son amigas que se han ofrecido
 traerme, SangHun me ha dejado tirado en el local – Dijo intentando
 cambiar de tema.
@@ -533,7 +533,7 @@ cambiar de tema.
 marchó.
 - ... llevad cuidado por la carretera... - Dijo su padre antes de
 irse.
-Al fin me arrancó. Agradecí a JunHo su gesto y salí de allí
+Al fin me arrancó. Agradecí a Juno su gesto y salí de allí
 súper nerviosa. Iba tan nerviosa y estresada que me perdí por el
 camino un par de veces y tardamos casi una hora en llegar al piso.
 Miré el coche por todos lados y vi que estaba perfecto, sin arañazos
@@ -542,7 +542,7 @@ Elena.
 - ¿De qué os reís? - Pregunté con un puchero.
 - Tu cara era un poema penka del mal – Rió Hana – Parece
 que les tienes miedo.
-- Bueno, menos mal que JunHo estaba ahí – Las risitas de
+- Bueno, menos mal que Juno estaba ahí – Las risitas de
 Elena me sacó de mis casillas.
 - A ver – Me incorporé y me miraron sorprendidas –
 Contarme qué tal con los chicos... que os vi una miaja ocupadas...
@@ -557,7 +557,7 @@ Jae, de Yoochun?
 - Tsk – Me sacó la lengua – Primero soy mujer, así que no me 
 267
 eches en cara nada, moza – Dijo poniendo sus brazos en su cintura al
-estilo taza – Ya te vi yo muy bien con JunHo.
+estilo taza – Ya te vi yo muy bien con Juno.
 - Es mi cuñado – Le eché en cara - ¿Qué va a haber?
 - ¿Pero cómo es que sabe lo vuestro? - Preguntó Elena.
 - Me mandó un mensaje diciéndome que le había dicho a su
@@ -581,7 +581,7 @@ mañana...
 - Hasta mañana...
 Me encerré en la habitación, me puse el pijama, me lavé la
 cara y me eché en la cama. Miré mi móvil y vi que tenía un mensaje
-de JunHo, el hermano de Junsu. Lo leí detenidamente: “Mi madre
+de Juno, el hermano de Junsu. Lo leí detenidamente: “Mi madre
 me ha preguntado mucho por vosotras, pero no te preocupes, no
 sospecha nada de lo tuyo con mi hermano... Aunque está tan puesta
 en su actualidad que sospecha que él tiene algo y está molesta

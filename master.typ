@@ -48,4 +48,4 @@
 
 -He cambiado los nombres de algunos de los personajes. El pj de R se llamará Rocío pero en la historia seguirá llamándose R.
 
--
+-Es en el capítulo ocho, final, donde Kiki les cuenta la manera en la que conoció a Yoochun

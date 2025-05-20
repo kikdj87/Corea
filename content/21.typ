@@ -11,14 +11,14 @@ No teníamos coche, así que, como la primera vez, vinieron a
 buscarnos... sorprendentemente vinieron en dos coches...
 pensándolo, de por sí, nosotras ya éramos cinco, y el conductor
 uno... Y como la primera vez, Yunho vino a por nosotras, Jae iba
-montado con él; y en otro coche iba conduciendo... ¿JunHo? Con
+montado con él; y en otro coche iba conduciendo... ¿Juno? Con
 Junsu de copiloto. Me sorprendí, pero me alegré.
 Yo me fui con Junsu, sin dudarlo. Elena y Hana se
 marcharon con Jae y Yunho (si, ellas tampoco dudaron) R se vino
 conmigo y Jane decidió ir en el coche de los otros por una
 sorprendente insistencia del líder de DBSK. En el trayecto estuvimos
 en silencio, la verdad es que después de lo que había pasado el
-domingo anterior no había hablado con JunHo de nada... y con Su
+domingo anterior no había hablado con Juno de nada... y con Su
 no había salido el tema, sinceramente estaba algo estresada y
 nerviosa.
 - Kiki... - R captó mi atención – No tiembles – Dijo en
@@ -43,10 +43,10 @@ echaba a llorar de verdad.
 - Digo... quería decir, que no estabais hablando de eso... -
 Me miró triste y yo sollocé dos veces – Kiki, te creo... sé que me
 quieres... pero...
-- Junsu, eres muy espontáneo – JunHo a su lado rió – No
+- Junsu, eres muy espontáneo – Juno a su lado rió – No
 tienes remedio.
 - Lo siento Kiki...
-El resto del camino fue en silencio. JunHo optó por poner un
+El resto del camino fue en silencio. Juno optó por poner un
 cd que yo conocía de oídas, y era de SHINee, un grupo de la misma
 empresa que los chicos. Llegamos a su piso y seguimos al coche de
 Yunho por el parking, casi vacío, donde se podían ver unos coches
@@ -125,7 +125,7 @@ no me duermo...
 - ¡¡Hagamos un juego!! - Dijo de pronto Jane, alzando un
 puño.
 - Voy a la cocina...
-Justo cuando iba a ir a la cocina, JunHo me cogió del brazo y
+Justo cuando iba a ir a la cocina, Juno me cogió del brazo y
 me colocó al lado de su hermano. Lo miré a él y luego a Junsu.
 - Tenéis que hablar... - Bostezó y se marchó.
 - … - Suspiré y lo miré.
@@ -232,7 +232,7 @@ brazo.
 - No estoy enfadado – Puso un puchero y desvió la mirada.
 Mientras aquellos hablaban, en una conversación absurda
 en la que se metió Elena y Jane, yo me apoyé en Junsu y miré a
-JunHo. Y como al lado de JunHo estaba Changmin, lo miré y vi que
+Juno. Y como al lado de Juno estaba Changmin, lo miré y vi que
 hablaba tranquilamente con Hana y con R. Moví la cabeza con
 rapidez y vi a Yoochun hablando con Jae y con Yunho en un rincón
 de la cocina, hablaban flojo y no me enteraba de lo que decían, pero
@@ -241,13 +241,13 @@ no le di importancia... no soy una persona muy... entrometida...
 - ¿En qué piensas? - Junsu acariciaba mi pelo – Te noto
 pensativa.
 320
-- Ah... - Lo miré y miré a JunHo – Pensaba en lo que pasó el
+- Ah... - Lo miré y miré a Juno – Pensaba en lo que pasó el
 fin de semana pasado – Dejé caer y ambos hermanos se miraron.
 Escuché el arrastrar de una silla y vi que Tiffany se acercó a los que
 estaban en la cocina hablando. Se miraron y de nuevo Junsu captó
 mi atención – Lo siento... Es que me como mucho la cabeza con todo
 lo que me dijisteis.
-- ¿Qué te dijimos? - Preguntó JunHo curioso.
+- ¿Qué te dijimos? - Preguntó Juno curioso.
 - Ah, que olvidadizos – Negué.
 - Pues nos pones al día – Junsu rió – No creo que sea muy
 difícil.
@@ -257,7 +257,7 @@ Bueno, quiero pediros disculpas a los dos... sobre todo a Junsu, por
 presionarte sin motivo.
 - ¿Presionarme? - Asentí y él meditó – Bueno... en cierto
 modo si sentí una gran presión.
-- ¿Y a mí por qué? - JunHo se señaló - ¿Porque me pides
+- ¿Y a mí por qué? - Juno se señaló - ¿Porque me pides
 disculpas?
 - No lo sé... - Suspiré – Tal vez me enfadé como una niña
 tonta al enterarme de que nadie de tu familia sabía nada de mi...
@@ -313,13 +313,13 @@ casa veinticinco minutos después. Yo lo mire con miedo y mi cuerpo
 322
 empezó a temblar solo.
 - Junsu... no sé si...
-- ¿Estás seguro? - Pregunto JunHo.
+- ¿Estás seguro? - Pregunto Juno.
 - Si – Dijo afirmando muy serio – Es mejor ahora.
 - Es... muy tarde – Dije tartamudeando.
 - Es la hora perfecta – Y los tres bajamos del coche.
 Me agarre a la camiseta de Junsu por la espalda y
 caminamos por el conocido camino que vi cuando vine a dejar a
-JunHo y entramos en la famosa casa... 22C. Sentía que mi corazón se
+Juno y entramos en la famosa casa... 22C. Sentía que mi corazón se
 iba a salir del pecho y las manos me sudaban muchísimo, solo
 esperaba no tener que dar la mano a nadie mientras estuviera allí. Y
 solo pensaba en qué pensarían sus padres de mí, ya que no sabía si
@@ -334,9 +334,9 @@ quitamos los zapatos en la entrada y yo lo mire todo admirada. Era
 una casa acogedora, más pequeña de lo que se veía por fuera,
 impresionaba de lo bonita y bien decorada que estaba, y como era
 de esperar... muchas fotos de Junsu. Yo seguía agarrada a su
-espalda, ralentizando el paso, JunHo entro al comedor antes que
+espalda, ralentizando el paso, Juno entro al comedor antes que
 nosotros y nos preparó el terreno.
-- Mama, ¿dónde está papa? - Pregunto JunHo.
+- Mama, ¿dónde está papa? - Pregunto Juno.
 - Aun sigue en el restaurante, ¿por? - Estremecí al escuchar
 su voz y Junsu rió - ¿Junsu?
 - Si, hola mama – Junsu entro y casi me obligo a ir tras el –
@@ -349,7 +349,7 @@ prensa y el huracán apuñalada, el que me dejo un mal sabor de boca
 al recordarlo. Nos miramos serias durante un instante y se puso en
 pie.
 - Ya sabía yo algo... - Se acercó a mí con mirada seria - ¿Tu
-eres la chica que trajo a JunHo hace unas semanas?
+eres la chica que trajo a Juno hace unas semanas?
 - S-si – Me incline y al fin reaccione – Me llamo...
 - Ella es María – Junsu me corto – Siento no habértelo dicho
 antes, mama...
@@ -369,11 +369,11 @@ agrado hacia mí – Pasad y sentaros... ¿quieres tomar algo?
 - ¿Un té o un refresco? - Me pregunto pasando de Junsu.
 - Una infusión... - Dije tímida, a decir verdad, no me gustaba
 el té y no tenía ganas de tomar refrescos.
-- JunHo – Capto la atención de él antes de que desapareciera
+- Juno – Capto la atención de él antes de que desapareciera
 – Trae unas galletas y la infusión que hay en el fuego.
 - ¿Ya tenías algo preparado? - Junsu se sorprendió.
 - Para mí y tu padre.
-Los tres nos sentamos y enseguida JunHo trajo lo que su
+Los tres nos sentamos y enseguida Juno trajo lo que su
 madre pidió y se marchó a su habitación dedicándome una sonrisa y
 alzando su dedo pulgar.
 Hablamos de mí mientras llegaba el padre de Junsu. Me
@@ -394,7 +394,7 @@ señalándome.
 Se acercó a mí y me examino lentamente, luego miro a
 Junsu y busco por todos lados. Su mujer le pregunto qué hacía
 dando vueltas.
-- ¿Y JunHo? - Pregunto – Esa chica fue la que lo trajo...
+- ¿Y Juno? - Pregunto – Esa chica fue la que lo trajo...
 - Papa, es mi novia – Dijo Junsu.
 - ¿Cómo has dicho que te llamas?
 - María – Estaba muy acongojada, no sabía que podía ocurrir
@@ -403,7 +403,7 @@ a continuación.
 Nos sentamos de nuevo en el sofá y hablamos sobre mi país,
 mis costumbres, mis ideas religiosas... Realmente fue muy
 repetitivo, pero cuando ya nos íbamos (después de habernos
-despedido de JunHo) Junsu sonrió satisfecho en el coche.
+despedido de Juno) Junsu sonrió satisfecho en el coche.
 - Me alegro mucho el haber venido hoy... ¿sabes?
 - ¿A si? - Yo intentaba recuperarme mientras me frotaba las
 manos en los muslos - ¿Por qué esa sonrisa?

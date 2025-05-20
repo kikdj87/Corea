@@ -527,9 +527,9 @@ muy bien – Asintió su madre. Me estaba cayendo bien esa mujer –
 Aun que veo... que nadie sabe de tu relación con mi hijo.
 - Ahora es conveniente que no se sepa nada... - Alce las
 manos.
-- Hola Kiki – JunHo acababa de llegar – Has estado muy bien.
+- Hola Kiki – Juno acababa de llegar – Has estado muy bien.
 - Gracias...
-- ¿Kiki? - Sus padres lo miraron. Y ahí fue cuando JunHo les
+- ¿Kiki? - Sus padres lo miraron. Y ahí fue cuando Juno les
 explico que me llamaban cariñosamente Kiki, pero ellos fueron muy
 reacios a llamarme así, me dijeron que me llamarían por mi nombre
 – Kiki suena muy extraño... te acabamos de conocer.

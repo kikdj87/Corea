@@ -97,9 +97,9 @@ hombros.
 - ¿Quiénes vais? - Pregunté.
 - Yo, YoungWha, HyukHae y un amigo de HyukHae, no sé
 quién es – Se encogió de hombros.
-- ¿No va JunHo?
+- ¿No va Juno?
 - ¿Pero tú no tenías novio? - Rió.
-- Claro que tengo... - Bufé – Pero JunHo es el único con el 
+- Claro que tengo... - Bufé – Pero Juno es el único con el 
 294
 que puedo hablar...
 - A pues... - Se encogió de hombros – Llámalo tú, no le
@@ -107,10 +107,10 @@ apetece salir esta noche.
 - Claro que lo llamaré...
 Giré sobre mis talones, entré a la habitación y cerré con
 pestillo. No sabía por qué hacía esto, pero no sé, algo me decía que
-lo hiciera. Cogí el móvil y marqué el teléfono de JunHo. Un tono,
+lo hiciera. Cogí el móvil y marqué el teléfono de Juno. Un tono,
 dos, tres...
 - ¡Hola! - Parecía animado - ¿Qué tal?
-- Hola JunHo – Dije sonriente – Genial, ¿y tú?
+- Hola Juno – Dije sonriente – Genial, ¿y tú?
 - Bien... ¿querías algo? - Preguntó.
 - Bueno... tengo a SangHun en mi casa para salir de fiesta, y
 me ha dicho que tú no vas – Dije algo nerviosa... ¿por qué estaba
@@ -121,7 +121,7 @@ si HyukHae dice de no creer que tengo novio otra vez?
 - ... - Suspiró pensativo – Bueno, si me lo pides tú, iré – Rió -
 ¡Ah! ¿Has visto a mi hermano hoy? Ha estado aquí y ha pasado por
 casa...
-- Ah, eh... sobre eso, JunHo yo...
+- Ah, eh... sobre eso, Juno yo...
 - No te preocupes – Dijo con tranquilidad – No está
 enfadado conmigo... ni contigo... Simplemente nervioso, él es así...
 - Ya... bueno...
@@ -139,7 +139,7 @@ cirujano. Le gustaba el voleibol y lo jugaba los fines de semana y en
 sus ratos libres. Bueno, todas flipamos, era un chico súper completo,
 además de que era muy, muy guapo.
 Al llegar a la discoteca vimos a YoungWha, HyukHae, otro
-chico más y, algo más apartado, estaba JunHo mientras hablaba por
+chico más y, algo más apartado, estaba Juno mientras hablaba por
 teléfono. Nos bajamos del coche y Elena fue directa a
 YoungWha... también tenía que hablar seriamente con ella... no
 podía ser que yo contara mis penas, pero que nadie me contara las
@@ -152,11 +152,11 @@ la cintura – Él es...
 educadamente – Tengo 23 años y trabajo con HyukHae.
 - ¿Y dónde trabajas? - Pregunté.
 - ... - Se puso nervioso – Anda, vamos dentro... - Miró a la
-derecha - ¡¡JunHo, vamos!!
+derecha - ¡¡Juno, vamos!!
 Y me quedé con la curiosidad... él me fastidiaba, pues yo
 también le fastidiaba... ¿quién se había creído que era? Era Kiki, por
 si no me conocía. Pues al entrar fuimos todos juntos a una de las
-mesas más grandes del local. JunHo terminó de hablar por teléfono
+mesas más grandes del local. Juno terminó de hablar por teléfono
 y se sentó a mi lado... y para no variar, al otro lado se sentó
 HyukHae. Esa noche le sacaría dónde trabajaba, sí o sí.
 - ¿Entonces sois novios? - Preguntó R a Hana y a SangHun.
@@ -173,10 +173,10 @@ encogió de hombros – No preguntes eso de sopetón, R...
 296
 - Vaya, tienes un nombre muy bonito – Dijo él y consiguió
 que mi amiga se sonrojase. A decir verdad, KyuMin era muy guapo, y
-además de eso alto, como JunHo. Tenía el pelo castaño y alborotado,
+además de eso alto, como Juno. Tenía el pelo castaño y alborotado,
 le sentaba muy bien. Y su sonrisa era bien tierna, como un niño.
 Y mientras todos hablábamos tranquilamente sobre
-nuestras cosas y demás, JunHo se puso en pie y me cogió de la
+nuestras cosas y demás, Juno se puso en pie y me cogió de la
 mano, no me dejó decir nada, simplemente me llevó tras él; y tras
 de nosotros dejó muchas miradas curiosas. Salimos fuera del local y
 se sentó en un macetero. Me miró.
@@ -219,7 +219,7 @@ mal...
 Me limpié bien la cara con un pañuelo que tenía en el bolso
 y, con sonrisa radiante, entré dentro. HyukHae me picó en el costado
 y comenzó con sus tonterías. Todos rieron, incluso yo, ya me había
-acostumbrado a sus rabietas. JunHo se sentó de nuevo a mi lado no
+acostumbrado a sus rabietas. Juno se sentó de nuevo a mi lado no
 tan animado como antes.
 - ¡Si tiene novio! - Dijo HyukHae entre carcajadas - ¿Cómo se
 te ocurre declararte?
@@ -271,7 +271,7 @@ ha dicho eso?
 - Bueno, Junsu ha estado hablando con su hermano esta
 noche... - Se quedó pensativo – Y todos estábamos presentes... Ha
 ido a su casa también después del rodaje y su madre le contó que
-fuisteis a dejar a JunHo a su casa – Me contó – No estaba muy
+fuisteis a dejar a Juno a su casa – Me contó – No estaba muy
 contenta de que no fuerais coreanas...
 - ¿Es eso, verdad? - Suspiré y caí vencida en la cama – Esto
 me puede... no es bueno para mí ni para Junsu...
