@@ -1,352 +1,351 @@
 = Capítulo 11
 
-Yo no dije nada. No importaba que Junsu estuviera herido, yo no podía soltar eso con tanta facilidad. Unas lágrimas salieron de mis ojos y no quise mirar a los cuatro chicos que me miraban esperando respuesta. Me sentí tan acribillada, que subí las escaleras con mucha rapidez, abriéndome paso ente la gente. Saqué las llaves y entré, cerrándolo todo. Me apoyé en la puerta y respiré muy agitada... ¿por qué me estaba volviendo a pasar eso? ¿Por qué los chicos me miraban así? ¿A caso era mi culpa que Junsu estuviera...? Y comencé a llorar.
+No dije nada. No importaba que Junsu estuviera herido, no podía soltar eso con tanta facilidad. Unas lágrimas salieron de mis ojos y no quise mirar a los cuatro chicos que me miraban esperando respuesta. Me sentí tan acribillada, que subí las escaleras con mucha rapidez, abriéndome paso ente la gente. Saqué las llaves y entré, cerrándolo todo. Me apoyé en la puerta y respiré muy agitada, ¿por qué me estaba volviendo a pasar eso? ¿Por qué los chicos me miraban así? ¿A caso era mi culpa que Junsu estuviera herido? Y comencé a llorar.
 
---- ¿María? --- Llamaron al timbre de mi casa, eran los abogados --- María, tenemos que hablar, abre la puerta por favor...
+---¿María? ---llamaron al timbre de mi casa, eran los abogados --- María, tenemos que hablar, abre la puerta por favor.
 
---- Todo lo que ha sucedido hoy tiene que aclararse --- Dijeron --- Por favor... ya verá como saldrá bien.
+---Todo lo que ha sucedido hoy tiene que aclararse --- dijeron --- Por favor, ya verá como saldrá bien.
 
---- ¡¡Y luego vendrá otro loco queriéndome matar!! --- Grité mientras me secaba las lágrimas.
+---¡Y luego vendrá otro loco queriéndome matar! ---grité mientras me secaba las lágrimas.
 
---- Nada de eso pasará... Vamos, hablemos...
+---Nada de eso pasará. Vamos, hablemos.
 
 Me separé de la puerta y la abrí. Allí estaban los dos serios, mirándome a la cara. Los hice pasar y me quedé mirando la puerta, por si venía alguien más.
 
---- Los chicos y tus amigas se han ido a comisaría a declarar --- Dijo Jaehoon --- Tú no hace falta que vayas...
+---Los chicos y tus amigas se han ido a comisaría a declarar ---dijo Jaehoon --- Tú no hace falta que vayas.
 
---- ¿Y Junsu? --- Los miré y cerré la puerta.
+---¿Y Junsu? ---los miré y cerré la puerta.
 
---- Yoochun se marchó con él al hospital --- Dijo Yunchae --- Él está bien... no ha sido de gravedad...
+---Yoochun se marchó con él al hospital ---dijo Yunchae --- Él está bien, no ha sido una herida mortal.
 
-Agaché la cabeza y agradecí que no fuera tan grave. Suspiré. Los miré y ellos me miraron... y yo que creía que aquel asunto había sido olvidado... Cuánto me equivocaba... aquello tan solo era el
-comienzo.
+Agaché la cabeza y agradecí que no fuera tan grave. Suspiré. Los miré y ellos me miraron, y yo que creía que aquel asunto había sido olvidado. Cuánto me equivocaba, la vida y sus consecuencias no se detenía.
 
-Como era de suponer, la cena esa noche se suspendió. A la mañana siguiente me desperté bien temprano, antes de que sonara el despertador y antes de que las chicas se levantaran. Lo primero que hice fue entrar a la ducha, y una vez dentro escuché como las chicas se levantaban y se movían.
+Como era de suponer, la cena esa noche se suspendió.
 
---- Kiki --- Escuché la voz de Hana que entraba al baño. Suerte que la bañera tuviera cortinas --- ¿Podemos hablar?
+A la mañana siguiente me desperté bien temprano, antes de que sonara el despertador y antes de que las chicas se levantaran. Lo primero que hice fue entrar a la ducha, y una vez dentro escuché como las chicas se levantaban y se movían.
 
---- Habla... --- Dije muy seria.
+---Kiki ---escuché la voz de Hana que entraba al baño --- ¿Podemos hablar?
 
---- Cuando llegamos a casa ayer, lo vimos --- Comenzó a decir --- Nos preguntó si alguna era María. La verdad sea dicha, nos dejó muy extrañadas, ya que no sabíamos que te llamaban María --- Se quedó pensativa y siguió hablando --- Pero no le dimos importancia, sonrió y nosotras subimos... Y cuando escuché que le dijiste a Yunho lo de que por tu culpa su hermano está en la cárcel... --- Hizo una pausa --- Me dio mucho en qué pensar...
+---Habla... ---dije muy seria.
 
---- Hana --- Asomé la cabeza por la cortina --- Yo me voy ya a la SM, si os queréis venir, arreglaros...
+---Cuando llegamos a casa ayer, lo vimos ---comenzó a decir --- Nos preguntó si alguna era María. La verdad sea dicha, nos dejó muy extrañadas, no sabíamos si era un conocido tuyo ---se quedó pensativa y siguió hablando --- Pero no le dimos importancia, sonrió y nosotras subimos. Y cuando escuché que le dijiste a Yunho lo de que por tu culpa su hermano está en la cárcel ---hizo una pausa --- Me dio mucho en qué pensar.
 
---- ... --- Asintió --- Vale...
+---Hana ---asomé la cabeza por la cortina --- Yo me voy ya a la SM, si os queréis venir, arreglaros.
 
-Y salió del baño. Terminé de ducharme y salí puesta en toalla para la habitación. Una vez arregladas, las cinco fuimos directas a la SM. Nada más llegar, vimos que aquello era un auténtico caos. La prensa agobiaba a los empresarios con millones de preguntas que no tenían respuestas, o si las tenían, solo podía responderlas yo. Entramos discretamente y vi a Lee Sooman, quien se acercó a mí rápidamente.
+---Vale ---asintió, pude ver en su rostro una pequeña decepción al no continuar con la conversación.
 
---- ¿Estás bien? --- Me preguntó --- Me he enterado de todo lo ocurrido ayer, lo siento mucho María.
+Salió del baño. Terminé de ducharme y salí puesta en toalla para la habitación. Una vez arregladas, las cinco fuimos directas a la SM. Nada más llegar, vimos que aquello era un auténtico caos. La prensa agobiaba a los que entraban y salían con millones de preguntas que no tenían respuestas, o si las tenían, solo podía responderlas yo. Entramos discretamente por el garaje y vi a Lee Sooman, quien se acercó a mí rápidamente.
 
---- No se preocupe... usted no tiene culpa de nada --- Sonreí --- ¿Se ha dicho público lo de Junsu?
+---¿Estás bien? ---me preguntó --- Me he enterado de todo lo ocurrido ayer, lo siento mucho María.
 
---- En ningún momento nosotros dijimos nada --- Dijo --- Pero alguien filmó lo que ocurrió y se lo ha vendido a la prensa. Tenemos a muchísima gente queriendo respuestas, por no decir las fans, que han liado una...
+---No se preocupe, usted no tiene culpa de nada ---sonreí --- ¿Se ha dicho público lo de Junsu?
 
---- ¿Muy grande? --- Comencé a preocuparme.
+---En ningún momento nosotros dijimos nada ---dijo --- Pero alguien filmó lo que ocurrió y se lo ha vendido a la prensa. Tenemos a muchísima gente queriendo respuestas, por no decir las fans.
 
---- Bueno --- Se quedó serio --- Quieren saber cosas de ti. Como por ejemplo, ¿qué hacían ellos en tu casa? --- Se pasó la mano por la sien --- Esto no está yendo nada bien... El drama se tiene que aplazar.
+---¿Se ha liado mucho? ---comencé a preocuparme.
 
---- Supongo --- Agaché la cabeza --- Lo siento mucho señor Lee Sooman, no creía que esto iba a llegar tan lejos... no era mi intención...
+---A decir verdad, si ---se quedó serio --- Quieren saber cosas de ti. Como por ejemplo, ¿qué hacían ellos en tu casa? ---se pasó la mano por la sien --- Esto no está yendo nada bien. El drama se tiene que aplazar.
 
---- Tranquila, todo tiene su solución, aunque a veces sea dolorosa.
+---Supongo ---agaché la cabeza --- Lo siento mucho señor Lee Sooman, no creía que esto iba a llegar tan lejos, no era mi intención.
 
---- ¿Qué quiere decir? --- Lo miré abriendo mucho los ojos.
+---Tranquila, todo tiene su solución, aunque a veces sea dolorosa.
 
---- Tomate unas vacaciones Kiki --- Colocó su mano en mi hombro --- Y no solo en la empresa. Con los chicos también. Ahora mismo las fans quieren tu cabeza en una bandeja de plata ¿Lo entiendes, verdad? --- Y yo asentí lentamente --- Me alegro. Ve a casa a descansar.
+---¿Qué quiere decir? ---lo miré abriendo mucho los ojos.
+
+---Tomate unas vacaciones María ---colocó su mano en mi hombro --- Y no solo en la empresa. Con los chicos también. Ahora mismo las fans quieren tu cabeza en una bandeja de plata. ¿Lo entiendes, verdad? Ve a casa a descansar.
 
 Me quedé en estado de shock, sin saber cómo reaccionar, pero desperté cuando las chicas se acercaron a mí. Las miré y comencé a llorar como una tonta, sin decir nada, las cuatro me abrazaron y estuvimos así un rato. Me parecía increíble que me pasara eso cuando realmente yo no tenía la culpa de nada. Me separé de ellas y saqué mi móvil para llamar a Yunho.
 
---- ¿Cómo está Junsu? --- Le pregunté aún medio llorosa.
+---¿Cómo está Junsu? ---le pregunté aún medio llorosa.
 
---- Muy bien... --- Me dijo --- Mañana o pasado le darán el alta --- Parecía algo serio --- ¿Y tú? ¿Qué tal?
+---Muy bien ---su respuesta fue cortante --- Mañana o pasado le darán el alta. ¿Y tú? ¿Qué tal?
 
---- Bien... --- Intenté guardarme las lágrimas --- ¿Puedo ir a ver a Junsu?
+---Bien ---intenté guardarme las lágrimas, escucharle tan serio me impactaba --- ¿Puedo ir a ver a Junsu?
 
---- Lee Sooman me ha llamado --- Esa fue su respuesta.
+---Lee Sooman me ha llamado ---esa fue su respuesta.
 
---- Yunho --- Al final comencé a llorar --- De acuerdo... os lo contaré todo... pero no me dejéis sin ver a Junsu... necesito verle.
+---Yunho ---al final comencé a llorar --- De acuerdo, os lo contaré todo, pero no me dejéis sin ver a Junsu. Necesito verle.
 
---- ... --- Se quedó callado por un momento --- Vale... pero será cuando Junsu salga del hospital... lo siento Kiki, pero ahora la prensa nos acosa y las fans...
+---Vale... ---se quedó callado por un momento --- Pero será cuando Junsu salga del hospital. Lo siento Kiki, pero ahora la prensa nos acosa y las fans más.
 
---- Ya, lo entiendo... --- Agaché la cabeza --- Gracias...
+---Ya, lo entiendo ---agaché la cabeza --- Gracias.
 
---- Te llamaré cuando salga del hospital... --- Hizo una pausa --- Él también tiene muchas ganas de verte... Hasta luego...
+---Te llamaré cuando salga del hospital ---hizo una pausa --- Él también tiene muchas ganas de verte. Hasta luego.
 
---- Chao... --- Colgué y me sequé las lágrimas. Miré a las chicas --- Vosotras no tenéis nada que ver con este follón... quedaros...
+---Adiós ---colgué y me sequé las lágrimas. Miré a las chicas --- Vosotras no tenéis nada que ver con este follón, así que os podéis quedar.
 
---- ¿Qué has hablado con Lee Sooman? --- Preguntó R --- ¿Por qué estás llorando?
+---¿Qué has hablado con Lee Sooman? ---preguntó R --- ¿Por qué estás llorando?
 
---- ... --- Y como una estúpida, volví a llorar al recordarlo --- Voy a estar un tiempo sin venir a trabajar y... sin ver a Junsu --- Elena me abrazó al decir eso --- Así que yo vuelvo a casa.
+---Yo... ---y como una estúpida, volví a llorar al recordarlo --- Voy a estar un tiempo sin venir a trabajar y sin ver a Junsu ---Elena me abrazó al decir eso --- Así que vuelvo a casa.
 
---- No puedes volver sola, Kiki... --- Dijo Elena.
+---No puedes volver sola, Kiki ---dijo Elena.
 
---- Y no volverá sola --- Dongsea estaba serio --- Yo te llevaré, María...
+---Y no volverá sola ---Dongsea estaba serio --- Yo te llevaré, María.
 
 Me despedí de las chicas y me fui con Dongsea hacia el parking, donde tenía su bonito coche negro aparcado. Ambos fuimos todo el trayecto en silencio. Al llegar a casa, me vi a periodistas en la puerta, como si esperaran a alguien.
 
---- María, eh... yo...
+---María, yo...
 
---- ¿Por qué estabas ayer en mi casa? --- Pregunté seria.
+---¿Por qué estabas ayer en mi casa? ---pregunté con la vista en mis manos, que las tenía en el regazo.
 
---- Después de hablar con Lee Sooman, quería ir a pedirte perdón --- Dijo cabizbajo --- Dije unas palabras muy groseras... pero de pronto vi a los chicos, y más o menos vi el forcejeo entre Junsu y ese tipo que intentó hacerte daño --- Suspiró --- Por eso llamé a tus abogados... Pero no me quedé por la situación... ¿Por qué te atacó el tipo ese?
+---Después de hablar con Lee Sooman quería ir a pedirte perdón ---dijo cabizbajo --- Dije unas palabras muy groseras, pero vi llegar a los chicos. Después más o menos vi el forcejeo entre Junsu y ese tipo que intentó hacerte daño. Por eso llamé a tus abogados. Pero no me quedé por la situación. ¿Por qué te atacó el tipo ese?
 
---- Su hermano fue uno de los que me... --- Y la palabra que iba a decir se me atragantó en la garganta. Las lágrimas cayeron solas. Él me miró y suspiró --- Quería vengarse...
+---Su hermano fue uno de los que me... ---y la palabra que iba a decir se me atragantó en la garganta. Las lágrimas cayeron solas. Él me miró y suspiró --- Quería vengarse.
 
---- Menos mal que ellos estaban allí --- Dijo casi para sus adentros.
+---Menos mal que ellos estaban allí ---dijo casi para sus adentros.
 
---- Pero he causado muchos problemas... con ellos y con la SM --- Me tapé la cara con las manos --- El drama se aplazará, no puedo ir a trabajar... ni siquiera puedo ver a Junsu.
+---Pero he causado muchos problemas. Con ellos y con la SM ---me tapé la cara con las manos --- El drama se aplazará, no puedo ir a trabajar y ni siquiera puedo ver a Junsu.
 
---- ... --- Me miró serio --- Lo siento mucho, María...
+---Lo siento mucho, María... ---me miró serio.
 
---- No, si tú no tienes la culpa de nada --- Sonreí como pude --- Quiero ir al hospital para ver a Junsu, pero Yunho no me deja --- Y volví a romper a llorar --- Ahora solo quiero desaparecer de aquí... o viajar en el pasado y quedarme en aquel bar aquella tarde que me pasó eso...
+---No, si tú no tienes la culpa de nada ---sonreí como pude bajando las manos --- Quiero ir al hospital para ver a Junsu, pero Yunho no me deja. Ahora solo quiero desaparecer de aquí o viajar al pasado y quedarme en aquel bar aquella tarde que me pasó eso.
 
---- María... cuando las cosas...
+---María, cuando las cosas...
 
---- Ahórrate el sermón, por favor... --- Lo corté --- Ya sé que no puedo cambiar el pasado... y también sé que cuando las cosas suceden, es por nuestro bien, o al menos para que aprendamos --- Suspiré y apoyé mi cabeza en el reposacabezas.
+---Ahórrate el sermón, por favor... ---lo corté alzando una mano, mirándole seria --- Ya sé que no puedo cambiar el pasado y también sé que cuando las cosas suceden, es por nuestro bien, o al menos para que aprendamos ---suspiré y apoyé mi cabeza en el asiento del coche.
 
---- Si, bueno... más o menos --- Sonrió --- ¿Y ahora qué harás?
+---Si, bueno, más o menos ---se quedó pensativo --- ¿Y ahora qué harás?
 
---- Encerrarme en casa y esperar que pase esto... buscar piso y mudarme --- Resoplé --- Ya no quiero vivir aquí nunca más...
+---Encerrarme en casa y esperar que pase esto, buscar piso y mudarme ---resoplé --- Ya no quiero vivir aquí nunca más.
 
---- ¿Dónde vivirás? --- Me preguntó.
+---¿Dónde vivirás? ---me preguntó.
 
---- Lejos de la capital... a las afueras --- Me preparé para bajar del coche --- Muchas gracias por traerme.
+---Lejos del centro, a las afueras ---me preparé para bajar del coche --- Muchas gracias por traerme.
 
---- No pienso dejar que cruces tú sola ese mar de periodistas --- Se bajó conmigo --- Te acompaño.
-
---- Gracias...
+---No pienso dejar que cruces tú sola ese mar de periodistas ---se bajó conmigo --- Te acompaño.
 
 Pasamos entre los periodistas muy rápidos y me acompañó hasta la mismísima puerta del piso. Me despedí de él y entré, cerrando con llave. Miré al rededor por toda la casa y me cercioré de que estaba yo sola. Por un momento me estremecí al recordar todo lo que pasó, suspiré y me fui directa a mi cama, me tumbé y pasé de todo el mundo que se movía por esa casa.
 
---- Kiki, estoy cansada... vas a venir a comer --- Vi a Hana y a Elena enfadadas en la puerta de la habitación --- Desde ayer que no comes... tienes que comer algo...
+---Kiki, estoy cansada, vas a venir a comer ---vi a Hana y a Elena enfadadas en la puerta de la habitación --- Desde ayer que no sales de aquí y tienes que comer algo.
 
---- Al final vas a caer enferma --- Dijo Elena --- Y a Junsu no le gustaría que...
+---Al final vas a caer enferma ---dijo Elena --- Y a Junsu no le gustaría que...
 
---- Cállate --- Dije --- No voy a ver a Junsu... y tampoco quiero comer...
+---Cállate ---dije en un hilo de voz, encogida bajo las sábanas --- No voy a ver a Junsu y tampoco quiero comer.
 
---- Me importa una mierda --- Hana dio varios pasos hacia mí, me agarró del brazo y me incorporó --- No pienso dejar que te hundas y te enfermes...
+---Me importa una mierda ---Hana dio varios pasos hacia mí, me agarró del brazo y me incorporó --- No pienso dejar que te hundas y te enfermes.
 
---- Es cierto Kiki --- Elena tenía gesto preocupado --- Tienes que comer... Hoy la comida la hicieron Jane y R...
+---Es cierto Kiki ---Elena tenía gesto preocupado --- Tienes que comer. Hoy la comida la hicieron Jane y R.
 
---- No quiero comer, ¿vale?
+---No quiero comer, ¿vale?
 
---- Me da igual --- Hana me obligó a levantarme de la cama --- Comerás como que yo me llamo Hana.
+---Me da igual ---Hana me obligó a levantarme de la cama --- Comerás como que yo me llamo Hana.
 
---- En realidad no te llamas así --- Dije mientras me dejaba arrastrar.
+---En realidad no te llamas así ---dije mientras me dejaba arrastrar.
 
---- ... --- Me miró enfadada --- Kiki --- Me sentó en una silla y me miró a la cara --- De verdad que esto lo estás liando mucho... no es para tanto.
+---Kiki ---me miró enfadada y me sentó en una silla --- De verdad que esto lo estás liando mucho, no es para tanto.
 
---- Para mí si --- Un par de lágrimas cayeron --- En realidad no lo entendéis...
+---Para mí si ---un par de lágrimas cayeron --- En realidad no lo entendéis...
 
---- ¿Sabes por qué no lo entendemos? --- Dijo de pronto R, todas la miramos --- Porque no nos has contado el motivo por el cual ese desgraciado te atacó.
+---¿Sabes por qué no lo entendemos? ---dijo de pronto R, todas la miramos --- Porque no nos has contado el motivo por el cual ese desgraciado te atacó.
 
---- Kiki --- Jane apareció de golpe --- Un tal Jaehoon te llama al móvil.
+---Kiki ---Jane apareció a mi lado --- Un tal Jaehoon te llama al móvil.
 
---- ... --- Alcé la cabeza y cogí el teléfono --- Es mi abogado --- Les dije a las chicas --- ¿Diga?
+---Ah... ---alcé la cabeza y cogí el teléfono --- Es mi abogado ---les dije a las chicas --- ¿Diga?
 
---- ¿María? Soy Jaehoon --- Me dijo serio --- Hemos identificado al que te agredió la otra noche. Es el hermano mayor de uno de los que te agredieron... Ya sabes lo que toca, ¿no?
+---¿María? Soy Jaehoon ---me dijo serio --- Hemos identificado al que te agredió la otra noche. Es el hermano mayor de uno de los que te agredieron. Ya sabes lo que toca, ¿no?
 
---- Si... --- Resoplé --- ¿Cuándo será?
+---Si... ---resoplé --- ¿Cuándo será?
 
---- En una semana... --- Me dijo --- Realmente este juicio irá más rápido que el otro... Tenemos muchos testigos, además de un herido --- Cuando dijo eso sollocé --- Tranquila María... El chico está bien y esto quedará zanjado...
+---En una semana ---me dijo --- Realmente este juicio irá más rápido que el otro. Tenemos muchos testigos, además de un herido ---cuando dijo eso sollocé --- Tranquila María, el chico está bien y esto quedará zanjado.
 
---- Quiero mudarme --- Dije, y vi como las chicas me miraron sorprendidas --- No me siento segura estando aquí...
+---Quiero mudarme ---dije, y vi como las chicas me miraron sorprendidas --- No me siento segura estando aquí.
 
---- De acuerdo --- Dijo --- Se te facilitará una casa lejos del centro de la ciudad si así lo quieres... --- Hizo una pausa, parecía hablar con alguien --- Además lo pagará la empresa como una compensación. Por cierto, mañana irá un coche temprano a recogerte para ir al hospital y hablar de algo que hemos dejado algo de lado, te avisaré. Hasta mañana.
+---De acuerdo ---dijo --- Se te facilitará una casa lejos del centro de la ciudad si así lo quieres ---hizo una pausa, parecía hablar con alguien --- Además lo pagará la empresa como una compensación. Por cierto, mañana irá un coche temprano a recogerte para ir al hospital y hablar de algo que hemos dejado de lado, te avisaré. Hasta mañana.
 
---- Gracias --- Murmuré y colgué la llamada.
+---Gracias ---murmuré y colgué la llamada.
 
---- ¿Te vas a mudar? --- Jane puso un puchero --- ¿Qué harás con este piso?
+---¿Te vas a mudar? ---Jane puso un puchero --- ¿Qué harás con este piso?
 
---- No lo sé --- Me encogí de hombros --- Pero por lo ocurrido, no quiero vivir más aquí.
+---No lo sé --- Me encogí de hombros --- Pero por lo ocurrido no quiero vivir más aquí.
 
---- ¿Y qué es lo ocurrido? --- Dijo R demasiado seria. Hana asintió --- Kiki, no podemos ayudarte si no nos dices nada.
+---¿Y qué es lo ocurrido? ---dijo R demasiado seria. Hana asintió --- Kiki, no podemos ayudarte si no nos dices nada.
 
-El cuerpo entero me tembló y Hana me puso un plato de comida delante. Resoplé y me obligó a comer. Esa noche no hablé de nada con ellas sobre el tema. Y pensé en la cita del médico del día siguiente, no quería ir sola, pero tampoco quería involucrar a ninguna de las chicas... ¿y con quién iba yo? Salí fuera de la habitación y las miré.
+El cuerpo entero me tembló y Hana me puso un plato de comida delante. Resoplé y me obligó a comer. Esa noche no hablé de nada con ellas sobre el tema. Y pensé en la cita del médico del día siguiente, no quería ir sola, pero tampoco quería involucrar a ninguna de las chicas, ¿y con quién iba yo? Salí fuera de la habitación y las miré.
 
---- R... --- Dije cabizbaja --- ¿Puedo hablar contigo?
+---R... ---dije cabizbaja --- ¿Puedo hablar contigo?
 
---- Sí, claro... --- Entró a la habitación y yo cerré la puerta --- ¿Qué ocurre?
+---Sí, claro ---entró a la habitación y yo cerré la puerta --- ¿Qué ocurre?
 
---- Mañana tengo que ir al médico y... me gustaría que vinieras conmigo --- Agaché la cabeza --- Así se te pueden responder mejor a las preguntas que mis propias respuestas...
+---Mañana tengo que ir al médico y me gustaría que vinieras conmigo ---agaché la cabeza --- Así se te pueden responder mejor a las preguntas, porque yo no puedo responderlas.
 
---- ¿Y por qué no se lo pides a otra? --- Su cara reflejaba algo de miedo.
+---¿Y por qué no se lo pides a otra? ---su cara reflejaba algo de miedo.
 
---- Elena tiene mucho apego conmigo, y lo pasaría muy mal si viniera conmigo al médico y se enterara... Tampoco me gustaría que fuera Jane, la verdad --- Desvié la cabeza --- No quiero que se entere de esa manera...
+---Elena tiene mucho apego conmigo y lo pasaría muy mal. Tampoco me gustaría que fuera Jane, la verdad ---desvié la cabeza --- No quiero que se entere de esa manera.
 
---- Me asustas, ¿lo sabías? --- Sonrió con miedo.
+---Me asustas, ¿lo sabías? ---sonrió con miedo.
 
---- Y a Hana... --- Agaché la cabeza.
+---Y a Hana... ---agaché la cabeza.
 
---- Vale, vale... te entiendo --- Me abrazó impidiendo que siguiera hablando --- Mañana te acompañaré... se lo diré a las chicas. Esta noche duermo contigo...
+---Vale, vale, te entiendo ---me abrazó impidiendo que siguiera hablando --- Mañana te acompañaré, se lo diré a las chicas. Esta noche duermo contigo.
 
---- Muchas gracias --- Y me metí en la cama.
+---Muchas gracias ---y me metí en la cama.
 
-Me despertó el maldito vibrar del móvil. Miré a mi lado y vi a R dormir tranquilamente, la moví un par de veces y me miró. Sin decir nada, ambas nos levantamos de la cama. Me miré el reloj y vi que eran las ocho y media, teníamos el tiempo justo para arreglarnos. Vimos que las otras tres se habían marchado ya y suspiré.
+Me despertó el vibrar del móvil. Miré a mi lado y vi a R dormir tranquilamente, la moví un par de veces y me miró. Sin decir nada, ambas nos levantamos de la cama. Me miré el reloj y vi que eran las ocho y media, teníamos el tiempo justo para arreglarnos. Vimos que las otras tres se habían marchado ya y suspiré.
 
---- Tranquila Kiki... --- Me puso una mano en el hombro cuando miré el reloj por decimonovena vez en un minuto.
+---Tranquila Kiki ---me puso una mano en el hombro cuando miré el reloj por decimonovena vez en un minuto.
 
-El timbre sonó y supuse que serían los abogados. Ambas bajamos y nos montamos en el coche, no tardamos mucho en llegar. Aún había periodistas atentos en la puerta, pero nosotros pasamos de largo y fuimos hacia la entrada de emergencia, la cual estaba custodiada por la policía para que no fuera ningún periodista. Entramos y fuimos hasta el despacho del médico que me atendió la única vez que tuve que ser ingresada... hacía ya casi siete meses...
+El timbre sonó y supuse que serían los abogados. Ambas bajamos y nos montamos en el coche, no tardamos mucho en llegar. Aún había periodistas atentos en la puerta, pero nosotros pasamos de largo y fuimos hacia la entrada de emergencia, la cual estaba custodiada por la policía para que no fuera ningún periodista. Entramos y fuimos hasta el despacho del médico que me atendió la única vez que tuve que ser ingresada hacía ya casi siete meses.
 
---- María, ¿cómo se encuentra? --- Me preguntó mientras me estrechaba la mano.
+---María, ¿cómo se encuentra? ---me preguntó mientras me estrechaba la mano.
 
---- Muy bien --- Y vi como miraba a R.
+---Muy bien ---y vi como miraba a R.
 
---- ¿Ella lo sabe? --- Preguntó.
+---¿Ella lo sabe? ---preguntó.
 
---- Si, si que lo sabe --- Dije antes de que ella dijera algo.
+---Si, si que lo sabe ---dije antes de que ella dijera algo.
 
---- De acuerdo --- Y sacó una carpeta --- Después de lo ocurrido la noche anterior y con el incidente de la violación... --- Miré a R muy nerviosa y vi como su cara ni se inmutó ante la sorpresa. Me miró seria y volvió la vista al médico, que seguía hablando --- Creemos que es importante que recibas sesiones con un psicólogo.
+---De acuerdo ---y sacó una carpeta --- Después de lo ocurrido la noche anterior y con el incidente de la violación ---miré a R muy nerviosa y vi como su cara ni se inmutó ante la sorpresa. Me miró seria y volvió la vista al médico, que seguía hablando --- Creemos que es importante que recibas sesiones con un psicólogo.
 
---- De eso podemos encargarnos de forma privada --- Dijo Jaehoon.
+---De eso podemos encargarnos de forma privada ---dijo Jaehoon.
 
---- Si, si --- Asintió el doctor --- Hicimos pruebas de sida, embarazo y demás --- Me miró. Revisó los papeles --- Todas las pruebas dieron negativo... Clasificamos tres tipos de semen diferente... --- Esa frase hizo que yo agachara la cabeza y apretara los puños. Vi como la mano de R tomó la mía y la apretó. No alcé la cabeza --- Cosa que facilitó el que pudieran detener a los tres individuos...
+--Si, si ---asintió el doctor --- Hicimos pruebas de sida, embarazo y demás ---me miró y revisó los papeles --- Todas las pruebas dieron negativo. Clasificamos tres tipos de semen diferente ---esa frase hizo que yo agachara la cabeza y apretara los puños. Vi como la mano de R tomó la mía y la apretó. No alcé la cabeza --- Cosa que facilitó el que pudieran detener a los individuos.
 
---- De acuerdo... --- Dije al fin --- ¿Cuando tendré las sesiones?
+---De acuerdo ---dije al fin --- ¿Cuando tendré las sesiones?
 
---- Cuanto antes se empiecen mejor --- Seguía hablando el médico mientras no soltaba la mano de mi amiga --- La verdad sea dicha, este tema se descuidó bastante y sabemos que no es algo fácil de llevar.
+---Cuanto antes se empiecen mejor ---seguía hablando el médico mientras no soltaba la mano de mi amiga --- La verdad sea dicha, este tema se descuidó bastante y sabemos que no es algo fácil de llevar.
 
 Hubo un momento de silencio mientras el médico escribía un nombre en un papel junto un número de teléfono. No presté atención.
 
---- Recomiendo este psicólogo --- Dijo el médico --- Es experto en experiencias traumáticas de ese tipo.
+---Recomiendo este psicólogo ---dijo el médico --- Es experto en experiencias traumáticas de ese tipo.
 
 Los abogados nos volvieron a llevar a casa y todo el trayecto lo hicimos en un incómodo silencio. R y yo subimos al piso y entramos a casa; nos sentamos en el sofá y nos quedamos unos minutos en silencio.
 
---- Kiki... --- Dijo ella al fin --- Lo siento mucho --- Me miró y yo la miré --- Supongo que esto ha sido muy duro para ti...
+---Kiki... ---dijo ella al fin --- Lo siento mucho ---me miró y yo la miré --- Supongo que esto ha sido muy duro para ti.
 
---- Es muy duro --- Dije --- Y como nadie al parecer lo entiende, hacen que no pueda ver a Junsu...
+---Es muy duro ---dije entre sollozos --- Y como nadie al parecer lo entiende, hacen que no pueda ver a Junsu.
 
---- Tengo una idea --- Dijo R --- Hablemos con las chicas... Seguro que Hana habla con quien sea para que puedas ver a Junsu.
+---Tengo una idea ---dijo R --- Hablemos con las chicas. Seguro que Hana habla con quien sea para que puedas ver a Junsu.
 
---- Yunho me dijo que... cuando saliera del hospital... lo podía ver --- Agaché la cabeza.
+---Yunho me dijo que cuando saliera del hospital lo podía ver ---agaché la cabeza.
 
---- ¡¡Perfecto Kiki!! --- Sonrió.
+---Perfecto Kiki ---sonrió --- Es un gran paso.
 
---- Eso conlleva decirles a todos... todo --- Suspiré --- Bueno, eh... voy a llamar a las chicas.
+---Eso conlleva decirles a todos... todo ---suspiré y me encogí en el sitio --- Bueno, eh... voy a llamar a las chicas.
 
-Llamé a las chicas, las cuales no tuvieron ningún problema en venir rápidamente. Me senté sobre la cama y miré mi móvil, rezando porque Yunho me llamara y me dijera que podía ir a ver a Junsu ya... ¿Es que yo no podía ser feliz? Ahora que había conseguido lo que quería... Hacer el drama de mis sueños y salir con un chico maravilloso. Escuché la puerta y me alarmé, salí de la habitación y me las encontré con la mirada preocupada.
+Llamé a las chicas, las cuales no tuvieron ningún problema en venir rápidamente. Me senté sobre la cama y miré mi móvil, rezando porque Yunho me llamara y me dijera que podía ir a ver a Junsu ya. ¿Es que yo no podía ser feliz? Ahora que había conseguido lo que quería, que era hacer el drama de mis sueños y salir con un chico maravilloso. Escuché la puerta y me alarmé, salí de la habitación y me las encontré con la mirada preocupada.
 
---- ¿Qué ocurre? --- Preguntó Hana --- Nos tienes preocupadas.
+---¿Qué ocurre? ---preguntó Hana --- Nos tienes preocupadas.
 
---- Sentaros... --- Eso fue todo lo que dije.
+---Sentaros... ---eso fue todo lo que dije.
 
 El resto tuvo que decirlo R, ya que a mí no me salían las palabras. Pero sí que vi el rostro de mis amigas. Tanto Hana como Elena reflejaron decepción, y la cara de Jane expresaba muchas cosas.
 
---- ¿Por qué no nos lo dijiste a todas? --- Preguntó Jane.
+---¿Por qué no nos lo dijiste a todas? ---preguntó Jane.
 
---- Os lo estoy diciendo --- Dije.
+---Os lo estoy diciendo ---dije en un hilo de voz.
 
---- Pero igual que te R te ha acompañado, nosotras podíamos haberte acompañado --- Dijo Elena muy seria.
+---Pero igual que te R te ha acompañado, nosotras podíamos haberte acompañado ---dijo Elena muy seria.
 
---- ... --- Las miré a todas --- ¿Crees que debéis tratarme así? --- Comencé a llorar --- Bastante mal conmigo misma me siento, para que ahora vosotras me miréis así... no quiero vuestra compasión, pero si vuestra comprensión... Esto no es algo tan fácil de soltar así de buenas a primeras --- Y de pronto Elena me abrazó.
+---¿Crees que debéis tratarme así? --- Las miré a todas y comencé a llorar --- Bastante mal conmigo misma me siento para que ahora vosotras me miréis así. No quiero vuestra compasión, pero si vuestra comprensión. Esto no es algo tan fácil de soltar así de buenas a primeras --- Y de pronto Elena me abrazó.
 
---- Lo siento mucho Kiki --- Me dijo --- Supongo que ha sido muy duro...
+---Lo siento mucho Kiki ---me dijo --- Supongo que ha sido muy duro.
 
---- ... --- Hana suspiró y yo la miré --- Cuenta con mi apoyo tontina...
+---Kiki... ---Hana suspiró y yo la miré --- Cuenta con mi apoyo tontina.
 
 Hablamos durante un rato y de pronto mi móvil sonó. Era Yunho. El teléfono tembló en las manos y de pronto Hana me lo quitó respondiendo ella.
 
---- Hola --- Dijo --- No soy Kiki, soy Hana... ahora ella no puede hablar --- Nos miramos, era cierto, las manos me temblaban, y fijo que si intentaba hablar, no me saldría la voz --- ¿Ya estáis en casa?... ¿Y qué vais a hacer? Kiki quiere ver a Junsu --- Me miró --- Ah, sí, de acuerdo... ¿Una cacharra? --- Se sorprendió --- ¡Ah, vale! Sí, si... Vale... ¡Ah! Yunho, no seáis muy duros, por favor... ya, pero... Si, entiendo, pero con más calma las cosas también se hacen bien, ella lo está  pasando aún peor... Te entiendo, pero entiéndela tú también, ¿no?... Bueno, por eso hablará ahora con vosotros, para que la podáis entender... ok, vale... como quieras... Chao --- Colgó y me miró --- Van a venir a por nosotras en una... cacharra.
+---Hola ---dijo --- No soy Kiki, soy Hana, ahora ella no puede hablar ---nos miramos, era cierto, las manos me temblaban y fijo que si intentaba hablar, no me saldría la voz --- ¿Ya estáis en casa? ¿Y qué vais a hacer? Kiki quiere ver a Junsu ---me miró mientras escuchaba a su interlocutor --- Ah, sí, de acuerdo... ¡Ah! Yunho, no seáis muy duros, por favor ---se quedó en silencio un momento--- Ya, pero... Si, entiendo, pero con más calma las cosas también se hacen bien, ella lo está  pasando aún peor. Te entiendo, pero entiéndela tú también, ¿no?... Bueno, por eso hablará ahora con vosotros, para que la podáis entender... ok, vale... como quieras... Chao ---colgó y me miró --- Van a venir a por nosotras.
 
---- ¿Eso qué es? --- Preguntó Jane.
+---¿Están muy enfadados? ---pregunté con miedo.
 
---- Un coche viejo --- Hana se encogió de hombros.
+---No mucho ---sonrió para calmarme --- Vamos a arreglarnos, ya vienen a por nosotras.
 
---- ¿Están muy enfadados? --- Pregunté.
+Me sentía una marioneta manejada por el mundo que iba hacia donde él quería. Cerré los ojos y los abrí cuando llegamos al edificio donde los chicos vivían. Sentía muchos nervios en el estómago, las manos me temblaban y tenía sentimientos encontrados. El chófer se quedó allí y nosotras cinco entramos al ascensor. No sabía cómo había sido el trayecto, pero las chicas hablaban de un pequeño grupo de fans congregado en la puerta principal de edificio. Y cuando la puerta estuvo frente a mí, quise dar marcha atrás y volver a casa corriendo como una cobarde que era.
 
---- No mucho --- Sonrió --- Vamos a arreglarnos... ya vienen a por nosotras...
+---Kiki ---Hana me cogió del brazo --- ¿No quieres ver a Junsu?
 
-Y yo me sentía una marioneta manejada por el mundo que iba hacia donde él quería. Cerré los ojos y los abrí cuando llegamos al edificio donde los chicos vivían. Y sentía muchos nervios en el estómago, las manos me temblaban y sonreía como una tonta... El chófer se quedó allí y nosotras cinco entramos al ascensor. No sabía cómo había sido el trayecto, pero las chicas hablaban de un pequeño grupo de fans congregado en la puerta principal de edificio. Y cuando la puerta estuvo frente a mí, quise dar marcha atrás y volver a casa corriendo como una cobarde que era...
+Y solo era él el motivo por el cual yo estaba allí. En cuanto llamaron al timbre yo agaché la cabeza, y no pasó mucho rato cuando la puerta se abrió y escuché la voz de Changmin. Nos invitó a pasar y nosotras entramos, fuimos hasta el comedor y allí me atreví a alzar la cabeza. Y lo vi. Estaba tumbado en el sofá mientras comía de una bolsa de patatas y veía la televisión. Me miró.
 
---- Kiki --- Hana me cogió del brazo --- ¿No quieres ver a Junsu?
+---¡Kiki! ---se incorporó muy alegre --- ¡Tenía ganas de verte! --- Se tocó la herida serio y me volvió a mirar muy sonriente, se puso en pie despacio y me abrazó, pasando de las chicas --- Te echaba de menos ---me susurró en el oído.
 
-Y solo era él el motivo por el cual yo estaba allí. En cuanto llamaron al timbre, yo agaché la cabeza, y no pasó mucho rato cuando la puerta se abrió y escuché la voz de Changmin. Nos invitó a pasar y nosotras entramos, fuimos hasta el comedor y allí me atreví a alzar la cabeza. Y lo vi... estaba tumbado en el sofá mientras comía de una bolsa de patatas y veía la televisión... Me miró.
+---Yo también ---le dije mientras lo abrazaba y me apoyaba en su hombro --- Lo siento mucho Junsu.
 
---- ¡¡Kiki!! --- Se incorporó muy alegre --- ¡¡Tenía ganas de verte!! --- Se tocó la herida serio y me volvió a mirar muy sonriente, se puso en pie y me abrazó, pasando de las chicas --- Te echaba de menos... --- Me susurró en el oído.
+---¿Por qué te disculpas? ---me separó y me miró a la cara --- Tú no tienes la culpa de nada ---me acarició la mejilla y sonrió --- Yo fui a defenderte, nada más, no podía soportar la idea de que te hicieran daño.
 
---- ... yo también... --- Le dije mientras lo abrazaba --- Lo siento mucho Junsu.
+--- Pero tú... estás herido.
 
---- ¿Por qué te disculpas? --- Me separó y me miró a la cara --- Tú no tienes la culpa de nada --- Me acarició la mejilla y sonrió --- Yo fui a defenderte, nada más... no podía soportar la idea de que te hicieran daño...
+---Por ti esto y mucho más ---me besó y escuché un resoplido --- Bueno... ---alzó la cabeza mirando a los demás --- Hola chicas.
 
---- Pero tú... estás herido...
+Los diez nos sentamos en los sofás y nos miramos las caras. Bueno, en cuanto mi mirada se cruzó con la de Yunho agaché la cabeza, fue un acto reflejo.
 
---- Por ti esto y mucho más --- Me besó y escuché un resoplido --- Bueno... Ejem... --- Alzó la cabeza --- Hola chicas...
+---Eh, Yunho ---dijo Junsu de pronto --- ¿Por qué la miras así? ---alcé la cabeza y lo miré --- Yo estoy herido porque quiero, ya os lo dije anteayer, ayer y esta mañana.
 
-Los diez nos sentamos en los sofás y nos miramos las caras. Bueno, en cuanto mi mirada se cruzó con la de Yunho, agaché la cabeza, fue un acto reflejo.
+---Pero Junsu ---dijo Jaejoong --- Merecemos una explicación.
 
---- Eh... Yunho --- Dijo Junsu de pronto --- ¿Por qué la miras así? --- Alcé la cabeza y lo miré --- Yo estoy herido porque quiero, ya os lo dije anteayer, ayer y esta mañana...
+---No merecemos nada ---Junsu, con su sonrisa, negó. Su actitud me dejaba sin palabras. Con sus brazos rodeó mi cuerpo de forma protectora --- En realidad solo la salvamos, la ayudamos. Si ella nos quiere decir por qué ese animal la atacó lo veo muy bien, pero si no lo quiere decir, también lo veo bien.
 
---- Pero Junsu --- Dijo Jaejoong --- Merecemos una explicación.
+---Bueno, pues que no lo diga si no quiere ---Yunho suspiró, pude ver enfado en su rostro.
 
---- No merecemos nada --- Junsu, con su sonrisa, negó... Su actitud me dejaba sin palabras --- En realidad solo la salvamos... la ayudamos. Si ella nos quiere decir por qué ese animal la atacó, lo veo muy bien... pero si no lo quiere decir, también lo veo bien.
+---No os entiendo ---dijo de pronto Hana --- La tratáis como si hubiese sido ella la que ha apuñalado a Junsu ---su mirada seria me sorprendió, y realmente no fui la única --- Basta ya de tonterías ---me miró muy seria, esa mirada quería decir tantas cosas, pero sabía por dónde iba. Asentí y desvié la cabeza escondiéndome en su pecho, apreté su mano con la propia --- Hace tiempo, cuando ella llegó la violaron ---al decir esa palabra sentí la mirada de todos clavados en mi, también sentí como Junsu me apretaba contra él --- Ese tipejo solo quería vengarse de que su hermano estuviera en la cárcel. ¿Creéis que se merece que le den "unas vacaciones" en su trabajo? ¿Que la dejéis sin ver a Junsu?
 
---- Bueno, pues que no diga lo que quiera si ella quiere --- Yunho suspiró.
+---¿Fue cuando te ingresaron? ---preguntó Yoochun pálido.
 
---- No os entiendo --- Dijo de pronto Hana --- La tratáis como si hubiese sido ella la que ha apuñalado a Junsu... --- Su mirada seria me sorprendió, y realmente no fui la única --- Basta ya de tonterías... --- Me miró muy seria, esa mirada quería decir tantas cosas... pero sabía por dónde iba. Asentí y desvié la cabeza, apretando con fuerza la mano de Junsu --- Hace tiempo, cuando ella llegó... la violaron --- Al decir esa palabra, sentí como todos me miraban, también sentí como Junsu me apretaba contra él --- Ese tipejo solo quería vengarse de que su hermano estuviera en la cárcel... ¿Creéis que se merece que le den “unas vacaciones” en su trabajo? ¿Que la dejéis sin ver a Junsu?
+---Si... ---asentí separándome de Junsu, mirándole--- Fue la noche que hablamos en la puerta del bar, Yoochun.
 
---- ¿Fue... cuando... te ingresaron? --- Preguntó Yoochun pálido.
+---Mierda ---se tapó la cara con las manos y agachó la cabeza.
 
---- Si... --- Asentí --- Fue la noche que hablamos en la puerta del bar, Yoochun --- Dije mirándolo.
+---La verdad es que esto se está llevando por el camino equivocado ---sentenció Hana.
 
---- ... --- Se tapó la cara con las manos y agachó la cabeza.
+---Lo siento Kiki ---dijo Jaejoong.
 
---- La verdad, esto se está llevando por el camino equivocado --- Sentenció Hana.
+Y silencio sepulcral en el salón.
 
---- Lo siento Kiki --- Dijo Jaejoong.
+Jane cambió de tema, ya que el ambiente se había quedado muy tenso, y comenzaron a hablar de otras cosas. Yo no estaba en la conversación, mi cabeza estaba en otro mundo, ese mundo eran los brazos de Junsu, quien me tenían sujetos contra su pecho y sentía su corazón palpitar con fuerza y rapidez.
 
-Y silencio sepulcral en el salón. Enseguida Jane cambió de tema y comenzaron a hablar de cosas, pero yo no estaba en la conversación, mi cabeza estaba en otro mundo... ese mundo eran los brazos de Junsu, quien me tenían sujetos contra su pecho, y sentía su corazón palpitar con fuerza y rapidez.
-
---- Ahora venimos...
+---Ahora venimos...
 
 Junsu me agarró de la mano y nos fuimos del salón bajo la atenta mirada de los demás. Me llevó hasta una habitación donde había cinco camas metidas de cualquier manera. Las miré todas y luego a Junsu.
 
---- ¿Qué ocurre? --- Pregunté.
+---¿Qué ocurre? ---pregunté.
 
---- Quiero hablar contigo a solas --- Sonrió y me abrazó --- ¿Por qué no me lo dijiste antes?
+---Quiero hablar contigo a solas ---sonrió y me abrazó --- ¿Por qué no me lo dijiste antes?
 
---- ¿Crees que es fácil de decir? --- Negó con la cabeza --- Y porque lo ha dicho Hana, sino, después de lo que has dicho tú... yo no lo hubiera dicho...
+---¿Crees que es fácil de decir? ---él negó con la cabeza --- Y porque lo ha dicho Hana, sino, después de lo que has dicho tú yo no lo hubiera dicho.
 
---- Ya... --- Me separó y me miró. Luego miró la habitación --- Bueno... esta es nuestra habitación --- Sonrió algo sonrojado --- Nuestra humilde y tranquila habitación...
+---Entiendo ---me separó y me miró. Luego miró la habitación --- Bueno, esta es nuestra habitación ---sonrió algo sonrojado --- Nuestra humilde y tranquila habitación.
 
---- ¿Tranquila? --- Y me eché a reír.
+---¿Tranquila? ---y me eché a reír mucho más relajada.
 
---- ¿Qué estás insinuando? --- Y se quedó pensativo --- Ok, vale... no es tranquila... Changmin por la noche nos habla y Yoochun nos deleita con el piano.
+---¿Qué estás insinuando? ---se quedó pensativo --- Ok, vale, no es tranquila. Changmin por la noche nos habla y Yoochun nos deleita con el piano.
 
---- Que divertidos sois... --- Sonreí.
+---Que divertidos sois ---sonreí.
 
---- Si... Super divertidos --- Me abrazó de nuevo --- Kiki... --- Susurró en mi oído --- Te quiero mucho, ¿lo sabías?
+---Si, super divertidos ---me abrazó de nuevo --- Kiki ---susurró en mi oído --- Te quiero mucho, ¿lo sabías?
 
---- ... --- Me sorprendió y apoyé mi cabeza en su pecho --- Gracias Junsu.
+---Y yo... ---me sorprendió y apoyé mi cabeza en su pecho --- Gracias Junsu.
 
---- Wah, no hace falta que me las des --- Me besó en la frente --- Soy yo el que debe agradecerte el que aparecieras en mi vida y...
+---No hace falta que me las des ---me besó en la frente --- Soy yo el que debe agradecerte el que aparecieras en mi vida y...
 
---- ¡¡Eh, pareja!! --- Yoochun golpeó la puerta --- Tenéis que ver esto...
+---¡Eh, pareja! ---Yoochun golpeó la puerta --- Tenéis que ver esto.
 
-Extrañados, salimos de la habitación y fuimos al comedor, donde todos veían la televisión, bien serios y atentos.
+Extrañados, salimos de la habitación y fuimos al comedor, donde todos veían la televisión bien serios y atentos.
 
---- Es un video... --- Comenzó a decir Junsu.
+---Es un video ---comenzó a decir Junsu.
 
---- Si, de lo que ocurrió en el portal de casa --- Dijo Hana sin despegar la vista del televisor --- Me parece increíble lo que dicen...
+---Si, de lo que ocurrió en el portal de casa ---dijo Hana sin despegar la vista del televisor --- Me parece increíble lo que dicen.
 
---- ¿Qué han dicho al principio? --- Pregunté curiosa.
+---¿Qué han dicho al principio? ---pregunté curiosa.
 
---- ... --- Todos guardaron silencio y se miraron entre sí. Jae tomó la palabra --- Dicen las malas lenguas que tú lo planeaste todo contra nosotros.
+Todos guardaron silencio y se miraron entre sí. Se miraron y yo me quedé preocupada.
 
---- Lo dices como si fuera cierto --- Bufó Hana con el entrecejo fruncido.
+---Dicen que tú lo planeaste todo contra nosotros ---comentó Jaejoong.
 
---- ¡Es lo que dicen! --- Señaló Jae al televisor.
+---Lo dices como si fuera cierto ---bufó Hana con el entrecejo fruncido.
 
---- ... --- La pelirroja bufó --- Lee Sooman ha salido en televisión desmintiendo todo lo que han dicho, diciendo que era un ladrón que te pilló desprevenida y que ellos te salvaron porque de casualidad estaban allí.
+---¡Es lo que han dicho! ---señaló Jae al televisor.
 
---- Solo existe un problema --- Dijo Elena.
+---Tsk... ---Hana bufó --- Lee Sooman ha salido en televisión desmintiendo todo lo que han dicho, diciendo que era un ladrón que te pilló desprevenida y que ellos te salvaron porque de casualidad estaban allí.
 
---- Cassiopeia --- Dijeron R y Jane a la vez, y los chicos las miraron. Jane tomó la palabra --- Están acosando la SM con cartas, llamadas y visitas queriendo saber por qué vosotros estabais visitando a Kiki.
+---Solo existe un problema ---dijo Elena.
 
---- Creo que... --- Comenzó a decir Junsu y lo miramos --- Que voy a hacer público a la prensa lo mío con Kiki.
+---Cassiopeia ---dijeron R y Jane a la vez, y los chicos las miraron. Jane tomó la palabra --- Están acosando la SM con cartas, llamadas y visitas queriendo saber por qué vosotros estabais visitando a Kiki.
 
---- ¿Estás loco? --- Yunho se puso en pie --- ¿Ahora? Junsu, haz el favor de pensar con la cabeza... por lo que más quieras... Eso sería tirar piedras sobre nuestro tejado.
+---Creo que... ---comenzó a decir Junsu y lo miramos --- Que voy a hacer público a la prensa lo mío con Kiki.
 
---- Cierto --- Señaló Elena.
+---¿Estás loco? ---Yunho se puso en pie --- ¿Ahora? Junsu, haz el favor de pensar con la cabeza por lo que más quieras. Eso sería tirar piedras sobre nuestro tejado.
 
---- ... --- De pronto Junsu me abrazó --- Ya verás como se solucionará.
+---Cierto ---señaló Elena.
 
---- Ya... tiempo al tiempo...
+---Ya verás como se solucionará ---de pronto Junsu me abrazó.
+
+---Ya, tiempo al tiempo.

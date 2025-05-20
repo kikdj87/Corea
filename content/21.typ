@@ -67,13 +67,13 @@ Junior?
 - Si – Dijo mientras se pasaba la mano por el pelo – Algunas 
 315
 escucharon como invitábamos a los SuJu y... claro, quisieron venir.
-- ¿YoonA entre ellas? - Preguntó Elena.
+- ¿Yoona entre ellas? - Preguntó Elena.
 - Si – Sentenció Yunho, Elena se echó sobre R, que estaba
 a su lado – Pero hemos hablado con ella y le hemos dicho que nada
 de malos royos... como te lo digo a ti, Elena.
 - Ok, ok – Se relajó – Estoy relajada.
 - De verdad que no entiendo... - Comenzó a decir Jae – Por
-qué te cae tan mal YoonA.
+qué te cae tan mal Yoona.
 - Mejor no hables – Le di un codazo a Jae, quien me miró.
 El ascensor paró y salimos de allí, plantándonos en la
 conocida puerta de entrada. Miré de reojo a Junsu, quien estaba
@@ -98,8 +98,8 @@ disimuladamente cuando, cuál fue mi sorpresa, vi a Jane hablar
 animadamente con dos de la chicas - ¿Jane?
 - Ah – Elena alzó la mano – Son muy amigas...
 - Al menos es más simpática – Dijo una voz al fondo, me
-asomé entre TaeYeon y vi a YoonA muy seria.
-- YoonA, no empieces – Suspiró Yunho – Habéis venido muy 
+asomé entre TaeYeon y vi a Yoona muy seria.
+- Yoona, no empieces – Suspiró Yunho – Habéis venido muy 
 316
 temprano, ¿no? - Preguntó.
 - Yunnie – Dijo una chica con sonrisa delicada y pelo castaño,
@@ -217,7 +217,7 @@ Después de la agradable comida y del rico postre: natillas
 con galletas. Muchas de las SNSD se fueron porque tenían sus cosas
 que hacer, igual que algunos de los SuJu, que en sí, ya habían podido
 venir pocos. Y es que los que quedaron yo los conocía bien. TaeYeon,
-YoonA, Tiffany y Sunny. De los SuJu se quedaron Kangin, Heechul,
+Yoona, Tiffany y Sunny. De los SuJu se quedaron Kangin, Heechul,
 HangNeng y Sungmin. Y nada, todos estábamos esparcidos por el
 comedor, en sillones, sillas y suelo. Y silencio.
 - ¿Por qué no han venido todos los de SuJu? - Preguntó

@@ -393,7 +393,7 @@ la cara de la SNSD en el suelo y luego pisotearla con gusto hasta que
 su cabeza estuviera echa en pedazos y el suelo totalmente
 ensangrentado...
 - Kiki – Elena se acercó a mi lado – Ha venido la tonta de
-YoonA... me ha mirado mal y... he venido aquí corriendo para no
+Yoona... me ha mirado mal y... he venido aquí corriendo para no
 pisotear su cabeza – La miré de pronto.
 - Ya somos dos – Dije casi en un susurro.
 - ¿Qué...? - Miró hacia donde estaba Junsu y frunció el ceño
@@ -504,7 +504,7 @@ será cierto lo que dicen?
 - No, no lo es... - Me armé de valor - ¡TaeYeon! - Capté su
 atención y me miró - ¡¡No lo hemos dejado!!
 Me miró con una mirada de enfado y dio media vuelta, cogió
-a YoonA de la mano y salieron del estudio. Las chicas y yo reímos un
+a Yoona de la mano y salieron del estudio. Las chicas y yo reímos un
 par de veces y alguien me tocó el hombro. Me giré.
 - María – Lee Sooman estaba tras de mi con un cd en la
 mano – Ha sido un día muy bien aprovechado, aquí tienes una copia

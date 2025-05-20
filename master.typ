@@ -49,3 +49,10 @@
 -He cambiado los nombres de algunos de los personajes. El pj de R se llamará Rocío pero en la historia seguirá llamándose R.
 
 -Es en el capítulo ocho, final, donde Kiki les cuenta la manera en la que conoció a Yoochun
+
+-en el capítulo 10 y 11 (principio y final) es el ataque donde sale herido Junsu
+
+-en el capitulo 10 Junsu y Kiki empiezan a salir
+
+- 11/197 el médico dice que necesita apoyo de un psicólogo
+

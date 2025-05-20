@@ -4,7 +4,7 @@ A la mañana siguiente me desperté la primera, o al menos
 eso creía, me crucé con Hana de camino a la cocina, que me saludó
 con la mano y una radiante sonrisa. No pasó mucho rato cuando
 Elena también se levantó, pero con muy mala cara.
-- ¿Has dormido bien, Chuchu? - Le pregunté con una sonrisa
+- ¿Has dormido bien, Elenita? - Le pregunté con una sonrisa
 cruel.
 - ... - Suspiró – No... No he dormido nada bien... me duele la
 cabeza, el cuerpo y el estómago...

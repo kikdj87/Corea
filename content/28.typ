@@ -72,8 +72,8 @@ sonrisa. De pronto llamaron a la puerta - ¿Esperáis a alguien? -
 Negaron. Yo me gire para abrir, ya que el abrazo de las chicas no me
 dejo entrar al piso - ¿TaeYeon?
 - Hola chicas – La líder de las SNSD estaba en la puerta junto
-con Sunny, Jessica y YoonA - ¿Podemos pasar?
-- … - Elena puso un puchero al ver a YoonA, la cual giro la
+con Sunny, Jessica y Yoona - ¿Podemos pasar?
+- … - Elena puso un puchero al ver a Yoona, la cual giro la
 cabeza en gesto orgulloso – Pasad, pasad.
 Las chicas entraron y se sentaron en el sofá. Jane fue a la
 cocina a por unas bebidas y el resto las miramos muy extrañadas. Al
@@ -91,9 +91,9 @@ cambiado el mundo!! - Alzo un puño.
 - Hemos venido personalmente a agradecértelo – Sonrió
 TaeYeon – Yo, como líder de las SNSD, os invito a las cinco a comer
 mañana con nosotras.
-- ¿Qué? - Elena se atraganto, al igual que YoonA.
+- ¿Qué? - Elena se atraganto, al igual que Yoona.
 - No lo puedo creer... - La aludida desvió la cabeza.
-- YoonA – TaeYeon la miro seria – Es hora de que arreglemos
+- Yoona – TaeYeon la miro seria – Es hora de que arreglemos
 las cosas...
 - Bueno, bueno – Alce las manos, yo tampoco quería tener
 una amistad inquebrantable con ellas – Que si ella no quiere...
