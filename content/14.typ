@@ -1,713 +1,683 @@
 = Capítulo 14
 
-Nos despedimos, yo me fui al piso y él se marchó a casa. Entré al piso y me las vi a las cuatro hablando echadas en el sofá. Me miraron interrogantes.
+Entré al piso y me las vi a las cuatro hablando echadas en el sofá. Me miraron interrogantes.
 
---- ¿Qué tal, Kiki? --- Preguntó Hana --- ¿Ha habido ya tema...?
+---¿Qué tal, Kiki? ---preguntó Hana --- ¿Ha habido ya tema?
 
---- Que poco delicada --- Me eché sobre ella y la molesté --- No... No ha habido tema.
+---Que poco delicada ---me eché sobre ella y la molesté --- No, no ha habido tema.
 
---- Es normal --- Dijo Jane --- Después de algo así es difícil... tengo una amiga que le pasó algo parecido... y también le costó volver a ser normal.
+---Es normal ---dijo Jane --- Después de algo así es difícil, tengo una amiga que le pasó algo parecido y también le costó volver a ser normal.
 
---- ¿Me estás llamando anormal? --- Me señalé indignada.
+---¿Me estás llamando anormal? ---me señalé indignada.
 
---- Hombre... algo de razón tiene... --- Y un cojín voló hacia la cara de Elena --- Ok, Kiki es un peligro constante.
+---Hombre... algo de razón tiene ---y un cojín voló hacia la cara de Elena --- Ok, Kiki es un peligro constante.
 
---- ... --- Le saqué la lengua. Las miré --- ¿Y bien? Si en la SM no se dejan tener líos amorosos, ¿qué haréis chicas?
+---¿Y bien? ---saqué la lengua. Las miré --- Si en la SM no se dejan tener líos amorosos, ¿qué haréis chicas?
 
---- Intentar fastidiar tu relación con Junsu --- Dijo R tan tranquila y yo la miré con horror --- No, bueno... es broma...
+---Intentar fastidiar tu relación con Junsu ---dijo R tan tranquila y yo la miré con horror --- No, bueno, es broma.
 
---- Pues lo has dicho muy convencida... --- Dije con miedo.
+---Pues lo has dicho muy convencida ---dije con miedo.
 
---- Que no Kiki, que ha sido broma, de verdad --- Intentó calmarme --- Hay que sobrellevarlo... poner la mirilla en alguien más normal.
+---Que no Kiki, que ha sido broma, de verdad ---intentó calmarme --- Hay que sobrellevarlo, poner la mirilla en alguien más normal.
 
---- Alguien del edificio --- Dijo Elena --- Por ejemplo...
+---Alguien del edificio ---dijo Elena pensando --- Por ejemplo.
 
---- Pues sí... --- Asentí --- Del barrio... A decir verdad, Jane debería de estudiar.
+---Pues sí ---asentí y cambié de tema --- A decir verdad, Jane debería de estudiar.
 
---- ¿Yo? --- Se señaló mientras veía como me cogía el portátil --- ¿Puedo?
+---¿Yo? ---se señaló mientras veía como me cogía el portátil --- ¿Puedo?
 
---- Si --- Asentí.
+---Si ---asentí --- Pero en serio, deberías de estudiar.
 
---- Yo no quiero estudiar --- Comenzó a teclear --- Paso...
+---Yo no quiero estudiar ---comenzó a teclear --- Paso.
 
---- Sería lo más conveniente, la verdad --- Dijo Hana --- Y R también, no puede dejar su carrera parada...
+---Sería lo más conveniente, la verdad ---dijo Hana --- Y R también, no puede dejar su carrera parada.
 
---- Aquí no creo que pueda estudiar lo mismo... y si me será compatible con España --- Dijo R pensativa.
+---Aquí no creo que pueda estudiar lo mismo y si me será compatible con España ---dijo R pensativa.
 
---- Lo mismo digo --- Dijo Jane algo ausente.
+---Lo mismo digo ---dijo Jane algo ausente.
 
---- Os prometo que no durará mucho --- Agaché la cabeza --- Que pronto retomaréis los estudios...
+---Os prometo que no durará mucho ---agaché la cabeza --- Que pronto retomaréis los estudios.
 
---- Por eso no tengas prisa --- Dijo R sonrojada --- Esto es mejor que otra cosa en el mundo... poder estar junto a ellos es un verdadero sueño.
+---Por eso no tengas prisa ---dijo R sonrojada --- Esto es mejor que otra cosa en el mundo, poder estar junto a ellos y trabajar en tu drama es un verdadero sueño.
 
 De pronto Jane dejó con algo de brusquedad el portátil sobre la mesa y se encerró en su habitación compartida con R. Nos quedamos en silencio y la escuchamos llorar. R se acercó al portátil y leyó lo que ponía.
 
---- ¿Qué ocurre? --- Preguntó Elena, que no sabía si ir a la puerta o quedarse quieta.
+---¿Qué ocurre? ---preguntó Elena, que no sabía si ir a la puerta o quedarse quieta.
 
---- ... --- Hana suspiró y se acercó a la puerta --- Jane... ¿estás bien? ¿Qué ocurre?
+---Jane... ---Hana suspiró y se acercó a la puerta --- ¿Estás bien? ¿Qué ocurre?
 
---- Sus... padres han tenido un accidente --- Dijo R muy, muy seria.
+---Sus padres han tenido un accidente ---dijo R muy, muy seria.
 
---- ¿Están bien? --- Dije yo con rapidez.
+---¿Están bien? ---dije yo con rapidez.
 
---- El correo es de su padre --- R me miró --- Diciéndole que vuelva inmediatamente a España... Su madre está bien también pero... su hermano... --- Hizo una pausa y comenzó a llorar. Hana insistía aporreando la puerta sin recibir respuesta --- Su padre dice que vuelva ya, sin importar lo que se deje en el camino... La quiere a su lado.
+---El mensaje es de su padre ---R me miró --- Diciéndole que vuelva inmediatamente a España. Su madre está bien también pero su hermano... ---hizo una pausa y comenzó a llorar. Hana insistía aporreando la puerta sin recibir respuesta --- Su padre dice que vuelva ya, sin importar lo que se deje en el camino. La quiere a su lado.
 
---- Que putada... --- Soltó Elena sin apenas reaccionar bien.
+---Que putada... ---soltó Elena sin apenas reaccionar bien.
 
---- Jane, por favor, abre la puerta --- Insistía Hana.
+---Jane, por favor, abre la puerta ---insistía Hana.
 
-Mientras todo en mi alrededor se movía a cámara lenta, intentaba procesar aquello que había ocurrido. No podía ser cierto... ¿Realmente su hermano había...?
+Mientras todo en mi alrededor se movía a cámara lenta, intentaba procesar aquello que había ocurrido. No podía ser cierto ¿Realmente su hermano había fallecido?
 
---- ¡Kiki! --- Elena me dio un golpe en el hombro --- Mujer, reacciona --- Bufó --- Tenemos que ayudarla...
---- Vale --- Me puse en pie.
+---¡Kiki! ---Elena me dio un golpe en el hombro --- Mujer, reacciona ---bufó --- Tenemos que ayudarla.
+
+---Vale ---me puse en pie.
 
 Al final Jane salió de la habitación y hablamos del asunto. Ella se negaba a regresar y dejar todo aquí, pero entre todas le dijimos que tenía que ir al entierro de su hermano sin falta.
 
---- No te dejaré sola, Jane --- R la abrazó --- Yo iré contigo... ¿Puedo Kiki?
+---No te dejaré sola, Jane ---R la abrazó --- Yo iré contigo, ¿puedo Kiki?
 
---- Sí, claro... sin problemas... --- Me encogí de hombros --- Pero Jane... Si quieres seguir en la serie, vuelve.
+---Sí, claro, sin problemas ---me encogí de hombros --- Pero Jane, si quieres seguir en la serie, vuelve.
 
---- Volveré --- Se pasó la mano por la frente --- Gracias.
+---Volveré ---se pasó la mano por la frente --- Gracias.
 
-Volvió a su habitación seguida de R y comenzaron a preparar
-las maletas. Tenían un avión de urgencia que coger con dirección a
-España.
-Esa noche solo durmieron Hana y Elena. Y no sé por qué yo no dormí nada... Estaba sentada en el salón junto con R y Jane, mientras tomábamos un chocolate casero bien calentito, al que Jane no dejaba de dar vueltas sin probar gota. En cuanto amaneció, más o menos las cinco y media de la mañana, llamé al aeropuerto para comprar dos billetes de ida y vuelta para España, los cuales, pagué yo la mitad por una ayuda de la empresa, al menos en el billete de Jane... el de R fue de mi bolsillo. Dijeron que los más rápidos saldrían ese mismo día ya entrada la tarde y fue lo mejor que encontramos.
+Volvió a su habitación seguida de R y comenzaron a preparar las maletas. Tenían un avión de urgencia que coger con dirección a España.
 
-Enseguida caí rendida en el sofá, no recuerdo qué soñé, pero sí que me levanté agitada y muy nerviosa. Ya estaban todas despiertas, y Jane acurrucada en el sillón aún con la taza de chocolate en la mano y un cojín entre sus brazos y su barriga. R se quedó con ella y las demás fuimos al trabajo. La verdad es que tuve que hacer gran esfuerzo para tapar las horribles ojeras que tenía, pero al final lo conseguí... aunque parecía un payaso. Me despedí de Elena y Hana, que las dejé hablando con Boa, y me marché directa al despacho de Lee Sooman, llamé y asomé la cabeza. Y allí estaba él, hablando tranquilamente con dos hombres trajeados. No daba una, siempre que iba a buscarlo, estaba en una reunión.
+Esa noche nadie durmió.
 
---- ¡Ah! --- Se puso en pie y los hombres trajeados se voltearon --- Ella es María, pasa por favor.
+Estaba sentada en el salón junto con R y Jane, mientras tomábamos un chocolate casero bien calentito, al que Jane no dejaba de dar vueltas sin probar gota. Habíamos estado mirando billetes para viajar de manera exprés y los encontramos sin problema. En principio los pagué yo, pero hablaría con la empresa para que me ayudaran a pagar al menos el billete de Jane. El vuelo saldría ese mismo día por la tarde.
 
---- Eh... si señor --- Entré demasiado extrañada --- ¿Qué ocurre?
+Enseguida caí rendida en el sofá, no recuerdo qué soñé, pero sí que me levanté agitada y muy nerviosa. Ya estaban todas preparadas, Jane estaba acurrucada en el sillón aún con la taza de chocolate en la mano y un cojín entre sus brazos y su barriga. R se quedó con ella y las demás fuimos al trabajo. La verdad es que tuve que hacer gran esfuerzo para tapar las horribles ojeras que tenía, pero al final lo conseguí. Me despedí de Elena y Hana, que las dejé hablando con Boa, y me marché directa al despacho de Lee Sooman, llamé y asomé la cabeza. Y allí estaba él, hablando tranquilamente con dos hombres trajeados. No daba una, siempre que iba a buscarlo, estaba en una reunión.
 
---- Hablábamos de usted --- Sonrió y me indicó que me colocara a su lado --- María, ellos son JiHoon y SeunHo.
+---¡Ah! ---se puso en pie y los hombres trajeados se voltearon --- Justo de ti estábamos hablando, María, pasa por favor.
 
---- Encantada --- Tenía los ojos abiertos como platos... claro que los conocía, a la perfección. ¿Qué hacían ellos hablando con Lee Sooman?
+---Si señor ---entré demasiado extrañada --- ¿Qué ocurre?
 
---- Ellos han abierto y dirigen su propia empresa discográfica --- Los señaló --- No sé si conocerás algo de ellos, pero Tony An es un ex integrante de H.O.T., y perteneció a la SM.
+---Nada malo ---sonrió y me indicó que me colocara a su lado --- María, ellos son Jihoon y Seunho.
 
---- Si, sinceramente los conozco --- Hice una reverencia --- ¿Y qué ocurre con eso, señor?
+---Encantada ---tenía los ojos abiertos como platos, claro que los conocía, a la perfección. ¿Por qué ellos tres estaban hablando de mí?
 
---- Buena pregunta --- Señaló y los tres sonrieron --- Ellos están dispuestos a patrocinar SM Entertainment High School.
+---Ellos han abierto y dirigen su propia empresa discográfica ---los señaló --- No sé si conocerás algo de ellos, pero Tony An es un ex integrante de H.O.T., y perteneció a la SM.
 
---- ¿En serio? --- Abrí mucho los ojos --- ¿Aun siendo de la SM?
+---Si, sinceramente los conozco ---hice una reverencia --- ¿Y qué ocurre con eso, señor?
 
---- Hay algo que nos gustó al leer el original --- Dijo SeunHo cruzándose de piernas --- Y es que no haces competencia de empresas, como la YG y SM tienen actualmente --- Me sorprendía la tranquilidad con la que hablaba del tema... yo lo hubiera mantenido casi en tabú --- Y como usaste a varios personajes que en realidad, no tienen mucho que ver unos con otros.
+---Buena pregunta ---señaló y los tres sonrieron --- Ellos están dispuestos a patrocinar SM Entertainment High School.
 
---- El caso --- Dijo JiHoon --- Nos gustó, y queremos ayudar.
+---¿En serio? ---abrí mucho los ojos --- ¿Aun estando bajo el sello de la SM?
 
---- Guau --- Conseguí decir anonadada --- De verdad me alaga eso... no sé qué decir... --- Me coloqué la mano en el pecho --- Esto es muy importante para mí.
+---Hay algo que nos gustó al leer el original ---dijo Seunho cruzándose de piernas --- Es que no haces competencia de empresas, como la YG y SM tienen actualmente ---me sorprendía la tranquilidad con la que hablaba del tema, yo lo hubiera mantenido casi en tabú --- Además usaste a varios personajes que en realidad no tienen mucho que ver unos con otros.
 
---- Y querría comentarle algo, María --- Dijo SeunHo captando toda mi atención --- ¿Y Dead End?
+---El caso ---dijo Jihoon --- Nos gustó y queremos ayudar.
 
---- ¿Cómo sabe la existencia de...? --- Me quedé atónita... no podía reaccionar. Y me acordé del simpático de Yoochun, que las había leído todas.
+---Vaya ---conseguí decir anonadada --- De verdad me alaga eso, no sé qué decir ---me coloqué la mano en el pecho --- Esto es muy importante para mí.
 
---- Alguien me habló muy bien de ella...
+---Y querría comentarle algo, María ---dijo Seunho captando toda mi atención --- ¿Trabajarás con Dead End?
 
---- ¿Dead End? --- Lee Sooman y JiHoon estaban extrañados.
+---¿Cómo sabe la existencia de...? ---me quedé atónita, no podía reaccionar. Y me acordé del simpático de Yoochun, que las había leído todas.
 
---- Otra novela --- Dije.
+---Alguien me habló muy bien de ella...
 
---- En la que mezcla japoneses, coreanos y taiwaneses --- Dijo SeunHo sonriente --- Sería buena inversión.
+---¿Dead End? ---Lee Sooman y Jihoon estaban extrañados.
 
---- Habría que ver el auge que tiene este drama, va a ser muy complicado llevarlo a cabo --- Dijo Lee Sooman --- Tenemos que ver como se lo toman los directivos.
+---Es otro trabajo que tengo pendiente ---dije con rapidez.
 
---- Esto... señor Sooman --- Lo corté y me miró --- Tengo algo que decirle muy importante sobre eso... ya que... por eso vine...
+---En la que mezcla japoneses, coreanos y taiwaneses ---dijo Seunho sonriente --- Sería una muy buena inversión.
 
---- ¿Y es...? --- Los tres me miraron.
+---Habría que ver el auge que tiene este drama ---dijo Lee Sooman --- Tenemos que ver el impacto que tiene con la audiencia para seguir haciendo más producciones de ella.
 
---- El hermano de Jane, una de las chicas, falleció en un accidente de coche hace un par de días... --- Dije agachando la cabeza --- Su padre la obliga a volver.
+---Esto, señor Sooman ---lo corté y me miró --- Tengo algo que decirle muy importante sobre el drama. ya que por eso vine.
 
---- ¿Ella es mayor de edad? --- Negué con la cabeza --- Pues entonces si el padre la obliga, no podemos hacer nada. No podemos retenerla.
+---¿Y es...? ---los tres me miraron.
 
---- ¿Y qué haremos? --- Pregunté.
+---El hermano de Jane, una de las chicas, falleció en un accidente de coche hace un par de días ---dije agachando la cabeza --- Su padre la obliga a volver.
 
---- ¿No tienes algo ya pensado? --- Me miró --- ¿O tu relación con Junsu no te deja tiempo para pensar?
+---¿Ella es mayor de edad? ---negué con la cabeza y él se encogió de hombros --- Pues entonces si el padre la obliga, no podemos hacer nada. No podemos retenerla.
 
---- ¿Perdón? --- Abrí mucho los ojos ante su pregunta. Sinceramente me enfadé --- ¿Eso qué tiene que ver en esto, señor?
+---¿Y qué haremos? ---pregunté.
 
---- Más de lo que te imaginas... --- Suspiró y miró a los chicos --- ¿Podéis retiraros? El lunes hablaremos con más detalles del asunto.
+---¿No tienes algo ya pensado? ---me miró desafiante --- ¿O tu relación con Junsu no te deja tiempo para pensar?
 
---- De acuerdo señor Lee Sooman --- Dijo JiHoon --- Encantado María.
+---¿Perdone? ---abrí mucho los ojos ante su pregunta. Sinceramente me enfadé --- ¿Eso qué tiene que ver en esto, señor?
 
---- Hasta luego --- Dijo SeunHo --- María...
+---Más de lo que te imaginas ---suspiró y miró a los dos hombres --- ¿Podéis retiraros? El lunes hablaremos con más detalles del asunto.
 
-Ambos se retiraron, y Lee Sooman y yo nos miramos. Sinceramente tenía pánico a la conversación que tendríamos a continuación... y normal, salí del despacho aguantándome las lágrimas... y cuando cerré la puerta a mi espalda, no pude evitar llorar como una tonta. Me solté el pelo, poniéndome más de la mitad sobre la cara, para tapar que estaba llorando y caminé hasta el ascensor, donde me crucé con Yunho.
+Ambos se retiraron, y Lee Sooman y yo nos miramos. Sinceramente tenía pánico a la conversación que tendríamos a continuación. Y con mucho motivo, salí del despacho aguantándome las lágrimas y cuando cerré la puerta a mi espalda, no pude evitar llorar como una tonta. Me solté el pelo, poniéndome más de la mitad sobre la cara, para tapar que estaba llorando y caminé hasta el ascensor, donde me crucé con Yunho.
 
---- ¿Kiki? --- Me quitó el pelo de la cara y se sorprendió --- ¿Qué ocurre?
+---¿Kiki? ---me quitó el pelo de la cara y se sorprendió --- ¿Qué ocurre?
 
---- ...nada... --- Dije secándome las lágrimas. Lo miré a la cara --- ¿Qué haces aquí? --- Me extrañé al verlo solo.
+---Nada... ---dije secándome las lágrimas. Lo miré a la cara --- ¿Qué haces aquí? ---me extrañé al verlo solo.
 
---- Voy al parking, me he retrasado, nos esperan para ir al nuevo lugar donde haremos el nuevo video...
+---Me he retrasado, voy al parking ya que nos esperan para ir al nuevo lugar donde haremos el video.
 
---- Ah, del que me habló Junsu --- Susurré.
+---Ah, del que me habló Junsu ---susurré.
 
---- ¿Te habló del video? --- Se sorprendió.
+---¿Te habló del video? ---se sorprendió.
 
---- No te preocupes, no me ha dicho más de que él llevará un coche --- Sonreí como pude.
+---No te preocupes, solo me ha dicho que él llevará un coche ---sonreí como pude.
 
---- Si, es lo único que hemos dejado saber por ahora... --- Se puso serio --- ¿De verdad estás bien?
+---Si, es lo único que hemos dejado saber por ahora ---se puso serio --- ¿De verdad estás bien?
 
---- Si... estoy bien --- Escuché un suspiro de su parte. El ascensor paró y la puerta se abrió --- Nos vemos... hasta luego Yunho.
+---Si, estoy bien ---escuché un suspiro de su parte. El ascensor paró y la puerta se abrió --- Nos vemos, hasta luego Yunho.
 
---- Chao...
+Sentía que mi relación con él se había enfriado un poco desde que pasó lo del ataque a Junsu. Caminé sin mirar atrás y sin dejar de pensar en la conversación que había tenido con Lee Sooman. ¿Por qué ahora? ¿Por qué de repente? Llegué a mi despacho y lo primero que hice fue mandar a buscar a Elena y a Hana, necesitaba hablar con ellas. Tardaron un poco en llegar, pero pronto las tuve allí.
 
-Caminé sin mirar atrás y sin dejar de pensar en la conversación que había tenido con Lee Sooman. ¿Por qué ahora? ¿Por qué de repente? Llegué a mi despacho y lo primero que hice fue mandar a buscar a Elena y a Hana, necesitaba hablar con ellas. Tardaron un poco en llegar, pero pronto las tuve allí.
+---¿Ocurre algo? ---preguntó la mayor muy preocupada.
 
---- ¿Ocurre algo? --- Preguntó la mayor muy preocupada.
+---Kiki, ¿has llorado? ---me preguntó Elena mientras se acercaba a mí.
 
---- Kiki, ¿has llorado? --- Me preguntó Elena mientras se acercaba a mí.
+Y sin previo aviso comencé de nuevo a llorar. Cuando vivía en España, tuve un pequeño problema con el novio que tuve cuando era adolescente y mi padre. Entendía el motivo por el cual mi padre no le gustaba, pero jamás me había dicho que cortara con él. Era la primera vez que me enfrentaba a esas palabras tan serias y no venían precisamente de la boca de mi padre, sino de mi jefe. El mío y el de mi novio.
 
-Y sin previo aviso comencé de nuevo a llorar. Cuando vivía en España, tuve un pequeño problema con el novio que tuve allí y mi padre. Entendía el motivo por el cual mi padre no le gustaba, pero jamás me había dicho que cortara con él... que lo dejara... Era la primera vez que me enfrentaba a esas palabras tan serias... y no venían precisamente de la boca de mi padre, sino de mi jefe... el mío y el de mi novio.
+---¿Has hablado con Lee Sooman? ---preguntó Hana y yo me limité a asentir mientras iba a por un pañuelo. Ella suspiró --- ¿Le has dicho lo de Jane?
 
---- ¿Has hablado con Lee Sooman? --- Preguntó Hana y yo me limité a asentir mientras iba a por un pañuelo. Ella suspiró --- ¿Le has dicho lo de Jane?
+---Si ---dije --- Y lo peor no ha sido eso, sino quién estaban allí y lo que dijo mientras no estábamos solos.
 
---- Si --- Dije --- Y lo peor no ha sido eso... sino quién estaban allí y por qué... y lo que él ha dicho...
+---Bueno, si nos lo cuentas te entenderemos ---dijo Elena con poca delicadeza, que fue reprendida por Hana --- Perdón ---se encogió de hombros --- Es que el ver como lloras y el no saber por qué, me pone de muy mal humor.
 
---- Bueno, si nos lo dices, te entenderemos --- Dijo Elena con poca delicadeza, que fue reprendida por Hana --- Perdón... --- Se encogió de hombros --- Es que el ver como lloras y el no saber por qué, me pone de muy mal humor...
+---Rain y Tony An estaban allí ---y les conté por qué ellos estaban allí y todo ese rollo --- Y claro, yo he soltado lo de Jane estando ellos allí.
 
---- Rain y Tony An estaban allí --- Y les conté por qué ellos estaban allí y todo ese royo --- Y claro, yo he soltado lo de Jane estando ellos allí.
+---¿Quieren patrocinarla? ---dijo Elena con los ojos abiertos.
 
---- ¿Quieren patrocinarla? --- Dijo Elena con los ojos abiertos.
+---¿Y Dead End también? ---Hana sonrió.
 
---- ¿Y Dead End también? --- Hana sonrió.
+--- Al caso ---capté su atención --- No han dicho nada claro de Dead End, eso lo primero, y... ---me quedé un momento en silencio --- Lee Sooman me ha echado en cara lo de Junsu ahora y de mala manera.
 
---- Dead End... --- Y Elena se perdió.
+---¿Lo de Junsu? ---ambas me miraron. Hana tomó la palabra --- ¿Y no te ha dicho nada de Jane?
 
---- Al caso --- Capté su atención --- Es que no han dicho nada claro de Dead End, eso lo primero... y... --- Me quedé un momento en silencio --- Lee Sooman me ha echado en cara lo de Junsu... ahora... y
-de mala manera.
+---¿Qué me va a decir? ---puse un puchero --- La obligan sus padres, ella es menor de edad en España y aquí aún más, no podemos ir en contra de su voluntad y no podemos raptarla. Y ella menos se puede escapar.
 
---- ¿Lo de Junsu? --- Ambas me miraron. Hana tomó la palabra --- ¿Y no te ha dicho nada de Jane?
+---Me has leído la mente ---dijo Elena agachando la cabeza --- ¿Y qué harás? Tienes muy pocos días para sacar a la luz el episodio uno y Jane es Alicia.
 
---- ¿Qué me va a decir? --- Puse un puchero --- La obligan sus padres, ella es menor de edad en España y aquí aún más... no podemos ir en contra de su voluntad... no podemos raptarla... Y ella menos se puede escapar.
+---Eso ya lo sé, no me lo recuerdes --- Me enfadé y me llevé los dedos a las sienes pensando.
 
---- Me has leído la mente --- Dijo Elena agachando la cabeza --- ¿Y qué harás? Tienes muy pocos días para sacar a la luz el episodio uno... y Jane es Alicia.
+---Hay que recordártelo Kiki ---dijo Hana --- Tienes que solucionarlo, eres la jefa del proyecto.
 
---- Eso ya lo sé, no me lo recuerdes... --- Me enfadé.
+--- Claro, y aquí Kiki se calienta la cabeza con todo --- Estallé y comencé a gritar --- Dile a Lee Sooman que Jane tiene que volver a España y que tal vez no vuelva. El capítulo uno tiene que salir a la luz en menos de tres o cuatro días. Que las compañías que me patrocinan queden bien. Y lo peor... ---me derrumbé en la silla --- Decirle a Junsu que tenemos que romper.
 
---- Hay que recordártelo Kiki --- Dijo Hana --- Tienes que solucionarlo...
+Y el silencio se hizo en mi despacho, yo lloraba en silencio mientras las otras no decía nada, la verdad es que tampoco quería que dijeran mucho. Tenía un cacao mental impresionante y no tenía ni idea de cómo lo iba a solucionar. Llamaron a la puerta del despacho, yo con rapidez me sequé la cara y dejé pasar a quien golpeaba. Un serio Kim Dongsea se dejó ver.
 
---- Claro, y aquí Kiki se calienta la cabeza con todo... --- Estallé y comencé a gritar mientras lloraba --- ¡Dile a Lee Sooman que Jane tiene que volver a España, que tal vez no vuelva, que el capítulo uno salga a la luz en menos de tres o cuatro días, que no me echen, que las compañías que me patrocinan queden bien! ... y lo peor... --- Me derrumbé en la silla --- Decirle a Junsu que tenemos que romper...
+---He hablado con Lee Sooman ---dijo cerrando y mirando a Hana y Elena --- Y me lo ha dicho, ¿qué vas a hacer?
 
-Y el silencio se hizo en mi despacho, yo lloraba como una quinceañera mientras las otras no decía nada... la verdad es que tampoco quería que dijeran mucho, tenía un cacao mental impresionante y no tenía ni idea de cómo lo iba a solucionar. Llamaron a la puerta del despacho, yo con rapidez me tranquilicé y dejé pasar a quien golpeaba. Un serio Kim Dongsea se dejó ver.
+---No me preguntes eso ---le dije buscando algún tipo de apoyo en él --- Ayúdame a poner una solución, no puedo hacerlo yo sola.
 
---- He hablado con Lee Sooman --- Dijo cerrando y mirando a Hana y Elena --- Y me lo ha dicho... ¿qué vas a hacer?
+---Ok, te ayudaré ---sacó un sobre y me lo enseñó --- No sé si servirá, pero...
 
---- No me preguntes eso --- Le dije --- Ayúdame a poner una solución... no puedo hacerlo yo sola.
+---¿Qué es? ---dije impaciente.
 
---- Ok, te ayudaré --- Y sacó un sobre, me lo enseñó --- No sé si servirá, pero...
+---Un billete para España ---dijo --- Acompañaré a Jane y hablaré con sus padres.
 
---- ¿Qué es? --- Dije impaciente.
+---Ha fallecido su hermano ---resoplé --- No creo que sea un buen momento.
 
---- Un billete sin fecha para España --- Dijo --- Acompañaré a Jane y hablaré con sus padres.
+---Si, pero no hay otro momento, puede que si ella vuelve a su país no regrese aquí y piensa qué ocurriría si ella no vuelve ---hizo un gesto de despedida con la mano --- María, tu puesto depende de un hilo y ese hilo es SM Entertainment High School. Lee Sooman ha hablado con los altos directivos y lo entienden, es el fallecimiento de un ser cercano y no son de piedra.
 
---- ... --- Resoplé --- Ha fallecido su hermano... no creo que sea un buen momento.
+---Pues menos mal.
 
---- Si, pero no hay otro momento, puede que si ella vuelve a su país, no regrese aquí... y piensa qué ocurriría si ella no vuelve --- Hizo un gesto de despedida con la mano --- María, tu puesto depende de un hilo... y ese hilo es SM Entertainment High School... Lee Sooman ha hablado con los altos directivos y lo entienden... es el fallecimiento de un ser cercano... no son de piedra.
+---Pero ella tiene que volver, si no te quedas en la calle ---dijo con franqueza.
 
---- Pues menos mal...
+---¿Se podría sustituir? ---preguntó Hana.
 
---- Pero ella tiene que volver... si no, te quedas sin puesto...
+---¿Colocar otra Alicia? ¿Española? ¿Con esas características? ¿Sin que sepa coreano? ---Dongsea la miró de repente --- Es muy arriesgado hacer eso ---suspiró pensativo --- No sé si podemos arriesgarnos.
 
---- ¿Se podría sustituir? --- Preguntó Hana.
+Y en realidad tenía razón, o poníamos a Jane, o yo me podía despedir de mi trabajo y de mi carrera como guionista. Me despediría de Junsu y volvería a España con el rabo entre las piernas y no podía permitirme tener ese lujo. No había ahorrado dinero ni me había sacrificado, ni mucho menos había aguantado las duras palabras en mi familia, para volver con las manos vacías.
 
---- ¿Colocar otra Alicia? ¿Española? ¿Con esas características? ¿Sin que sepa coreano? --- Dongsea la miró de repente --- Es muy arriesgado hacer eso... --- Suspiró --- No podemos arriesgarnos.
+---Dongsea --- capté su atención --- Tengo un pequeño drama de dos o tres episodios, ¿lo podemos hacer mientras?
 
-Y en realidad tenía razón, o poníamos a Jane, o yo me podía despedir de mi trabajo y de mi carrera como guionista en la SM, me despedía de Junsu y volvía a España con el rabo entre las piernas y la cabeza gacha... y no podía permitirme tener ese lujo. No había ahorrado dinero ni me había sacrificado, ni mucho menos había aguantado las duras palabras en mi familia para volver con las manos vacías.
+---No es mala idea ---sonrió y me señaló satisfecho --- Hablaré con Lee Sooman y se lo comentaré; prepara el guión para esta tarde y preséntalo, tal vez calme un poco las aguas.
 
---- Dongsea --- Capté su atención --- Tengo un pequeño drama de dos o tres episodios... ¿lo podemos hacer mientras?
+---Gracias.
 
---- ... no es mala idea... --- Sonrió --- Hablaré con Lee Sooman y se lo comentaré; prepara el guión para esta tarde y preséntaselo, tal vez calme un poco las aguas.
+Enseguida se marchó Dongsea, y al rato se marcharon las chicas para que yo pudiera empezar con el trabajo rápido para poder tener más espacio de tiempo con lo de Jane. Llamé a R para avisar del plan que Dongsea tenía, que se iría con ellas, para que a la hora de embarcar no les pillara de sorpresa.
 
---- Gracias...
-
-Enseguida se marchó Dongsea, y al rato se marcharon las chicas para que yo pudiera empezar con el trabajo rápido para poder tener más espacio de tiempo con lo de Jane. Y llamé a R para avisar del plan que Dongsea tenía, que se iría con ellas, para que a la hora de embarcar no les pillara de sorpresa. Y cuando me senté frente al ordenador, no sabía cuál historia corta escoger, muchas eran poco románticas, otras eran demasiado apasionadas... Y entre tanta, encontré una que sería perfecta, se llamaba “El amor de Eva”, pero siempre podía adaptar los personajes y los nombres a los coreanos... al igual que la cultura... Así que estaba listo... la protagonista se llamaría KiMin.
+Y cuando me senté frente al ordenador no sabía cuál historia corta escoger. Muchas eran poco románticas, otras eran demasiado apasionadas. Y entre tanta, encontré una que sería perfecta, se llamaba "El amor de Eva", pero siempre podía adaptar los personajes y los nombres a los coreanos, al igual que la cultura. Así que estaba decidido, la protagonista se llamaría Kimin.
 
 Después de estar unas horas con el maldito guión, mi tripa comenzó a pedirme comida. Suspiré y dejé a un lado el ordenador y salí del despacho. Caminé tranquilamente por los pasillos y decidí bajar por las escaleras. No fue decisión propia, había una gran cola para el ascensor. Bajé tarareando una canción y al llegar al final, me choqué con alguien.
 
---- Vaya, disculpa...
+---Vaya, disculpa.
 
---- No te preocupes --- Al levantar la cabeza me fijé en que era uno de los Super Junior, Kangin --- Yo también iba algo despistado.
+---No te preocupes ---al levantar la cabeza me fijé en que era uno de los Super Junior, Kangin --- Yo también iba algo despistado.
 
---- A estas horas solo se piensa en la comida --- Afirmé.
+---A estas horas solo se piensa en la comida ---afirmé.
 
---- Que razón tienes... --- Se quedó pensativo --- ¿Te importa si te acompaño?
+---Que razón tienes ---se quedó pensativo --- ¿Te importa si te acompaño?
 
---- No, que va... --- Asentí --- ¿No estás con los demás?
+---No, que va ---Asentí --- ¿No estás con los demás?
 
---- No --- Negó --- Yo acabo de terminar de grabar el programa de radio y el hambre me llamaba --- Rió estruendosamente y yo le acompañé --- Eh, buena fiesta la de ayer.
+---Acabo de terminar de grabar el programa de radio y el hambre me llamaba --- Rió estruendosamente y yo le acompañé --- Eh, buena fiesta la de ayer.
 
---- Fue sorpresa --- Dije mientras caminábamos hacia la cafetería --- Y gracias por parar a los periodistas.
+---Fue sorpresa ---dije mientras caminábamos hacia la cafetería --- Todo gracias a Heechul, Jane y Elena. 
 
---- No, no hay que darlas... --- Se encogió de hombros.
+---Él si que sabe como montar fiestas ---se encogió de hombros.
 
---- ¿Cómo van las cosas para Super Junior?
+La verdad es que Kangin era muy divertido, tenía que profundizar más con los Super Junior, podía sacar cosas buenas de ellos. Enseguida llegamos a la cafetería y pedimos algo para almorzar y seguimos hablando de muchas cosas sobre ambos y ya, como no, sobre el drama.
 
---- Genial, la verdad --- Asintió --- Con el concierto hemos hecho buenas ventas y fue un éxito total... ¿lo has visto?
+---Oye... me leí el guión ---de pronto se puso algo nervioso mientras lo veía con su zumo en la mano --- ¿Es cierto que me acuesto con una de las chicas?
 
---- No, la verdad... estos últimos meses he andado algo ocupada --- Sonreí mientras elegía algo para almorzar.
+---Es solo ficción ---señalé y él asintió.
 
---- Una lástima... --- Se lamentó --- Fue genial... si lo llego a saber te doy una entrada... para que hubieras estado en el vips junto a algunas Elf privilegiadas...
+---Lo sé, lo sé. Me sorprende que escribieras eso en un drama juvenil ---se encogió de hombros --- O lo suprimes o no lo podrán retransmitir hasta las diez de la noche.
 
---- Ehh... no importa... --- Sonreí sonrojada. Si le dijera que odiaba tanto a las Elf como a las Cassiopeia se sorprendería --- Ya lo veré por la tele... vi anunciado que lo iban a echar...
+---Eso ya está solucionado ---le dije restando importancia --- Yo no censuro nada.
 
---- Si, bueno... siempre echan los conciertos en la SBS --- Se quedó pensativo --- Pero no es lo mismo vivirlo en directo... la emoción, la adrenalina...
+---¿Sabes que tendrás problemas con las fans? ---me dijo mientras bebía.
 
---- Si --- Le coloqué la mano en el hombro y me miró --- Tienes razón... algún día iré a un concierto...
+---Bueno, sinceramente es problema de ellas ---resoplé molesta por el cuidado que solían tener con la opinión de las fans --- Es ficción, nada es realidad. Si se enfadan dos males tienes.
 
---- ... --- Me miró de reojo --- Me da que no lo dices muy convencida.
+---Te admiro ---rió dejando la botella sobre la barra --- De verdad que te admiro. Vas a causar una revolución muy grande ---siguió entre risas --- Pero de verdad que luchas sabiendo las consecuencias, y aun así...
 
---- Que sí, que si --- Insistí mientras llamaba al camarero --- Que iré... al próximo que haya...
+---Me atengo a las consecuencias, puede no gustar o puede que si ---sonreí y me encogí de hombros. Era cierto, tenía un cincuenta por ciento de posibilidad de que saliera bien --- Si no lo pruebo, nunca sabré si resultó bien o no y me quedaré con las ganas.
 
-Me miró no muy convencido y comencé a reírme. La verdad es que Kangin era muy divertido, tenía que profundizar más con los Super Junior, podía sacar cosas buenas de ellos. Enseguida pedimos algo para almorzar y seguimos hablando de muchas cosas sobre ambos... y ya, como no, sobre el drama.
+---Tienes valor ---puso su mano sobre mi hombro.
 
---- Oye... me leí el guión --- De pronto se puso algo nervioso mientras lo veía con su zumo en la mano --- Y... ¿es cierto que me acuesto con una de las chicas?
+---Estás actuando como si el día que salga a la luz me vayan a crucificar ---lo miré con horror y él rió con ganas --- No te rías, hablo en serio.
 
---- Es solo ficción --- Señalé y él asintió.
+---Lo siento, eres muy divertida. Ya entiendo esos guiones tan divertidos ---suspiró --- Sobre todo Donghae en la piscina. Para mi fue lo mejor.
 
---- Lo sé, lo sé... me sorprende que escribieras eso en un drama juvenil --- Se encogió de hombros --- O lo suprimes o no lo podrán retransmitir hasta las diez de la noche...
+---Eres malo ---negué con la cabeza.
 
---- Eso ya está solucionado --- Le dije --- Los capítulos más especiales serán a partir de las diez... los demás a las ocho, se avisará de antemano y si lo ven es cosa de ellos... Pero yo no censuro nada.
+---Kiki ---de pronto aparecieron Elena y Hana. La segunda hablaba por teléfono --- Jane se ha puesto muy mal. Creo que le está afectando en serio.
 
---- ¿Sabes que tendrás problemas con las fans? --- Me dijo mientras bebía.
+---Normal ---miré a Kangin --- Bueno, ya hablamos. Hasta luego.
 
---- Bueno... sinceramente es problema de ellas --- Resoplé --- Es ficción, nada es realidad... si se enfadan, dos males tienes.
+---Si, hasta luego ---se despidió.
 
---- Te admiro --- Rió dejando la botella sobre la barra --- De verdad que te admiro... vas a causar una revolución --- Siguió entre risas --- Pero de verdad que luchas sabiendo las consecuencias, y aun
-así...
+---¿Qué ocurre, Hana? ---la miré y ella colgó el teléfono.
 
---- Me atengo a las consecuencias... puede no gustar o puedeque si --- Sonreí --- Si no lo pruebo, nunca sabré si resultó bien o no... Y me quedaré con las ganas.
+---R ha llamado a un médico ---me miró --- Tiene ansiedad, dice que le recomienda no viajar en su estado, sin embargo si no viaja y soluciona las cosas allí se pondrá peor.
 
---- Tienes valor --- Puso su mano sobre mi hombro.
+---¿Y qué se hace en estos casos? ---resoplé.
 
---- Estás actuando como si el día que salga a la luz me vayan a crucificar --- Lo miré con horror y él rió descontroladamente --- No te rías, hablo en serio...
+---Estar con ella ---dijo Elena --- R también está mal y no se pueden apoyar mutuamente.
 
---- Lo siento, eres muy divertida... ya entiendo esos guiones tan divertidos --- Suspiró --- Sobre todo Donghae en la piscina... lo mejor.
+---Pues yo no puedo ir ---resoplé.
 
---- Eres malo --- Negué con la cabeza.
+---Nosotras si ---dijo Hana --- Nos vamos a casa para estar con ellas, cuando sea la hora de ir al aeropuerto te llamamos para que vayas con Dongsea.
 
---- Kiki --- De pronto apareció Elena y Hana. La segunda hablaba por teléfono --- Jane se ha puesto muy mal... Creo que... le está afectando en serio.
+---Vale ---asentí --- Bueno pues... ---me quedé pensativa --- Que os vaya bien.
 
---- Normal --- Miré a Kangin --- Bueno, ya hablamos... Hasta luego.
+---Y a ti también.
 
---- Si, hasta luego --- Se despidió.
+Ambas se marcharon y yo me quedé algo mal por la situación, el no poder hacer nada me daba un estado de impotencia increíble. Así que decidí llamar a Junsu para contárselo, al menos la parte que podía contar que era lo ocurrido a Jane.
 
---- ¿Qué ocurre, Hana? --- La miré y ella colgó el teléfono.
+Llegué a mi despacho y estuvimos hablando más o menos media hora que él pudo escaparse mientras los demás hacían no sé qué para el nuevo disco. No fue mucho tiempo, pero ese tiempo fue perfecto para relajarme, despejarme y aliviarme. Realmente agradecía que Junsu estuviera en mi vida para todo, lo bueno y lo malo, a pesar de que la gran mayoría de las veces era malo. Él estaba allí, y me dijo que nunca me dejaría caer. O al menos, que si caía, no caería sola ya que él siempre iba a estar a mi lado. Y lloré. Al final acabé llorando como una tonta hasta que de nuevo interrumpieron mi llanto con unos golpes en la puerta.
 
---- R ha llamado a un médico --- Me miró --- Tiene ansiedad... dice que le recomienda no viajar en su estado... sin embargo, si no viaja y soluciona las cosas allí se pondrá peor...
+---Junsu, ¿podremos vernos esta noche? ---pregunté.
 
---- ¿Y qué se hace en estos casos? --- Resoplé.
+---Ahora que sé dónde vives iré con los chicos. Luego hablamos, adiós.
 
---- Estar con ella --- Dijo Elena --- R también está mal y no se pueden apoyar mutuamente.
+---Adiós ---me despedí y colgué. Me sequé las lágrimas y disimulé un poco --- Adelante.
 
---- Pues yo no puedo ir --- Resoplé.
+---Hola María ---Dongsea entró --- Hana te llamó a recepción, están listas para ir al aeropuerto. Lo que no sabía es que R también se va ---se acercó a mí --- ¿Sabes el problema que eso tiene?
 
---- Nosotras si --- Dijo Hana --- Nos vamos a casa, a estar con ellas, cuando sea la hora de ir al aeropuerto te llamamos para que vayas con Dongsea...
+---Sí, me arriesgo --- Asentí frotándome las manos --- No pienso dejar a Jane sola.
 
---- Vale --- Asentí --- Bueno pues... --- Me quedé pensativa --- Que os vaya bien...
+---Voy yo ---se señaló.
 
---- Y a ti también...
+---Lo sé, lo sé ---dije mordiéndome el labio inferior --- Pero no es lo mismo que vayas tú, Kim Dongsea, que ella, Rocío, amiga de muchos años ---suspiré profundamente --- Además, así ella hará de traductora, que estará más dispuesta que Jane.
 
-Ambas se marcharon y yo me quedé algo mal por la situación, el no poder hacer nada me daba un estado de impotencia increíble. Así que decidí llamar a Junsu para contárselo... al menos la parte que podía contar... lo ocurrido a Jane.
+---Ok, vale ---asintió --- ¿Has llorado?
 
-Llegué a mi despacho y estuvimos hablando más o menos media hora que él pudo escaparse mientras los demás hacían no sé qué para el nuevo disco. No fue mucho tiempo, pero ese tiempo fue perfecto para relajarme, para despejarme y aliviarme; realmente agradecía que Junsu estuviera en mi vida para todo, lo bueno y lo malo, a pesar de que la gran mayoría de las veces era malo, él estaba allí, y lo que me dijo fue, que nunca me dejaría caer. O al menos, que si caía, no caería sola... él siempre iba a estar a mi lado... Y lloré. Al final acabé llorando como una tonta hasta que de nuevo interrumpieron mi llanto con unos golpes en la puerta.
+---Un poco ---me toqué la cara, ¿tanto se me notaba? --- Conocía al hermano de Jane.
 
---- Junsu, ¿podremos vernos esta noche? --- Pregunté.
+--- Ahm ---me miró un momento a los ojos y desvió la mirada --- Vamos, nos están esperando.
 
---- Ahora que sé dónde vives... --- Dijo --- Iré con los chicos. Luego hablamos, adiós.
+Cogí la carpeta del guión que tenía preparado e impreso, escribí una nota para Lee Sooman y se lo di a mi secretaria para que se lo diera a él. Me despreocupé un poco y me marché con Dongsea a casa. Le indiqué el camino y, con el mismo miedo que la primera vez que me monté en su coche, me llevó al mi casa.
 
---- Chao --- Me despedí y colgué. Me sequé las lágrimas y disimulé un poco --- Adelante.
+---Estás loco ---me quité el cinturón de seguridad lentamente --- Muy loco.
 
---- Hola María --- Dongsea entró --- Hana te llamó a recepción, están listas para ir al aeropuerto... Lo que no sabía es que R también se va --- Se acercó a mí --- ¿Sabes el problema que eso tiene?
+---Aún guardo las fotos, ¿sabes? ---sonrió con tristeza y suspiró --- Bueno, yo llevo mi equipaje en el maletero, no es mucho.
 
---- Sí, me arriesgo --- Asentí --- Pero R también lo conocía... y no pienso dejar a Jane sola...
+---De acuerdo, espera aquí por favor ---insistí y él asintió --- Gracias por ayudarme.
 
---- Voy yo --- Se señaló.
+Subí y llegué a casa. Las chicas me esperaban en la puerta con las maletas, Jane tenía muy mala cara e iba abrigada con una chaqueta bien grande. Tenía ojeras y se notaba que había estado todo el rato llorando. R la mantenía abrazada, pero su cara no era mejor que la de Jane.
 
---- Lo sé, lo sé --- Asentí --- Pero no es lo mismo que vayas tú, Kim Dongsea, que ella... Rocío... amiga de muchos años ya... --- Suspiré profundamente --- Además, así ella hará de traductora, que
-estará más “potable” que Jane...
+---Vamos ---dije --- Dongsea nos espera con su coche.
 
---- Ok, vale --- Asintió --- ¿Has llorado?
+---¿Cómo vamos a ir todas? ---preguntó Hana --- Somos seis.
 
---- ¡¡...!! --- Me toqué la cara, ¿tanto se me notaba? --- Un poco... conocía al hermano de Jane.
+---Kiki ---dijo Elena --- Nosotras dos ---dijo señalándose a ella y a Hana --- Iremos en taxi, nos vemos allí en el aeropuerto.
 
---- Ahm --- Me miró un momento a los ojos y desvió la mirada --- Vamos, nos están esperando...
+---Vale ---asentí --- Nos vemos.
 
---- Si...
+Las tres bajamos hasta el coche de Dongsea, metimos el equipaje en el coche y nos marchamos al aeropuerto. Al llegar, no esperamos por mucho tiempo a las otras dos, enseguida llegaron y embarcamos las maletas. Pasaron dos horas y anunciaron el vuelo, ya eran las seis y media. Nos despedimos de los tres y Kim Dongsea me confió su coche, me dijo que no lo dejara en el aeropuerto y que lo sacara todos los días al menos quince minutos. Me indicó que tipo de gasolina llevaba y me dio las llaves, lo más importante.
 
-Cogí la carpeta del guión que tenía preparado ya, escribí una nota para Lee Sooman y se lo di a mi secretaria para que se lo diera a él. Me despreocupé un poco y me marché con Dongsea a casa. Le indiqué el camino y, con el mismo miedo que la primera vez que me monté en su coche, me llevó al mi casa.
+---Bueno ---Elena me dio unas palmadas en el hombro --- Ánimo Kiki.
 
---- Estás loco --- Me quité el cinturón de seguridad lentamente --- Muy loco.
+---Creo que necesitaré mucho ---susurré mirando el coche.
 
---- Aún guardo las fotos, ¿sabes? --- Sonrió con tristeza y suspiró --- Bueno, yo llevo mi equipaje en el maletero, no es mucho...
+---¿Te acuerdas de conducir? ---rió Hana con su acento y yo la miré mal --- Era una broma.
 
---- De acuerdo... espera aquí por favor --- Insistí y él asintió --- Gracias por ayudarme.
+---Llevo casi ocho meses sin conducir, pero no se me ha olvidado ---suspiré --- Lo que tengo es miedo.
 
---- Un placer...
+---Yo también ---Elena se santiguó --- ¿Es potente el coche?
 
-Subí y llegué a casa. Las chicas me esperaban en la puerta con las maletas, Jane tenía muy mala cara e iba abrigada con una chaqueta bien grande. Tenía ojeras y se notaba que había estado todo el rato llorando. Al menos R llevaba mejor cara.
+---Si ---respondí inmediatamente.
 
---- Vamos --- Dije --- Dongsea nos espera con su coche.
+---La hemos liado... ---abrazó a Hana --- Fue un placer conocerte, aunque me cueste morir sin haber besado a Donghae o sin haber hablado con él.
 
---- ¿Cómo vamos a ir todas? --- Preguntó Hana --- Somos seis...
+---Idiota ---le di un golpe en el brazo --- No es para tanto.
 
---- Kiki --- Dijo Elena --- Nosotras dos --- Dijo señalándose a ella y a Hana --- Iremos en taxi, nos vemos allí en el aeropuerto...
+---Eso ya se verá ---dijo Hana.
 
---- Vale --- Asentí --- Nos vemos...
+---Además, solo conduzco suelta por los caminos que conozco muy bien y esto no lo conozco para nada ---y comencé a tener miedo --- Y no recuerdo el camino a casa.
 
-Las tres bajamos hasta el coche de Dongsea, metimos el equipaje en el coche y nos marchamos al aeropuerto. Al llegar, no esperamos por mucho tiempo a las otras dos, enseguida llegaron y embarcamos las maletas. Pasaron dos horas y anunciaron el vuelo, ya eran las seis y media. Nos despedimos de los tres y Kim Dongsea me confió su coche... me dijo que no lo dejara en el aeropuerto, y que lo sacara todos los días al menos quince minutos, me indicó que tipo de gasolina llevaba y me dio las llaves, lo más importante.
+---¿Me vas a hacer llamar a Yunho? ---dijo Hana.
 
---- Bueno --- Elena me dio unas palmadas en el hombro --- Ánimo Kiki.
+---Ellos están muy ocupados ---dije con confianza --- Tengo que hacerlo yo.
 
---- Creo que necesitaré mucho --- Susurré.
+---Espero que los cinturones sean buenos ---susurró Elena y yo pasé de ella.
 
---- ¿Te acuerdas de conducir? --- Rió Hana con su acento y yo la miré mal --- Era una broma...
+---Y que tenga airbag...
 
---- Llevo casi ocho meses sin conducir, pero no se me ha olvidado --- Suspiré --- Lo que tengo es miedo...
+---Oye, ya os vale ---dije cansada.
 
---- Yo también --- Elena se pasó la mano por la cabeza --- ¿Es potente el coche?
+Nos montamos en el coche y vi que era de marchas. Sinceramente agradecí eso, la única vez que cogí un automático fue el mercedes de mi padre y por un parking, mi madre no me dejó ir a más, puso el grito en el cielo cuando me vio al volante.
 
---- Si --- Respondí inmediatamente.
+Tampoco fue tan mal, pusimos el gps en el móvil y siguiendo los carteles llegamos al piso sin ningún problema. No rebasé la velocidad permitida, no topé a nadie y el coche estaba intacto, sin ningún arañazo. No era tan mal conductora, Hana me lo dijo y Elena lo admitió entre risas. Y para nuestra sorpresa, vimos a los chicos en la puerta de casa esperando.
 
---- La hemos liado... --- Abrazó a Hana --- Fue un placer conocerte... aunque me cueste morir sin haber besado a Donghae... sin haber hablado con él... sin siquiera tocarle...
+---¿Y ese coche? ---Yoochun se acercó a él --- ¿De quién es?
 
---- Idiota --- Le di un repizco --- No es para tanto...
+---Es de Kim Dongsea ---dije --- Se ha marchado a España con las chicas y me ha dejado su coche.
 
---- Eso ya se verá --- Dijo Hana.
+---Junsu nos lo ha contado ---Yunho se acercó a mí --- ¿Por eso llorabas esta mañana?
 
---- Además, solo conduzco suelta por los caminos que conozco muy bien... y esto no lo conozco... para nada... --- Y comencé a tener miedo --- Y no recuerdo el camino a casa.
+---Ha sido muy repentino y muy brusco --- Asentí.
 
---- ¿Me vas a hacer llamar a Yunho? --- Dijo Hana.
+---Espero que vuelva ---dijo Yunho --- Y que todo le vaya bien.
 
---- No me importa --- Babeó Elena.
+---Y yo...
 
---- Ellos están muy ocupados --- Dije --- Tengo que hacerlo yo.
+---R no ha tenido problemas, ¿verdad? ---preguntó Changmin.
 
---- Espero que los cinturones sean buenos --- Susurró Elena y yo pasé de ella.
+---No, se va por acompañar a Jane, también conocía al hermano ---dije en un profundo suspiro --- ¿Subimos? 
 
---- Y que tenga airbag...
-
---- Oye, ya os vale --- Dije cansada.
-
-Nos montamos en el coche y vi que era de marchas. Sinceramente agradecí eso, la única vez que cogí un automático fue el mercedes de mi padre y por un parking, mi madre no me dejó ir a más... casi puso el grito en el cielo cuando me vio al volante.
-
-Al caso. Tampoco fue tan mal... y no me perdí... seguimos los carteles y llegamos al piso sin ningún problema. No rebasé la velocidad permitida, no topé a nadie y el coche estaba intacto, sin ningún arañazo. No era tan mal conductora, Hana me lo dijo y Elena lo admitió entre risas. Y para nuestra sorpresa, vimos a los chicos en la puerta de casa esperando.
-
---- ¿Y ese coche? --- Yoochun se acercó a él --- ¿De quién es?
-
---- Es de Kim Dongsea --- Dije --- Se ha marchado a España con Jane y R, y me ha dejado su coche.
-
---- Junsu nos lo ha contado --- Yunho se acercó a mí --- ¿Por eso llorabas esta mañana?
-
---- ... --- Asentí --- Ha sido muy repentino y muy brusco.
-
---- Espero que vuelva --- Dijo Yunho --- Y que todo le vaya bien...
-
---- Y yo...
-
---- R no ha tenido problemas, ¿verdad? --- Preguntó Changmin.
-
---- No, se va por acompañar a Jane... y también conocía al hermano --- Dije --- ¿Subimos? 
-
---- Cierto --- Dijo Jaejoong --- Todos al nuevo piso de Kiki.
+---Cierto ---dijo Jaejoong --- Vamos a conocer el nuevo piso.
 
 Subimos tras Elena, que abría las puertas. Yo me quedé al final y Junsu me cogió de la mano, me sonrió y me besó en la frente. Caminamos en silencio hasta el ascensor, donde el espacio cerrado y el perfume de los chicos provocó que me mareara un poco. Al fin llegamos a casa y nos sentamos en el sofá, Changmin puso la tele y, menuda casualidad, en ella estaban retransmitiendo mi fiesta de cumpleaños. Y por el momento iba a la perfección, sin problemas.
 
---- Entonces... todas nos conocíais antes, ¿no? --- Preguntó Yoochun de pronto.
+---Entonces todas nos conocíais antes, ¿no? ---preguntó Yoochun de pronto.
 
---- ¿Y eso a qué viene? --- Dije alarmada y sorprendida.
+---¿Y eso a qué viene? ---dije alarmada y sorprendida.
 
---- Yo soy tu favorito... --- Dijo mirando de reojo a Junsu y yo miré a Hana, que ni se inmutó --- Y quiero saber cuál es el favorito de vosotras --- Señaló a Elena y Hana.
+---Yo soy tu favorito ---dijo señalándome y yo miré a Hana, que ni se inmutó --- Y quiero saber cuál es el favorito de vosotras ---señaló a Elena y Hana.
 
---- Bueno... no creo que...
+---Bueno, no creo que...
 
---- Jaejoong --- Soltó Hana de buenas a primeras, yo me quedé con la boca abierta y la miré intentando razonar lo que había dicho. Miré a Jae, que de pronto se sonrojó. Se hizo el silencio --- ¿Qué? Yo respondo... --- Dijo desviando la mirada.
+---Jaejoong ---soltó Hana de buenas a primeras, yo me quedé con la boca abierta y la miré intentando razonar lo que había dicho. Miré a Jae que de pronto se sonrojó. Se hizo el silencio --- ¿Qué? Yo respondo ---dijo desviando la mirada.
 
---- ¿Y tú, Elena? --- Volvió a decir Yoochun.
+---¿Y tú, Elena? ---volvió a decir Yoochun.
 
---- Bueno... --- Se quedó pensativa, daba vueltas a un colgante que llevaba puesto --- Yo... --- Los miró a todos y sonrió --- En realidad mi “favorito” es Donghae --- Dijo, y entre susurros añadió un nombre más.
+---Bueno... ---se quedó pensativa, daba vueltas a la pulsera que llevaba puesta --- Yo... ---los miró a todos y sonrió --- En realidad mi _favorito_ es Donghae ---dijo, y entre susurros añadió un nombre más.
 
---- ¿Qué? --- Yoochun preguntó.
+---¿Qué? ---Yoochun preguntó con una sonrisa.
 
---- En serio, ¿eso a que viene? --- Estaba extrañada.
+---En serio, ¿eso a que viene? ---estaba extrañada.
 
---- Vamos a sacar los trapos sucios... --- Yoochun me miró de reojo, y visto desde esa postura, la luz le daba de refilón y vi muchas sombras en su cara --- ¿No es emocionante?
+---Vamos a sacar los trapos sucios... ---Yoochun me miró de reojo, y visto desde esa postura, la luz le daba de lado y vi muchas sombras en su cara --- ¿No es emocionante?
 
---- Pues estaría bien --- Dijo Yunho animado --- Así nos conocemos mejor.
+---Pues estaría bien ---dijo Yunho animado --- Así nos conocemos mejor y calmamos un poco el ambiente.
 
---- Ok, ¿traemos algo para picar? --- Changmin se puso en pie.
+---Ok, ¿traemos algo para picar? ---Changmin se puso en pie.
 
---- Te acompaño --- Hana también se puso en pie.
+---Te acompaño -- Hana también se puso en pie.
 
---- Yo voy al baño --- Elena desapareció con rapidez.
+---Yo voy al baño, no empecéis sin mi ---Elena desapareció con rapidez.
 
---- Bueno --- Miré a Yoochun --- ¿Esto de qué va?
+---Bueno ---miré a Yoochun --- ¿Esto de qué va?
 
---- ¿Pero por qué te molestas? --- Junsu me abrazó más a él --- Nos conocemos ya mucho tiempo pero tampoco te conocemos del todo.
+---¿Pero por qué te molestas? ---Junsu me abrazó más a él --- Nos conocemos ya mucho tiempo pero tampoco te conocemos del todo.
 
---- Creo que lo suficiente --- Dije.
+---Creo que lo suficiente ---dije con un mohín molesto.
 
---- ¿Por qué te pones así? --- Dijo Jaejoong --- No tienes por qué...
+---¿Por qué te pones a la defensiva? ---dijo Jaejoong --- No tienes por qué.
 
---- En realidad no me molesto --- Dije algo conmocionada por sus palabras --- Es... no sé... --- Miré al suelo sin palabras para seguir.
+---No es eso ---dije algo conmocionada por sus palabras --- Es que me da vergüenza hablar de eso ---miré al suelo.
 
---- Vamos Kiki --- Yunho me tiró un cojín y lo miré sorprendida --- Yoochun es tu favorito... ¿por qué?
+---Vamos Kiki ---Yunho me tiró un cojín y lo miré sorprendida --- Yoochun es tu favorito, ¿por qué?
 
---- ¿Me estás preguntando por qué? --- Flipé en colores y comencé a reírme. Quería que respondiera... pues no era tan fácil de responder --- ¿Por qué os interesa eso? Realmente antes creía que os
-conocía... ahora realmente os conozco...
+---¿Me estás preguntando por qué? ---abrí mucho la boca y comencé a reírme. Quería que respondiera, pero no era tan fácil --- ¿Por qué os interesa eso? Realmente antes creía que os conocía bien, pero ahora realmente os conozco.
 
---- ¿Puedo responder? --- Hana apareció con unos platos llenos de comida, seguida de Changmin, que comía de uno de ellos --- ¿Puedo?
+---¿Puedo responder por ella? ---Hana apareció con unos platos llenos de comida, seguida de Changmin, que comía de uno de ellos --- ¿Puedo?
 
---- No --- La miré mal.
+---No ---la miré mal.
 
---- ... --- Junsu resopló en mi oído. Supuse que a él tampoco le gustaba ese juego.
+Junsu resopló en mi oído. Supuse que a él no le gustaba que no quisiera responder a esa pregunta.
 
---- ¿Qué me he perdido? --- Elena llegó y se sentó en el suelo, con un cojín entre las manos.
+---¿Qué me he perdido? ---Elena llegó y se sentó en el suelo, con un cojín entre las manos.
 
---- Casi te pierdes la cena --- Dijo Jae --- Changmin se la está comiendo toda.
+---Casi te pierdes la cena ---dijo Jae --- Changmin se la está comiendo toda.
 
---- ¿Mmmm? --- Changmin nos miró con la boca llena. Todos reímos --- Hay para todos --- Dijo ofendido pero sonriente.
+---¿Mmmm? ---Changmin nos miró con la boca llena. Todos reímos --- Hay para todos ---dijo ofendido pero sonriente.
 
---- Hagamos una cosa --- Dijo Yoochun. Esa cabeza pensando era un peligro --- Hana habla de Kiki, Kiki de Elena, y Elena de...
+---Hagamos una cosa ---dijo Yoochun. Esa cabeza pensando era un peligro --- Hana habla de Kiki, Kiki de Elena, y Elena de...
 
---- No --- Dijo la pequeña --- Yo no sé nada de Hana...
+---No ---dijo Elena de pronto, alzando la mano --- Yo no conozco tanto a Hana.
 
---- ... --- Nos miró pensativo --- Vale... todas de todas... menos la nombrada.
+---Vale ---nos miró pensativo --- Se habla de la que se decida, sin que ella pueda decir nada.
 
---- Lo mismo con vosotros --- Dijo Hana señalándolos --- Pero... --- Se puso en pie y desapareció en la cocina. De pronto salió con un paquete de cervezas --- Hay que animar el ambiente.
+---Lo mismo con vosotros ---dijo Hana señalándolos --- Pero... ---se puso en pie y desapareció en la cocina. De pronto salió con un paquete de cervezas --- Hay que animar el ambiente.
 
---- ¿Desde cuándo tenemos eso? --- La miré sorprendida.
+---¿Desde cuándo tenemos eso? ---la miré sorprendida.
 
---- Desde siempre --- Dijo Hana ofendida.
+---Desde siempre ---dijo Hana ofendida.
 
---- ¡¡Cerveza!! --- Canturreó Jae junto a Yoochun.
+---¡Cerveza! ---canturreó Jae junto a Yoochun.
 
---- Lo que faltaba, alcohol... --- Me acurruqué entre los brazos de Junsu, que se había mantenido en silencio toda la conversación --- Tu no beberás, ¿verdad?
+---Lo que faltaba, alcohol... ---me acurruqué entre los brazos de Junsu, que se había mantenido en silencio toda la conversación --- Tu no beberás, ¿verdad?
 
---- No, no te preocupes --- Me dio un beso en la mejilla.
+---No, no te preocupes ---me dio un beso en la mejilla.
 
---- Apaga la tele --- Dijo Yunho a Hana --- Ya terminó el cumpleaños...
+---Apaga la tele ---dijo Yunho a Hana --- Ya terminó el cumpleaños.
 
---- Si no lo hemos visto --- Rió Hana después de beber un trago largo.
+---Si no lo hemos visto ---rió Hana después de beber un trago largo de su cerveza y apagó la televisión.
 
---- Bien --- Yoochun cogió un bote --- Que empiece el juego --- Y sonrió odiosamente.
+---Bien ---Yoochun cogió un bote --- Que empiece el juego ---y sonrió odiosamente.
 
---- Empezamos por Kiki --- Elena me señaló --- ¿Qué queréis saber de ella? Hoy noche sin secretos ni tapujos...
+---Empezamos por Kiki ---Elena me señaló --- ¿Qué queréis saber de ella? Hoy noche sin secretos.
 
---- Cuidado con lo que preguntáis --- Hana comenzó a reírse --- El novio está delante.
+---Cuidado con lo que preguntáis ---Hana comenzó a reírse --- El novio está delante.
 
---- Bueno, yo quiero hacer la primera pregunta --- Dijo Junsu de pronto --- ¿Ha tenido novios en España?
+---Bueno, yo quiero hacer la primera pregunta ---dijo Junsu de pronto --- ¿Ha tenido novios en España?
 
---- Novios, novios --- Ambas se miraron y Elena respondió --- Novio formal uno, durante tres años y medio. Y royos cuatro.
+---Novios, novios ---ambas se miraron pero fue Elena quien respondió --- Novio formal uno, durante tres años y medio hace ya unos cuantos años. Y líos cuatro.
 
---- ¿Royos? --- Junsu se extrañó.
+---¿Líos? ---Junsu se extrañó.
 
---- Solo besos, vamos --- Soltó Hana.
+---Solo besos y poco más ---soltó Hana.
 
-Di gracias de estar de espaldas a Junsu y no verle la cara. Los demás susurraban sorprendidos que yo mantuviera una relación tan larga con alguien, y más aun siendo una “adolescente loca”... ese calificativo me lo puse yo, claro.
+Di gracias de estar de espaldas a Junsu y no verle la cara. Los demás susurraban sorprendidos que yo mantuviera una relación tan larga con alguien, y más aun siendo una bastante joven.
 
---- Ahora vengo --- Me puse en pie --- Voy a por agua...
+---Ahora vengo ---me puse en pie --- Voy a por agua...
 
-Escuché algunas risas de fondo y suspiré. Vaya momento para empezar a contar “verdades” de cada uno... Bebí un largo trago de agua y titubeé un poco antes de volver al grupo. Pero lo hice. Cuando llegué, Elena me miró con cierto brillo en los ojos.
+Escuché algunas risas de fondo y suspiré. Vaya momento para empezar a contar verdades de cada uno. Bebí un largo trago de agua y titubeé un poco antes de volver al grupo. Pero lo hice. Cuando llegué, Elena me miró con cierto brillo en los ojos.
 
---- Tú no deberías beber alcohol... te sienta muy mal --- Me senté de nuevo con Junsu.
+---Tú no deberías beber alcohol, te sienta muy mal ---me senté de nuevo con Junsu.
 
---- Una noche es una noche --- Dijo Yoochun --- Así hablamos mejor.
+---Una noche es una noche ---dijo Yoochun --- Así hablamos mejor.
 
---- Cierto --- Changmin cogió un bote.
+---Cierto ---Changmin cogió un bote.
 
---- ¿Tú también? --- Lo miré.
+---¡Junsu, bebe tú también, vamos! ---dijo Yunho lanzando un cojín al callado Junsu --- Así la noche es más animada.
 
---- ¿Qué? --- Se encogió de hombros.
+---No me apetece beber... ---escuché que dijo detrás de mi --- Que luego me duele la cabeza.
 
---- ¡Junsu, bebe tú también, vamos! --- Dijo Yunho dándole ungolpe al callado Junsu --- Así la noche es más animada.
+---Bueno, vayamos salteando, no acribillando persona por persona ---dijo Hana ruborizada --- Tú ---y señaló a Changmin --- ¿Recientemente has tenido algún beso?
 
---- No me apetece beber... --- Sonrió --- Que luego me duele la cabeza.
+---¿Tengo que decir la verdad? ---se quedó a la mitad de su trago y miró al techo pensativo. Todos asintieron a lo que él suspiró --- Bueno, si reciente es hace unos tres meses, si ---asintió y terminó su trago. Todos rieron, Yunho pasó su mano por el pelo del menor, que agradeció el tenerlo corto. Changmin miró a todos lados --- Elena ---la señaló y ella tardó en alzar la cabeza, estaba sonrojada --- ¿Cuál es tu favorito de nosotros cinco?
 
---- Bueno... Vayamos salteando, no acribillando persona por persona --- Dijo Hana ruborizada --- Tú --- Y señaló a Changmin --- ¿Recientemente has tenido algún beso?
+---Tú ---y su vergüenza se marchó en cuanto dio el primer trago de cerveza --- Aunque de primeras me gustó Jaejoong, con el pelo rubio.
 
---- ¡¡...!! --- El menor se quedó a la mitad de su trago y miró al techo pensativo --- ¿Tengo que decir la verdad?
+---Oh ---Jaejoong sonrió --- Gracias.
 
---- ... --- Todos asintieron.
+---Vaya ---Changmin sonrió.
 
---- Bueno... si reciente es hace unos cinco meses, si --- Asintió y terminó su trago. Todos rieron, Yunho pasó su mano por el pelo del menor, que agradeció el tenerlo corto --- Elena --- La miró y ella tardó en alzar la cabeza, estaba sonrojada --- ¿Cuál es tu favorito de nosotros?
+---Ahora pregunta tú Elena y así sucesivamente ---Hana empezó con la segunda cerveza.
 
---- Tú --- Y su vergüenza se marchó con su razonamiento --- Aunque de primeras me gustó Jaejoong, con el pelo rubio...
+---Hum... ---Elena los miró a todos --- Junsu ---sentí como alzaba la cabeza lo justo para no separarse de mi cuello --- ¿Qué impresión te dio Kiki la primera vez que la viste?
 
---- Oh... --- Jaejoong sonrió --- Gracias.
+Noté un movimiento brusco de cabeza de Junsu, y de estar apoyado en mi cuello, acabó por mirarla, o al menos eso supuse. Me cogió de la mano y jugó con mis dedos.
 
---- Vaya --- Changmin sonrió algo tenso. ¿De verdad era necesario crear esas situaciones?
+---La primera vez que la vi, estaba en la terraza con Yoochun, así que no me fijé mucho ---sonrió.
 
---- Ahora pregunta tú Elena... y así sucesivamente --- Hana empezó con la segunda cerveza.
+---Pero eso no cuenta, Junsu idiota ---señaló Yoochun --- Cuando la viste en el coche o ya estando en el piso.
 
---- Hum... --- Elena los miró a todos --- Junsu --- Y éste alzó la cabeza --- ¿Qué impresión te dio Kiki la primera vez que la viste?
+---Pues Yoochun había hablado mucho de ella y me hacía ilusión conocerla ---su voz tembló un poco --- Y cuando la vi, me puse algo nervioso ya que me fijé que era muy guapa, pero no podía dejar de ser yo.
 
-Noté un movimiento brusco de cabeza de Junsu, y de estar susurrando en mi cuello, acabó por mirarla... o al menos eso supuse. Me cogió de la mano.
+---Vaya... ---susurré mirándole de reojo sonrojada.
 
---- La primera vez que la vi, estaba en la terraza con Yoochun, así que no me fijé mucho --- Sonrió.
+---Que bonito ---rieron Elena y Hana a la vez.
 
---- Pero eso no cuenta, Junsu idiota --- Señaló Yoochun --- Cuando la viste en el coche.
+---Junsu, pregunta ---señaló Jaejoong.
 
---- Pues había leído su novela y me hacía ilusión conocerla... --- Se puso algo nervioso --- Y cuando la vi, me puse algo nervioso... ya que vi que era muy guapa... pero no podía dejar de ser yo.
+---Este juego es absurdo ---dije soltando una carcajada --- Habéis cambiado las normas otra vez. Estáis preguntando más personalmente que para que los demás respondan ---aun estaba ruborizada.
 
---- ... vaya... --- Susurré.
+---Cierto ---Yoochun se quedó dubitativo --- Ok, vamos a hacerlo bien.
 
---- Que bonito --- Rieron Elena y Hana a la vez.
+---Creo que no lo estamos haciendo muy bien... ---susurró Changmin y señaló a Elena --- Se ha dormido.
 
---- Junsu, pregunta --- Señaló Jaejoong.
+--- Vaya, adiós fuente de información ---Jaejoong se despidió con la mano.
 
---- Este juego es absurdo --- Dije --- Habéis cambiado las normas... Estáis preguntando más personalmente que para que los demás respondan --- Aun estaba ruborizada.
+---Yo la llevo a dormir ---dijo Yunho.
 
---- Cierto --- Yoochun se quedó dubitativo --- Ok, vamos a hacerlo bien...
+---Despiértala e irá con su propio pie ---dije negando con la cabeza.
 
---- Creo que no lo estamos haciendo muy bien... --- Susurró Changmin y señaló a Elena --- Se ha dormido.
+Pero caso omiso. La cogió en peso y la llevó hasta una habitación, y acertó era la de ella. Salió al poco de dejarla acostada y se tambaleó ligeramente.
 
---- Vaya... adiós fuente de información --- Jaejoong la despidió con la mano.
+---La he tapado y todo ---se sentó en su lugar y cogió la tercera cerveza --- Sigamos con el juego. Junsu, tu turno.
 
---- Yo la llevo a dormir --- Dijo Yunho.
+---Para Kiki ---suspiró --- Y responde si quieres ---se quedó pensativo --- ¿Tú me quieres de verdad?
 
---- Despiértala e irá con su propio pie --- Dije.
+---Woo ---Se escuchó de fondo.
 
-Pero caso omiso. La cogió en peso y la llevó hasta una habitación, y acertó, era la de ella. Salió al poco de dejarla acostada tambaleandose ligeramente.
+--- Claro que sí, ¿qué clase de pregunta es esa? --- Yo alcé la cabeza y lo miré, ¿por qué preguntaba en ese momento algo como eso?
 
---- La he tapado y todo --- Se sentó en su lugar y cogió la tercera cerveza --- Sigamos con el juego. Junsu.
+---Eh, se pregunta de todo ---se encogió de hombros.
 
---- Para Kiki --- Suspiró --- Y si quieres responder responde --- Se quedó pensativo --- ¿Tú me quieres de verdad?
+Aquel comentario de Junsu me había dejado bastante descolocada, además de molesta. No veía el sentido a esa pregunta delante de todos cuando ya habíamos hablado de ese tema en privado.
 
---- Wooo --- Se escuchó de fondo. Yo alcé la cabeza y lo miré, ¿por qué preguntaba eso? --- Claro que sí, ¿qué clase de pregunta es esa?
+---¡Pregunta Kiki! ---señaló Yoochun.
 
---- Eh, se pregunta de todo... --- Se encogió de hombros.
+---Para Jaejoong ---me encogí de hombros, de perdidos al río, comencé a disfrutar de la noche --- ¿Te interesa alguna de las chicas?
 
---- ¡Pregunta Kiki! --- Señaló Yoochun.
+---¿Respondo conforme has hecho la pregunta? ---todos asintieron --- Puede ser que si, me interese.
 
---- Para Jaejoong --- Me encogí de hombros... en ese momento comencé a destensarme, a disfrutar de la noche y reírme --- ¿Te interesa alguna de las chicas?
+---¿Quien, quien? ---todos comenzaron con las preguntas.
 
---- ¿Respondo conforme la pregunta? --- Todos asintieron --- Puede ser... nada concreto, todo sea conocer.
+---Aah... ---él rió y alzó los brazos --- No se ha preguntado quién, solo si me interesaba.
 
---- ¿¿Quien, quien?? --- Todos comenzaron con las preguntas.
+---Anótalo para la siguiente, Kiki ---dijo Hana entre carcajadas.
 
---- ... --- Él rió y alzó los brazos --- No has preguntado quién, solo si me interesaba...
+---Hana ---dijo Jae --- ¿Es serio lo tuyo con Yoochun?
 
---- Anótalo para la siguiente, Kiki --- Dijo Hana entre carcajadas.
+Ambos se miraron y sonrieron. Pude notar cierta incomodidad, pero no sabía si era efecto secundario del alcohol o mi imaginación.
 
---- Hana --- Dijo Jae --- ¿Es serio lo tuyo con Yoochun?
+---Es cosa de probar a ver cómo va, no soy tan rápido como Junsu --- Él tomó la palabra.
 
---- ... --- Ambos se miraron y sonrieron. Él tomó la palabra --- Es cosa de probar a ver cómo va... no soy tan rápido como Junsu.
+---Pero yo lo tenía claro casi desde que la vi ---señaló Junsu refunfuñando --- Aunque fui algo malo.
 
---- ¿Rápido? --- Reí con ironía.
+---Muy malo ---bufé.
 
---- Pero yo lo tenía claro --- Señaló Junsu --- Aunque fui algo malo...
+Risas. Risas y más risas además de botes de cervezas vacíos sobre el suelo y la mesa. Y Hana que aparecía con más latas, ¿de dónde habían salido? Changmin se había quedado profundamente dormido apoyado en las piernas de Jaejoong, que tiraba trozos de papel a Yunho, el cual dormía con la boca bien abierta. Vi como algún papel se le coló dentro y solo pude reír al ver como tosía sin inmutarse. Yoochun y Hana reían tontamente, y me fijé en como mi borracha amiga se abrazaba al chico. Resoplé y negué con la cabeza.
 
---- Muy malo --- Bufé.
+---¿Qué ocurre? ---me preguntó Junsu.
 
-Risas. Risas y más risas... y más botes de cervezas vacíos sobre el suelo y la mesa. Y Hana que aparecía con más cerveza... ¿de dónde había salido tanta? Changmin se había quedado profundamente dormido apoyado en las piernas de Jaejoong, que tiraba trozos de papel a Yunho, el cual dormía con la boca bien abierta. Vi como algún papel se le coló dentro y solo pude reír al ver como tosía sin inmutarse. Yoochun y Hana reían tontamente, y me fijé en como mi... borracha amiga se abrazaba al chico. Resoplé y negué con la cabeza.
+---Nada, que vaya panorama tenemos delante ---me encogí de hombros sonriente mientras lo miraba.
 
---- ¿Qué ocurre? --- Me preguntó Junsu.
+---Kiki ---Junsu se puso serio y bajó la voz --- Te pregunté eso antes porque vi cómo te miraba Yoochun al hacerte preguntas de ese tipo, que doy gracias de no haber escuchado las respuestas.
 
---- Nada... que vaya panorama tenemos delante --- Me encogí de hombros sonriente mientras lo miraba.
+---¿Estas celoso? ---me volteé y quedé frente a él.
 
---- Kiki --- Junsu se puso serio --- Yo... te pregunté eso antes... porque vi cómo te miraba Yoochun al hacerte preguntas de ese tipo... que doy gracias de no haber escuchado las respuestas.
+---No ---se sonrojó y me miró --- Bueno si, un poco ---agachó la cabeza --- Él fue tu favorito, al que primero conociste y...
 
---- ¿Estas celoso? --- Me volteé y quedé frente a él.
+---¿Y? ---pregunté con media sonrisa --- ¿De quién soy novia? ---reí al ver en su cara una respuesta muy obvia --- De verdad que nada me preocupa Yoochun. Te quiero a ti solo Junsu ---realmente lo quería, pero para mí era una pequeña espina ver a Yoochun acaramelado con otra, no lo podía evitar.
 
---- No... --- Se sonrojó y me miró --- Bueno, si... un poco --- Agachó la cabeza --- Él fue tu favorito, al que primero conociste y...
+---¿En serio? ---volvió a preguntar.
 
---- ¿Y? --- Pregunté con media sonrisa --- ¿De quién soy novia? --- Reí al ver su cara de una respuesta muy obvia --- De verdad que nada me preocupa Yoochun. Te quiero a ti solo Junsu... Yoochun nunca me gustó nada --- Quería a Junsu. Para mí era una pequeña espina ver a Yoochun acaramelado con otra, no lo podía evitar.
+---Sí.
 
---- ¿En serio? --- Preguntó.
-
---- Sí, claro...
-
---- ¿Estarás siempre conmigo? --- Me preguntó.
+---¿Estarás siempre conmigo?
 
 Y me puse seria, esa pregunta hizo que me acordara de las palabras de Lee Sooman.
 
---- Junsu estoy preocupada --- Susurré y lo miré.
+---Junsu, estoy preocupada ---susurré y lo miré.
 
---- Supongo que te lo han dicho a ti también --- Me estrechó entre sus brazos --- No podemos estar juntos...
+---Supongo que te lo han dicho a ti también ---me estrechó entre sus brazos --- No podemos estar juntos.
 
-Unas lágrimas se escaparon de mis ojos y resbalaron por mis mejillas. Las maté apoyándome en el hombro de Junsu en un abrazo fuerte. Él también lo sabía y se sentía mal... me acerqué a su boca y con suavidad besé sus labios, hasta que algo golpeó fuerte en mi cabeza y me volteé muy enfadada. Hana y Yoochun reían, aunque él algo serio.
+Unas lágrimas se escaparon de mis ojos y resbalaron por mis mejillas. Las maté apoyándome en el hombro de Junsu en un abrazo fuerte. Él también lo sabía y se sentía mal. Me acerqué a su boca y con suavidad besé sus labios, hasta que algo golpeó fuerte en mi cabeza y me volteé muy enfadada. Hana y Yoochun reían, aunque él algo distante.
 
---- ¿Qué os pasa? --- Dije con un puchero mientras me sobaba la cabeza. Y vi el objeto que me golpeó, una lata vacía --- Si tan aburridos estáis, iros a la habitación.
+---¿Qué os pasa? ---dije con un puchero mientras me sobaba la cabeza. Y vi el objeto que me golpeó, una lata vacía --- Si tan aburridos estáis, iros a la habitación.
 
---- Que borde --- Susurró Yoochun poniéndose serio.
+---Qué borde ---susurró Yoochun poniéndose serio.
 
---- ¿Borde? --- Abrí mucho los ojos.
+---¿Borde? ---abrí mucho los ojos.
 
---- Kiki, que era una broma... lo siento --- A Hana se le borró la sonrisa.
+---Era una juego tonto, lo siento ---a Hana se le borró la sonrisa.
 
---- Buenas noches...
+---Buenas noches.
 
-Agarré a Junsu de la mano y lo llevé a mi habitación, olvidando a aquellos cinco borrachos que estaban en el comedor sin parar de beber. Me senté en la cama y él se colocó a mi lado, me miró y suspiró.
+Agarré a Junsu de la mano y lo llevé a mi habitación, olvidando a aquellos cinco borrachos que estaban en el comedor. Me senté en la cama y él se colocó a mi lado, me miró y suspiró.
 
---- ¿Voy a dormir contigo? --- Preguntó.
+---¿Voy a dormir contigo? ---preguntó.
 
---- ¿Vais a quedaros a dormir? --- Me sorprendí y asintió con la cabeza. Ok, aquellos cuatro eran un buen motivo --- Bueno, no sería la primera vez que duermes conmigo... aunque aquella vez ibas borracho.
+---¿Vais a quedaros a dormir? ---me sorprendí y asintió con la cabeza. Ok, aquellos cuatro eran un buen motivo --- Bueno, no sería la primera vez que duermes conmigo, aunque aquella vez ibas borracho.
 
---- Iba contento --- Alzó un dedo --- Que no es lo mismo --- Sonrió.
+---Iba contento ---alzó un dedo puntualizando --- Que no es lo mismo.
 
---- Ok... --- Me sonrojé.
+---Ok ---me sonrojé.
 
---- Fui yo quien le dije a los chicos que me llevaran a tu habitación --- Agachó la cabeza sonrojado --- Y eso...
+---Fui yo quien le dije a los chicos que me llevaran a tu habitación ---agachó la cabeza sonrojado.
 
---- ... --- Lo miré de reojo --- Eres un pillín, ¿eh Junsu?
+---Eres mas pillo --- Lo miré de reojo con media sonrisa.
 
---- ¿Yo? --- Se señaló sorprendido --- ¿Por qué?
+---¿Yo? ---se señaló sorprendido --- ¿Por qué?
 
---- Porque yo lo digo --- Reí y le di un fugaz beso en la mejilla --- Ahora, vayamos a dormir... ya es muy tarde...
+---Porque yo lo digo ---reí y le di un fugaz beso en los labios --- Ahora, vayamos a dormir, ya es muy tarde.
 
---- Pero mañana es fiesta Kiki, es domingo --- Puso un puchero --- Vamos a hacer algo... no quiero ir tan pronto a la cama a dormir...
+---Pero mañana es fiesta Kiki, es domingo ---puso un puchero y me abrazó inclinándome hacia detrás, tumbándome en la cama --- Vamos a hacer algo, no quiero ir tan pronto a la cama a dormir.
 
---- Pareces un niño pequeño --- Comencé a reírme --- Bueno, vamos a ver qué hacen estos en el comedor...
+---Pareces un niño pequeño ---comencé a reírme y me moví hasta salir de sus brazos --- Bueno, vamos a ver como han quedado los del comedor.
 
-Nos pusimos en pie, fuimos de puntillas a la puerta y nos asomamos despacio. Lo que vimos desde nuestra posición fue el brazo de Yoochun colgando por el sofá y parte de su cabeza; Changmin seguía dormido, pero esta vez apoyado en un cojín; Yunho también dormía, pero con un trapo sobre su cara. Junsu y yo reímos. Y nos sorprendió ver a Jaejoong y a Hana brindar con otro bote de cerveza... Salimos de la habitación y lo vimos todo lleno de botes vacíos.
+Me puse en pie y él me siguió, fuimos de puntillas a la puerta y nos asomamos despacio. Lo que vimos desde nuestra posición fue el brazo de Yoochun colgando por el sofá y parte de su cabeza; Changmin seguía dormido, pero esta vez apoyado en un cojín; Yunho también dormía, pero con un trapo sobre su cara. Junsu y yo reímos. Y nos sorprendió ver a Jaejoong y a Hana brindar con otro bote de cerveza. Salimos de la habitación y lo vimos todo lleno de botes vacíos.
 
---- Junsu, hay que llevarlos a dormir... --- Dije con media sonrisa.
+---Junsu, hay que llevarlos a dormir ---dije negando con la cabeza por el panorama.
 
---- Nunca crecerán --- Rió.
+---Nunca crecerán ---rió.
 
---- No hables muy alto --- Saltó Jaejoong señalándolo --- Que tú también, cuando te emborrachas... --- Hipó y comenzó a reírse seguido de Hana.
+---No hables muy alto ---saltó Jaejoong señalándolo --- Que tú también, cuando te emborrachas tienes mucho peligro ---hipó y comenzó a reírse seguido de Hana.
 
---- Bueno, hay que ir a dormir ya --- Le dije a Hana, que me puso un puchero.
+---Bueno, hay que ir a dormir ya ---le dije a Hana, que me puso un puchero.
 
---- La noche es joven --- Se miró el reloj --- Y solo son las once...
+---La noche es joven ---se miró el reloj.
 
---- Si, hora de ir a dormir ya... --- La levanté en peso --- Vamos, ya brindarás mañana con Jae.
+---Es hora ya de descansar ---la levanté en peso y se dejó llevar --- Vamos, ya brindarás mañana con Jae.
 
---- ¡Hasta mañana noona! --- Dijo Jae con una gran sonrisa --- Gracias por la información --- Se despidió con la mano.
+---¡Hasta mañana noona! ---dijo Jae con una gran sonrisa --- Gracias por la conversación ---se despidió con la mano.
 
-Lo miré de reojo pero pasé un poco de lo que dijo. Agradecí que el mobiliario del piso fuera nuevo, y de que en la habitación de Elena, hubiera otra cama más. Llevé a Hana hasta esa habitación y le traje su pijama, saqué la cama y la miré, no dejaba de reírse.
+Agradecí que el mobiliario del piso fuera nuevo y de que en la habitación de Elena, hubiera otra cama más. Llevé a Hana hasta esa habitación, saqué la cama y la miré, no dejaba de reírse.
 
---- ¿Quieres parar? Despertarás a Elena.
+---¿Quieres parar? Despertarás a Elena.
 
---- Estoy feliz Kiki --- De pronto me abrazó --- Feliz gracias a ti... no sé cómo te voy a devolver el favor que me has hecho...
+---Estoy feliz Kiki ---de pronto me abrazó --- Feliz gracias a ti, no sé cómo te voy a devolver el favor que me has hecho.
 
---- No hace falta que me lo devuelvas... --- Me quedé pensativa --- Pero podrías decirme de qué has hablado con Jae, por ejemplo --- Sonreí.
+---No hace falta que me lo devuelvas ---la abracé de vuelta mientras palmeaba su espalda --- Podrías decirme de qué has hablado con Jae, por ejemplo --- Sonreí cotilla.
 
---- ... --- Suspiró --- Voy borracha, no soy tonta --- Y rió estruendosamente y miré a Elena, que ni se inmutó. Le tapé la boca y pronto me quitó la mano --- Lo siento... --- Suspiró y cogió el pijama --- Tal vez las cosas no vayan tan mal después de todo Kikita...
+---Voy borracha, no soy tonta ---y rió estruendosamente. Miré a Elena que ni se inmutó. Le tapé la boca y pronto me quitó la mano --- Lo siento ---suspiró se acercó a la puerta --- Tal vez las cosas no vayan tan mal después de todo Kikita --- Me volvió a abrazar --- Voy al baño.
 
---- Me volvió a abrazar --- Voy al baño.
+---Lleva cuidado ---le dije mientras veía como salía. Preparé la cama y me senté sobre ella, de pronto apareció Junsu --- ¿Qué pasa?
 
---- Lleva cuidado --- Le dije mientras veía como salía. Preparé la cama y me senté sobre ella, de pronto apareció Junsu --- ¿Qué pasa?
+---¿Dónde los llevo?
 
---- ¿Dónde los acuesto?
+---En la habitación de Hana hay una cama, en la de R y Jane hay dos ---le dije.
 
---- En la habitación de Hana y en la de R y Jane --- Le dije.
+---Hay un problema ---sonrió y se rascó la cabeza --- Hana está durmiendo en su cama.
 
---- Hay un problema --- Sonrió --- Hana está durmiendo en su cama...
+---¿Qué? ---me sobresalté y fui a su habitación. En efecto, Hana estaba totalmente dormida sobre su cama, con pijama en mano --- Esta tía es única ---reí y abracé a Junsu --- ¿Qué hacemos?
 
---- ¿Qué? --- Me sobresalté y fui a su habitación... En efecto, Hana estaba totalmente dormida sobre su cama, con pijama en mano --- Esta tía es única --- Reí y abracé a Junsu --- ¿Qué hacemos?
+--- A Changmin y Yoochun los acosté en la habitación de R y Jane ---señaló --- Pero a Yunho y Jae, ¿dónde los metemos?
 
---- A Changmin y Yoochun los acosté en la habitación de R y Jane --- Señaló --- Pero a Yunho y Jae... ¿dónde los metemos?
+---A Yunho lo dejamos dormir en el sofá ---reí, lo vi tan a gusto ahí. Me acerqué a él y le acomodé lo mejor que pude quitando el trapo que le habían puesto en la cara. Yo misma me recordaba a una madre con sus hijitos --- Y tú, Jae ---me miró, iba algo perdido y se acercó a mí --- Tú dormirás en la habitación con Elena, si no te importa.
 
---- A Yunho dejalo dormir en el sofá --- Reí, lo vi tan a gusto ahí --- Pero quítale eso de la cara y ponlo más cómodo... --- Señalé, yo misma me recordaba a una madre con sus hijitos --- Ah, Jae --- Me miró, iba algo perdido y se acercó a mí --- Tú dormirás en la habitación con Elena, si no te importa...
+---No, nada ---sonrió y se echó sobre la cama de golpe.
 
---- No, nada --- Sonrió y se echó sobre la cama.
+Salí de la habitación dejando la puerta entornada y vi como Junsu le ponía unas mantas a Yunho. Después se acercó a mí, me agarró de la cintura y me llevó a la habitación. Cerró la puerta y me besó en el cuello muy despacio. Me ericé.
 
-Salí de la habitación y dejé la puerta entornada, vi como Junsu le ponía unas mantas a Yunho y se acercó a mí, me agarró de la cintura y me llevó a la habitación, cerró la puerta y me besó en el cuello.
+---¿Vamos a dormir? ---me preguntó en un susurro.
 
---- ¿Vamos a dormir? --- Me preguntó.
+---Deberíamos...
 
---- S---si...
+Me separé de él sin ninguna ganas y agarré el pijama entre mis manos. Algo muy importante que pedí cuando me dieron a elegir entre varios pisos era que tuviera mi propio cuarto de baño. Ya que yo pagaba el alquiler me quedaba con la mejor habitación. Apreté la tela entre los dedos y miré la puerta del aseo.
 
-Me puse el pijama algo avergonzada de que él estuviera ahí y me metí en la cama. Él se puso una camiseta suya que tenía por ahí y unos pantalones cortos... Y se metió en la cama, a mi lado. Me estrechó contra su pecho, besó mi cabeza y enseguida ambos nos quedamos dormiditos.
+---Si quieres cambiarte allí está bien ---escuché decir a Junsu mientras se quitaba los pantalones vaqueros que llevaba. Me sonrojé aún más cuando se quitó la camiseta.
+
+Rápidamente me di la vuelta y escuché su risa. Me tapé la cara y me armé de valor. Me quité la ropa mientras seguía dándole la espalda, y me puse el pijama con rapidez. No hacía falta hablar, al girarme vi su rostro sonrojado y como no apartaba la mirada de mi cuerpo.
+
+---A la cama ---señalé temblando.
+
+Se sentó y ruló hasta dejarme hueco, palmeando el colchón. Me eché a reír y me acosté a su lado. Me estrechó contra su pecho, besó mi cabeza y tardamos en conciliar el sueño.

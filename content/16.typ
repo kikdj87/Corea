@@ -15,7 +15,7 @@ estaban tremendos...
 razonó – Pues sí... los chicos eran bien guapos...
 - Oye, tú te quedaste sola con los otros dos – Me señaló
 Hana - ¿Qué tal son?
-- ... - Me mordí la lengua... ¿se lo decía o no? - HyukHae es
+- ... - Me mordí la lengua... ¿se lo decía o no? - Hyukhae es
 más hablador, pero tiene poca paciencia... es divertido. Y Juno... -
 Me quedé pensativa.
 - Se llama como Yunho – Sonrió Hana.
@@ -256,7 +256,7 @@ minutos y... - Se quedó con la boca abierta, parecía que quería decir
 algo – Ok, bueno... espera un segundo – Tapó el teléfono y nos miró
 sonriente - ¿Queréis salir esta noche? - Preguntó.
 - Pues... - Yo me quedé pensativa.
-- ¿Va YoungWha? - Preguntó Elena y yo reí.
+- ¿Va Yonghwa? - Preguntó Elena y yo reí.
 - Si, él viene... van los mismo que la semana pasada –
 Contestó - ¿Qué decís?
 - ¿Va Juno? - Pregunté y asintió – Ok, pues entonces voy.
@@ -284,12 +284,12 @@ pensativa. En toda la semana no había hablado con Junsu, más bien
 hablaba con Jae que me contaba cómo le iba a mi Junsu, y ya me
 preguntaba por Jane y R, ya que todos estaban ansiosos por saber
 qué pasaba, ya que el tiempo corría en mi contra. Nos bajamos del
-coche y en la puerta nos reunimos con los cuatro chicos. YoungWha
+coche y en la puerta nos reunimos con los cuatro chicos. Yonghwa
 parecía algo ausente y eso a Elena le provocó unos pucheros.
 SangHun sonrió a Hana y la agarró de la mano, atrayéndola
 hacia él y riendo de miles de cosas. Juno cogió del hombro a
-HyukHae y me miró con una sonrisa radiante, el otro solo pudo
-suspirar. Yo miré a Elena, quien miraba a YoungWha.
+Hyukhae y me miró con una sonrisa radiante, el otro solo pudo
+suspirar. Yo miré a Elena, quien miraba a Yonghwa.
 - Ah... eh... - Miré a Juno, quien me miró extrañado –
 Vamos dentro, me apetece un refresco.
 - Vale... - Sonrió extrañado.
@@ -297,7 +297,7 @@ Entramos con tanta rapidez que los otros dos no pudieron
 entrar detrás de nosotros. Volteé la cabeza y vi como se miraban y
 sonreían. Tal para cual... tímidos... Nos sentamos en una mesa y yo
 suspiré algo triste, acordándome de Junsu.
-- ¿Ocurre algo? - HyukHae me dio un leve golpe en el brazo.
+- ¿Ocurre algo? - Hyukhae me dio un leve golpe en el brazo.
 - No, la verdad – Sonreí.
 - ¿Por qué no vienes con tu novio? - Me preguntó y yo me
 entristecí agachando la cabeza.
@@ -306,7 +306,7 @@ entristecí agachando la cabeza.
 venir a estos sitios con él – Y me di una patada mentalmente, no
 podía dar pistas a su propio hermano... Seguro que habría bronca...
 Junsu conmigo por decirlo, y Juno con él por ocultárselo.
-- ¿No le gustan las discotecas? - Preguntó HyukHae.
+- ¿No le gustan las discotecas? - Preguntó Hyukhae.
 - La verdad es que no – Mentí, aunque no del todo – Pero
 bueno, todo está bien...
 - ¿Y a qué se dedica él? - Volvió a preguntar el mismo. Yo me 
@@ -314,13 +314,13 @@ bueno, todo está bien...
 puse algo incómoda.
 - ¿No ves que no quiere hablar de él? - Señaló Juno – Para
 ya...
-- Tal vez sea mentira de que tienes novio – HyukHae acercó
+- Tal vez sea mentira de que tienes novio – Hyukhae acercó
 su cara a la mía y yo me sobresalté y me separé bastante, casi
 chocando con Juno – Tal vez sea una excusa para pasar de
 nosotros...
 - Pero si estoy con vosotros... - Le dije extrañada, me separé
 de Juno y me sonrojé – No es mentira...
-- Demuestra que tienes novio – HyukHae sonrió – A mí me
+- Demuestra que tienes novio – Hyukhae sonrió – A mí me
 has gustado – Puso su mano en su barbilla. Yo miré a Juno
 buscando auxilio en la mirada, pero él solo sonrió - ¿Alguna foto?
 - ... - Juno al fin reaccionó, suspiró y le dio un golpe en el
@@ -330,7 +330,7 @@ que rodearon a Juno, riendo y hablando sobre si era el hermano de
 Junsu. Yo resoplé y me crucé de brazos, busqué con la mirada a
 Elena y Hana... y las encontré... vaya si las encontré, dándose el
 lote con los chicos... puse morritos y las maldije para mis adentros.
-De pronto HyukHae me cogió del brazo y me llevó a la pista a bailar.
+De pronto Hyukhae me cogió del brazo y me llevó a la pista a bailar.
 - Me apetece bailar – Sonrió - ¿A ti no?
 - No es que sea muy buena bailarina... - Dije sonrojada.
 - No importa, la verdad – Me agarró de la cintura y me pegó
@@ -354,7 +354,7 @@ en ese momento no.
 - Llámalo... dile que venga a por ti... y te creeré...
 - Bueno... por mucho que le diga que venga, no vendrá – Di
 unos pasos hacia atrás, chocándome con una chica, la cual me miró
-mal y me dijo que llevara más cuidado. Volví a mirar a HyukHae, que
+mal y me dijo que llevara más cuidado. Volví a mirar a Hyukhae, que
 tenía una mala sonrisa.
 - Porque no tienes novio...
 - Él está de viaje – Me sentía muy cohibida, llena de miedo y
@@ -362,7 +362,7 @@ terror. Sucias imágenes se me pasaron por la cabeza y estuve a
 punto de echar a correr envuelta en un mar de lágrimas – No está
 en Seúl...
 - Mentirosa – Me agarró del brazo.
-- HyukHae – Juno hizo que me soltara y como un acto
+- Hyukhae – Juno hizo que me soltara y como un acto
 reflejo lo abracé. Olía igual que Junsu. Unas lágrimas cayeron por mi
 cara, pero ninguno lo vio. Escuché la voz de Juno algo entrecortada
 por lo nervioso que lo había puesto mi abrazo – No te pases con
@@ -373,7 +373,7 @@ sonrojado - ¿Te ha hecho algo?
 - No... - Negué – Pero... - Desvié la mirada hacia el suelo y
 una última lágrima cayó por mi cara, que murió en la comisura de
 mis labios - ¿Por qué no creer que tengo novio?
-- ... - Juno sonrió – HyukHae es un chico muy inseguro...
+- ... - Juno sonrió – Hyukhae es un chico muy inseguro...
 pero yo si te creo... - Me agarró del brazo con algo de brusquedad,
 seguía algo nervioso – Vamos, que te invito a lo que quieras...
 - Gracias – Suspiré.
@@ -398,13 +398,13 @@ dicho que sentía no haberme dicho antes que tenía novia... y
 también me ha dicho que yo ya la conocía...
 - Vaya... - Miré a todos lados.
 - Pero conozco a muchas chicas... – Sonrió y miró hacia
-HyukHae, que se acercaba a nosotros con dos cervezas en la mano -
+Hyukhae, que se acercaba a nosotros con dos cervezas en la mano -
 ¿Qué pasa?
 - Lo siento Kiki – Me dio una cerveza – Me he pasado...
 - Ah... bueno, no pasa nada... - Sonreí – Pero no bebo
 cerveza.
 - Vaya... - Se quedó cortado.
-- Pero yo si – Juno la cogió y me miró – HyukHae, sí que
+- Pero yo si – Juno la cogió y me miró – Hyukhae, sí que
 tiene novio... no es para ponerse así... no todas mienten...
 - Ya... en eso he recapacitado – Sonrió y se sentó a mi lado -
 ¿Y tienes más amigas?
@@ -423,24 +423,24 @@ dichoso mensaje que esperaba de Junsu. Me dijo que lo escribía a
 escondidas... que lo sentía mucho, que me echaba de menos y que...
 Miré a Juno y él sonrió sonrojado.
 - Bueno, muchos lo saben ya, menos en mi casa – Dijo
-Juno. HyukHae estaba extrañado.
+Juno. Hyukhae estaba extrañado.
 - ¿Lo de su proyecto? - Preguntó señalándome.
 - No – Negó Juno.
 - Casi nadie lo sabe... - Susurré desviando la mirada – Sí que
 se me vio con un chico en mi cumpleaños, pero se pusieron los
 vídeos en los que no salía su cara – Suspiré - ¿Estás enfadado?
 - ¿Yo? - Juno se sorprendió.
-- Oye, que yo no me entero de nada – Rió HyukHae algo
+- Oye, que yo no me entero de nada – Rió Hyukhae algo
 molesto.
 - Mi novio es... - Busqué en el móvil y puse una foto de
 ambos – La verdad es que nadie debería saberlo...
 - Entonces – Juno me quitó el móvil y, sin siquiera mirarlo,
 quitó lo que puse y me lo devolvió – No lo digas...
-- ... - Ganamos unas malas palabras de HyukHae, unos
+- ... - Ganamos unas malas palabras de Hyukhae, unos
 bufidos y que se marchara.
 - ¡¡Kiki, Kiki!! - Las chicas llegaron solas y muy animadas -
 ¿Nos vamos ya?
-- ¿Y SangHun y YoungWha? - Preguntó Juno.
+- ¿Y SangHun y Yonghwa? - Preguntó Juno.
 - ... - Las chicas se miraron. Hana sonrió – Se han marchado -
 ¿Tienes como volver?
 - No – Echó la cabeza para atrás y dijo un taco – Bueno, ya
@@ -448,7 +448,7 @@ me buscaré yo la vida...
 - ¿Quieres que te llevemos? - Pregunté encogiéndome de
 hombros.
 - Vale – Dijo resignado – Vamos antes de que llegue
-HyukHae...
+Hyukhae...
 - ¿Qué pasa con él? - Elena se extrañó muchísimo y nos 
 264
 miró.

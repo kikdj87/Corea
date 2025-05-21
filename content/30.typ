@@ -155,7 +155,7 @@ Corea... si, volverían, pero solo para el dichoso concierto que tenían
 planeado por toda Corea para promocionar Mirotic... su vida era
 estresante, pero la mía no era menos.
 Una mañana de principios de Enero, tuve una reunión en la
-TN Entertainment con Tony Ann, conocido como SeungHo, para
+TN Entertainment con Tony Ann, conocido como Seunho, para
 hablar a cerca de Dead End, mi “mejor” novela policíaca... o de
 mafias, como a mí me gustaba llamarla. Esa mañana hacía mucho
 frío, estaba nevando y yo iba muy bien abrigada. Él mismo me
@@ -266,14 +266,14 @@ Me puse a revisar los guiones cuando Lee Sooman irrumpió
 amablemente en mi despacho. Se acercó a mi mesa y sonrió.
 - Vengo a aclarar un par de cosas – Se quedó de pie. Yo
 esperaba que se sentara, pero no lo hizo – Y son sobre tu contrato
-con SM – Sonrió. ¿Y eso a qué venía ahora? ¿A caso SeungHo había
+con SM – Sonrió. ¿Y eso a qué venía ahora? ¿A caso Seunho había
 hablado con él ya?
 - ¿Ha pasado algo malo? ¿Algo bueno? - Entrelacé mis dedos
 muerta de nervios.
 - No te preocupes – Pero no se sentaba, y su expresión de
 indiferencia no ayudaba en nada – Simplemente decir que tu
 contrato no se basa simplemente en la SM – Justo, había hablado
-con SeungHo – Me ha llamado el presidente de la TN – Ahí aclaró mi
+con Seunho – Me ha llamado el presidente de la TN – Ahí aclaró mi
 duda – Y me ha estado comentando varias cosas... Trabajarás aquí, 
 443
 tendrás como prioridad la SM, pero como en tu anterior trabajo,

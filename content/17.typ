@@ -203,7 +203,7 @@ mucho auge el drama?
 provocó que casi cayera escaleras atrás.
 - Estás muy seguro – Dijo Elena ya más compuesta – Tal
 vez os llevéis un chasco...
-- Esperamos que no – Rió – Confiamos en vosotras... SeunHo
+- Esperamos que no – Rió – Confiamos en vosotras... Seunho
 y yo confiamos en vosotras.
 275
 - Me alaga mucho que penséis eso – Me sonrojé – Gracias...
@@ -212,7 +212,7 @@ contó los proyectos que tenía en USA para el año próximo. Y sin
 darnos cuenta, ya habíamos llegado a la planta del despacho de Lee
 Sooman... bueno, mis pulmones lo notaron, pero era de los puros
 nervios que tenía.
-- Vaya JiHoon, así que subiste con ellas – Rió SeunHo.
+- Vaya Jihoon, así que subiste con ellas – Rió Seunho.
 Dos o tres risas más y entramos al despacho, donde me
 quedé de piedra al ver lo que vi. Quise llorar y correr hacia él, pero
 me contuve. Los DBSK estaban charlando amenamente sentados en

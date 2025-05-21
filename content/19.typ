@@ -17,7 +17,7 @@ no teníamos corazón, ellas en España y nosotras de cachondeo.
 - No lo sé Kiki – Respondió Hana sabiendo lo que iba a
 preguntar.
 - Yo estoy muy cansada – Suspiró Elena.
-- Va YoungWha – Sonrió la pelirroja.
+- Va Yonghwa – Sonrió la pelirroja.
 - ... - Elena, que ahora también era pelirroja por el rodaje
 del drama, la miró de reojo – Ok, vale, me habéis convencido...
 pero... ¿cómo vamos? Ya no tenemos coche.
@@ -95,7 +95,7 @@ que había subido. Yo miré de mala gana a Hana, quien se encogió de
 hombros.
 - Todas listas – Sonrió – Vamos, los chicos nos esperan...
 - ¿Quiénes vais? - Pregunté.
-- Yo, YoungWha, HyukHae y un amigo de HyukHae, no sé
+- Yo, Yonghwa, Hyukhae y un amigo de Hyukhae, no sé
 quién es – Se encogió de hombros.
 - ¿No va Juno?
 - ¿Pero tú no tenías novio? - Rió.
@@ -117,7 +117,7 @@ me ha dicho que tú no vas – Dije algo nerviosa... ¿por qué estaba
 haciendo eso?
 - ¿Quieres que vaya? - Preguntó.
 - Es que si no me aburriré... - Dije con un puchero y él rió - ¿Y
-si HyukHae dice de no creer que tengo novio otra vez?
+si Hyukhae dice de no creer que tengo novio otra vez?
 - ... - Suspiró pensativo – Bueno, si me lo pides tú, iré – Rió -
 ¡Ah! ¿Has visto a mi hermano hoy? Ha estado aquí y ha pasado por
 casa...
@@ -138,18 +138,18 @@ cirujano. Le gustaba el voleibol y lo jugaba los fines de semana y en
 295
 sus ratos libres. Bueno, todas flipamos, era un chico súper completo,
 además de que era muy, muy guapo.
-Al llegar a la discoteca vimos a YoungWha, HyukHae, otro
+Al llegar a la discoteca vimos a Yonghwa, Hyukhae, otro
 chico más y, algo más apartado, estaba Juno mientras hablaba por
 teléfono. Nos bajamos del coche y Elena fue directa a
-YoungWha... también tenía que hablar seriamente con ella... no
+Yonghwa... también tenía que hablar seriamente con ella... no
 podía ser que yo contara mis penas, pero que nadie me contara las
 suyas... aquí, igualdad.
-- Otra vez vienes sin tu novio – Dijo HyukHae.
+- Otra vez vienes sin tu novio – Dijo Hyukhae.
 - Mi novio está en Japón – Le dije cansada.
 - Bueno, os presento – Señaló SangHun cogiendo a Hana de
 la cintura – Él es...
 - Me llamo Lee KyuMin, encantado – Se inclinó
-educadamente – Tengo 23 años y trabajo con HyukHae.
+educadamente – Tengo 23 años y trabajo con Hyukhae.
 - ¿Y dónde trabajas? - Pregunté.
 - ... - Se puso nervioso – Anda, vamos dentro... - Miró a la
 derecha - ¡¡Juno, vamos!!
@@ -158,7 +158,7 @@ también le fastidiaba... ¿quién se había creído que era? Era Kiki, por
 si no me conocía. Pues al entrar fuimos todos juntos a una de las
 mesas más grandes del local. Juno terminó de hablar por teléfono
 y se sentó a mi lado... y para no variar, al otro lado se sentó
-HyukHae. Esa noche le sacaría dónde trabajaba, sí o sí.
+Hyukhae. Esa noche le sacaría dónde trabajaba, sí o sí.
 - ¿Entonces sois novios? - Preguntó R a Hana y a SangHun.
 - Bueno, no – Negó ella y él la miró – Estamos viendo a ver
 qué pasa... conociéndonos.
@@ -166,7 +166,7 @@ qué pasa... conociéndonos.
 soltó su mano de la cintura de ella. Yo me reí por mis adentros,
 buena Hana, habías conseguido clavarle un puñal.
 - ¿Y vosotros? - Preguntó R a Elena.
-- ... - Elena miró a YoungWha, quien se sonrojó. Ella se
+- ... - Elena miró a Yonghwa, quien se sonrojó. Ella se
 encogió de hombros – No preguntes eso de sopetón, R...
 - ¿Qué clase de nombre es R? - Preguntó el nuevo, KyuMin.
 - Mi nombre es Rocío, pero me llaman R – Sonrió.
@@ -217,11 +217,11 @@ hable – Suspiré – Hoy se ha marchado sin despedirse de mi... sin
 voltearse para mirarme... Vamos dentro... no quiero que piensen
 mal...
 Me limpié bien la cara con un pañuelo que tenía en el bolso
-y, con sonrisa radiante, entré dentro. HyukHae me picó en el costado
+y, con sonrisa radiante, entré dentro. Hyukhae me picó en el costado
 y comenzó con sus tonterías. Todos rieron, incluso yo, ya me había
 acostumbrado a sus rabietas. Juno se sentó de nuevo a mi lado no
 tan animado como antes.
-- ¡Si tiene novio! - Dijo HyukHae entre carcajadas - ¿Cómo se
+- ¡Si tiene novio! - Dijo Hyukhae entre carcajadas - ¿Cómo se
 te ocurre declararte?
 - No me he declarado idiota – Bufó cansado – Eres un
 cansino con su novio... ¿quieres dejarlo de una vez? Al pobre le

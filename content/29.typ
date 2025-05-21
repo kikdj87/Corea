@@ -186,7 +186,7 @@ y ya nos lo tomábamos todo con más calma. Las chicas se habían
 levantado junto con mi despertador y me contaron su aventura de la
 noche anterior.
 Hana me dijo que SangHun estaba muy interesado en ella, y
-Elena me dijo que no sabía nada de YoungWha, pero que le daba
+Elena me dijo que no sabía nada de Yonghwa, pero que le daba
 algo de igual. Lo que sí sabía era que, Jane y R, teniendo lo que
 tenían, no se iban a interesar en otros chicos, aunque Elena, no
 muy contenta, les dijo que buscaran otros novios, ya que con ellos

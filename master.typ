@@ -54,5 +54,10 @@
 
 -en el capitulo 10 Junsu y Kiki empiezan a salir
 
-- 11/197 el médico dice que necesita apoyo de un psicólogo
+-11/197 el médico dice que necesita apoyo de un psicólogo
 
+-14/43 la muerte del hermano de Jane
+
+-14/157 Sooman le pide que corte con Junsu
+
+-14/659 Hana puede tener algo con Jaejoong
