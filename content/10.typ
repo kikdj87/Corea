@@ -72,7 +72,7 @@ Esa batalla la tenía perdida. Me rendí.
 
 ---Aunque... ---Heechul me miró --- Sé que los conocéis ---rió ante la cara de asombro de las chicas --- Es normal, somos un grupo famoso y...
 
----¡Corta el royo, Heechul! ---Kangin apareció por medio --- Que pesado eres ---bufó.
+---¡Corta el rollo, Heechul! ---Kangin apareció por medio --- Que pesado eres ---bufó.
 
 Vistos de cerca, los trece eran mucho más guapos. Pude apreciar en Siwon su bonita sonrisa y su espalda recta. Como Elena me decía, él era un perfecto caballero. También me fijé en el hoyuelo de Leeteuk en su mejilla, que se formaba cuando sonreía ante las tonterías del mayor del grupo. También vi la musculatura de Kangin, que me tuvo un rato paseando los ojos por sus brazos. Y sentencié con un gran sí, el hecho de que Donghae siempre mantuviera la boca abierta, ¿no se le metían moscas o qué? Reí. Y Sungmin era más bajito de lo que yo había imaginado, pero se le veía tan dulce ahí, junto a Kyuhyun, que jugueteaba con un colgante que el otro llevaba, ausentes de lo que ocurría allí. Estaban tan cerca de nosotras, que aquello para mí era un sueño del cual jamás querría despertar. De pronto, una voz aguda captó mi atención haciendo que me pusiera roja como un tomate.
 

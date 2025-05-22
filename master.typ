@@ -36,7 +36,6 @@
 #include "content/29.typ"
 #include "content/30.typ"
 #include "content/31.typ"
-#include "content/32.typ"
 
 
 
@@ -61,3 +60,6 @@
 -14/157 Sooman le pide que corte con Junsu
 
 -14/659 Hana puede tener algo con Jaejoong
+
+-En el 17 se habla del resumen del drama
+

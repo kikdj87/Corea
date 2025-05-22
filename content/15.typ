@@ -48,7 +48,7 @@ Entró al baño y se escuchó el pestillo. De pronto vi a Elena en la puerta de 
 
 ---Oye ---Yoochun decidió entrar con nosotras y miró a Elena --- ¿Te gusta Yunho? ---ella no levantó la cabeza y seguía colorada. Yo no dejaba de reírme --- Lo tendrás muy chungo, él es muy duro de mollera.
 
----Olvidé que sabe español... ---seguía con la cabeza gacha --- Ya se te podía olvidar, ¿no? Cortas el royo un montón apareciendo de golpe. Y no, no me gusta Yunho.
+---Olvidé que sabe español... ---seguía con la cabeza gacha --- Ya se te podía olvidar, ¿no? Cortas el rollo un montón apareciendo de golpe. Y no, no me gusta Yunho.
 
 ---Vigila lo que dices ---ya me dolía la tripa de tanto reír.
 
@@ -401,7 +401,7 @@ Los chicos hicieron un gesto para que les siguiéramos y eso hice. En cuanto el 
 
 ---Estamos bien ---Hana guardó la foto y salió del coche --- ¿Y tú eres...?
 
----Kim SangHun ---se señaló y Hana abrió mucho los ojos, me miró y volvió la vista al chico. Sí, sabía por qué me miraba. Ese nombre era el que usé para un personaje muy importante de una de mis novelas --- ¿Y vosotras?
+---Kim Sanghun ---se señaló y Hana abrió mucho los ojos, me miró y volvió la vista al chico. Sí, sabía por qué me miraba. Ese nombre era el que usé para un personaje muy importante de una de mis novelas --- ¿Y vosotras?
 
 ---Hana ---se señaló --- Elena y... ---me miró. Yo suspiré y puse los ojos en blanco --- Kiki.
 
@@ -411,13 +411,13 @@ Los chicos hicieron un gesto para que les siguiéramos y eso hice. En cuanto el 
 
 ---Y yo tengo amigos ---sonrió y miró a Hana y Elena --- Vamos dentro, os invitamos nosotros.
 
-Las tres seguimos al tal SangHun y entramos a la discoteca de gratis. Parecía tener muchísimo dinero. Y dentro nos reunimos con los tres chicos que vimos con él en el coche. Y para qué decir, realmente eran mucho más guapos de cerca. Cerré los ojos, negué con la cabeza y los miré.
+Las tres seguimos al tal Sanghun y entramos a la discoteca de gratis. Parecía tener muchísimo dinero. Y dentro nos reunimos con los tres chicos que vimos con él en el coche. Y para qué decir, realmente eran mucho más guapos de cerca. Cerré los ojos, negué con la cabeza y los miré.
 
----Ellos son Yonghwa, Juno y Hyukhae ---dijo SangHun --- Ellas son Kiki, Hana y Elena.
+---Ellos son Yonghwa, Juno y Hyukhae ---dijo Sanghun --- Ellas son Kiki, Hana y Elena.
 
 ---¡Ah, las del cumpleaños! ---dijo Hyukhae sorprendido.
 
----Si, las mismas ---rió SangHun.
+---Si, las mismas ---rió Sanghun.
 
 ---Vamos a bailar ---dijo Yonghwa cogiendo a Elena de la mano --- ¿Te hace?
 
@@ -425,7 +425,7 @@ Las tres seguimos al tal SangHun y entramos a la discoteca de gratis. Parecía t
 
 Miré como se marchaba con una sonrisa y me apoyé en una de las mesas altas que habían en medio de la pista. Estaba mirando de soslayo a los tres chicos que habían y uno de ellos me llamó bastante la atención. Sentía que me recordaba a alguien y necesitaba recordar a quién. ¿Era alguien famoso? Creo que lo miré demasiado porque los demás se pusieron incómodos, incluido él.
 
----Kiki, ¿quieres bailar? ---me preguntó SangHun.
+---Kiki, ¿quieres bailar? ---me preguntó Sanghun.
 
 ---Verás... ---volví a la realidad sorprendida por mi reacción, necesitaba sincerarme y evitar muchos malentendidos --- Yo tengo novio, vine a acompañar a mis amigas.
 
@@ -507,10 +507,10 @@ Dicho y hecho, se marchó directo a un grupo de chicas que bailaban muy animadas
 
 ---Si, eso es cierto ---se pasó la mano por el pelo --- Mira, por ahí vienen Yonghwa y Elena ---señaló con la cabeza.
 
-Se sentaron exhaustos y sonrientes, al poco llegaron Hana y SangHun riendo. Parecía que se lo estaban pasando genial. Aunque yo no podía decir que me estuviera aburriendo, había encontrado la
+Se sentaron exhaustos y sonrientes, al poco llegaron Hana y Sanghun riendo. Parecía que se lo estaban pasando genial. Aunque yo no podía decir que me estuviera aburriendo, había encontrado la
 versión tímida de Junsu. Ya bien entrada la noche, después de bailar mucho, beber muchísimo e intercambiar los números de teléfono con los chicos, nos marchamos a casa.
 
-Por suerte el coche estaba intacto. Por el camino, Hana y Elena reían de forma escandalosa sobre cómo les había ido la noche. Hana había conseguido robar un pequeño beso de los labios de SangHun, pero Elena se maldecía porque Yonghwa era lento para esas cosas. Muy lanzado, sobaba mucho, pero a la hora de la verdad, ni un beso. Y la otra no dejaba de picarla por eso.
+Por suerte el coche estaba intacto. Por el camino, Hana y Elena reían de forma escandalosa sobre cómo les había ido la noche. Hana había conseguido robar un pequeño beso de los labios de Sanghun, pero Elena se maldecía porque Yonghwa era lento para esas cosas. Muy lanzado, sobaba mucho, pero a la hora de la verdad, ni un beso. Y la otra no dejaba de picarla por eso.
 
 Al llegar a casa, me di cuenta de que tenía una llamada perdida de Junsu y un mensaje sin avisar que no había sido leído. Nos despedimos, al menos yo estaba muerta y necesitaba dormir, aunque aquellas dos llevaban un pedo impresionante. Pronto escuché solo las risas de Hana y supuse que Elena se quedó frita. Y al rato, nada de ruido, silencio absoluto para mis oídos. Aquello era lo mejor que podía tener.
 

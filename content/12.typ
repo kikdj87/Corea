@@ -278,7 +278,7 @@ Y el rodaje de ese día terminó sin incidente alguno y muy bien. Las chicas tra
 
 ---Yo tampoco bebo ---se señaló Elena y Jane la miró --- Me sienta muy mal.
 
----Que corta royos sois las dos ---puso un puchero.
+---Que corta rollos sois las dos ---puso un puchero.
 
 ---Al final haréis lo que queráis, pero yo no beberé ---puntualicé de nuevo.
 

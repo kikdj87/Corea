@@ -374,7 +374,7 @@ No dije nada, simplemente sonreí, asentí con la cabeza y lo abracé. Me acerqu
 
 ---Junsu... ---me giré, apoyando las manos sobre su pecho, le miré a los ojos y nos besamos. De pronto el encanto terminó gracias a su teléfono. Di un respingo y lo miré --- Es Yoochun.
 
----Qué pesadilla ---resopló enfadado y lo cogió --- Dime ---contestó de mala gana --- Mmmm... Vale, enseguida estoy allí ---me miró y sonrió --- Ahh secreto ---rió --- Ya hablamos cuando llegue, corta royos ---le sacó la lengua al teléfono y colgó. Me guiñó un ojo --- Bueno, al trabajo.
+---Qué pesadilla ---resopló enfadado y lo cogió --- Dime ---contestó de mala gana --- Mmmm... Vale, enseguida estoy allí ---me miró y sonrió --- Ahh secreto ---rió --- Ya hablamos cuando llegue, corta rollos ---le sacó la lengua al teléfono y colgó. Me guiñó un ojo --- Bueno, al trabajo.
 
 ---Pásatelo bien ---sonreí mientras me despedía con la mano.
 

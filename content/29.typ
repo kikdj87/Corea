@@ -1,211 +1,373 @@
 = Capítulo 29
 
-Silencio en el comedor. Sentía que todos me miraban desde
-sus lugares, y no quise mirar a nadie más que a Junsu, que su cara
-estaba transpuesta. Pero era cierto, yo no quería romper la armonía
-que ellos habían creado a lo largo de muchos años... Yo no era
-nadie.
-- Bueno... eh... Kiki – Jae me agarró del brazo – No es para
-llegar a ese extremo.
-- … - Mi mirada se volcó en Changmin, quien seguía leyendo
-el libro pasando de todo. Y miré a Yunho, que se había puesto en pie
-y se acercaba a nosotros. Puso su mano sobre mi hombro y miró a
-Junsu.
-- Kiki, tranquila – Me dijo – Pero Junsu... ella ha razonado...
-no puedes pelearte con ninguno por esas pequeñeces...
-- Disculpad... - Se marchó sin decir nada más.
-- … - Sollocé y giré la cabeza al lado contrario donde estaba
-Yunho. Yoochun se marchó del comedor tras Junsu y seguía el
-silencio ahí. Yo comencé a sentirme incómoda – Quiero ir a casa,
-Yunho.
-- Ahora no... Espera – No me soltaba del hombro – No
-quiero que esto se quede así... siéntate mejor.
-Me senté al lado de Jae y apreté con fuerza las manos sobre
-mis rodillas. Miré de reojo a Changmin, que seguía mirando el libro,
-pero con una mirada aún más tensa que antes. Ojalá supiera lo que
-le pasaba a él por la cabeza... suspiré y Jae captó mi atención.
-- A veces, el camino más corto no suele ser el más fácil... ¿lo
-sabías? - Me dijo mientras me miraba.
-- Ya me estoy dando cuenta – Agaché la cabeza.
-- Junsu le estaba pidiendo perdón a Yoochun... Tú crees que
-dejarlo es lo mejor, pero tal vez para él no lo sea.
-- Pero Junsu a veces es extremista – Dijo Yunho – Tiene que 
-428
-pensar que nosotros somos una unidad... somos cinco personas en
-uno – Alzó un dedo – No puede dejar que sus pasiones lo dominen
-de esa manera. No siempre esa es la mejor salida.
-- Es su novia – Dijo Jae - ¿Qué va a hacer? La defenderá...
-como harías tú o cualquiera de nosotros...
-- Que se lo hubiera pensado antes...
-- Changmin, no seas borde – Dijo Yunho y yo me encogí.
-Sabía a la perfección que él no aprobaba mi relación por Junsu –
-Kiki, no le hagas caso.
-- Kiki – Yoochun entró al comedor – Junsu dice que vayas...
-- La que he liado en un momento – Me reí para suavizar la
-cosa pero no fue a mejor. Yoochun me condujo hasta la habitación y
-ahí lo vi, sentado en la cama. Me quedé sola con él – Junsu...
-- Ven – Me miró y yo me senté a su lado. Me agarró de la
-mano – No creí que te molestaría...
-- Lo siento... últimamente he sentido mucha presión – Dije
-junto a un suspiro – No quería llegar a este punto, la verdad...
-- Supongo – Sonrió y me miró – No me dejarás, ¿verdad?
-- No te dejaré – Le dije sorprendida a su reacción.
-- Perfecto... porque no volverá a pasar – Me abrazó con
-fuerza y me dio un beso en la mejilla – Ahora vamos fuera... parece
-que Yunho tiene que decirnos algo importante...
-- Ah... si – Asentí aún anonadada por cómo había actuado
-Junsu.
-Nos reunimos en el salón como si nada hubiera pasado. Jae,
-Junsu y yo en un sofá; Changmin y Yoochun en otro; y Yunho en un
-sillón. Empezó hablando el líder sobre la gira Europea, hasta que Jae
-preguntó qué pintaba yo en todo esto.
-- Ella es nuestro agente a partir de ahora – Dijo Yunho
-mientras me señalaba – La Rhythm Zone la contrató para llevarnos
-por Europa.
-- ¡¡Eso es genial!! - Junsu me agarró de la mano.
-- O no – Dijo Changmin. Todo lo miramos – Mira Kiki, yo no
-tengo nada en tu contra, de verdad... pero Junsu tiene que estar al 
-429
-cien por cien en todo este asunto.
-- Yo no quiero...
-- No te preocupes Min – Dijo Junsu sin dejarme hablar – Yo
-voy a estar pendiente de mi trabajo... como hasta ahora. Yo no me
-he despreocupado de nada, al contrario... creo que ahora doy más.
-- Bueno... eso está por ver – Rió Yoochun y el Junsu puso un
-puchero.
-- ¿Y dónde haremos los conciertos? - Preguntó Jae – Ya
-tengo ganas de saberlo.
-- Vamos a ir a cinco países – Dijo Yunho – Italia, Alemania,
-Inglaterra, Francia y España.
-- ¡Wo, España! - Saltó Junsu de pronto y lo miramos – Lo
-siento... lo siento...
-- Y van a ser, como dijimos, dos ciudades por país... -
-Continuó hablando – Nápoles y Roma de Italia; Múnich y Berlín de
-Alemania; Liverpool y Londres de Inglaterra...
-- ¿Y por qué no vamos a Manchester? - Dijo Junsu con un
-puchero – Yo quiero ver a JiSung...
-- Pero Junsu, no estamos de viaje de placer, la verdad sea
-dicha – Dijo Jae con desesperación – No creo que tengas tiempo de
-verlo.
-- Pero el Liverpool es nuestro enemigo – Y alzó un puño
-mientras fruncía el ceño.
-- No vas a animar ni a patear a nadie, Jun-Chan – Dijo
-Changmin pronunciando su nombre con rabia.
-- Eres malo Changmin – Junsu lo miró mal.
-- Sigo – Yunho suspiró – París y Lyon de Francia.
-- ¡¡¡Oh, París!!! - Junsu alzó las manos - ¡¡Si, yo quería volver
-a París!!
-- La verdad es que yo también – Dijo Yoochun – Es una
-ciudad muy bonita...
-- Si, me quedé con ganas de ver en profundidad algunas
-cosas de París – Siguió Changmin.
-- Y de España...
-430
-- La gran incógnita – Esta vez fui yo quien interrumpió a
-Yunho, quien resopló – Perdón.
-- Tengo que decir, que vamos a grabar un video y haremos
-un photobook en Europa y... - Yunho me miró con esa sonrisa que
-no me gustaba – Kiki nos deja elegir el lugar.
-- ¿En serio? - Me miraron todos - ¿Puedo elegir yo? - Junsu
-alzó la mano.
-- A ver qué dices... - Susurró Jae.
-- ¡¡Manchester!! - Sonrió.
-- Idiota – Yunho lo miró mal y negó con la cabeza –
-Decidimos en España, ¿recuerdas?
-- ¿A si? - Me miró sonrojado y miró al resto - ¿Cuándo?
-- Ayer – Dijo Changmin, que al fin, había cerrado el libro –
-Mientras cenábamos... ¿o acaso no escuchas?
-- No sé – Se encogió de hombros.
-- ¿Qué opinas, Kiki? - Yunho sonreía.
-- Me parece genial – Asentí muy feliz – Y... ¿habéis decidido
-alguna ciudad? Yo había pensado en dos...
-- Yo tengo curiosidad por ver una ciudad – Junsu se marchó
-corriendo y volvió con una foto en la que salía él con Eunhyuk.
-Señaló el chándal que llevaba su amigo – Esto es de España,
-¿verdad?
-- Si... pero no había pensado en eso – Dije mal – Además, no
-me gusta ese equipo.
-- ¿Y cuál te gusta? - Me preguntó guardando la foto.
-- No hablemos de fútbol – Dijo Yoochun resoplando, Junsu
-se disculpó – Pensamos que el estar más tiempo en España sería
-bueno para ti, Kiki.
-- ¿En serio? - Me sonrojé.
-- Si... y hemos decidido que haremos tres conciertos allí,
-para terminar la gira – Dijo Yunho – A parte de grabar allí el
-videoclip y el photobook. Tú ya nos dirás las ciudades...
-- Si, porque nosotros no conocemos nada – Jae rió.
-- Vale... - Dije muy animada y me quedé pensando en las 
-431
-ciudades. Después de unos minutos, le quité el portátil a Jae y les
-dije que se sentaran a nuestro alrededor para que vieran las
-ciudades que había escogido – En primer lugar, en la capital, Madrid,
-hay más opciones de que hayan más fans vuestras – Comencé a
-decir – Por eso sería bueno hacer un concierto allí. Luego uno en
-Barcelona, ya que es una ciudad del norte y además, muy chula... sin
-contar su equipo de fútbol – Junsu rió – Y por último Granada.
-- ¿Y tú dónde vives de todas esas ciudades? - Me preguntó
-Jae.
-- En ninguna – Dije – Pero me pilla cerca Granada.
-- Me siento culpable... - Comenzó a decir Yoochun – De que
-no hubieses podido ver a tus padres cuando fuiste la semana
-pasada... por eso quería compensarte de alguna manera para que el
-Junsu idiota pueda ver tu ambiente...
-Junsu se quedó mudo y se sonrojó muchísimo a lo que dijo
-Yoochun, parecía que él tampoco sabía nada, aunque Changmin le
-echó en cara que eso lo habían estado hablando durante los
-almuerzos todos. Me sentí muy alagada por parte de todos el que
-hubieran decidido eso por mí y el hecho de que pudiera ver a mi
-familia. Y me alegré de que aceptaran el ir a Madrid, así, todas mis
-amigas podían ir a verles allí, al igual que a Granada y tal vez a
-Barcelona.
-Y enseguida Junsu me llevó a casa. Charlamos de un par de
-cosas y de nuevo me pidió perdón por todo lo que había pasado. En
-realidad no quería enfadarse con Yoochun, pero me confesó que el
-mayor había estado unos días algo insoportable, y que se
-comportara así con él cuando volvió de España fue “la gota que
-colmó el vaso”. Me despedí con un dulce beso y subí al piso con una
-sonrisa. Me extrañé que no hubiera escándalo en la casa, en el
-recibidor me encontré con una nota de Jane.
-“Kikita, nos hemos ido a dar una vuelta con SangHun y
-algunos chicos. Yunho nos llamó de que estabas con ellos... ya te
-vale, no avisarnos... aunque bueno, así él me ha llamado... como
-excusa, me ha preguntado qué tal estoy y esas cosas... Es un cielo... 
-432
-ahhh R me dice que pare de escribir... Bueno, hay cena en el
-frigorífico por si quieres... bueno, no nos esperes despierta... ¡¡Un
-beso!!: Jane”
-No cené, en casa de los chicos había picado algo mientras
-hablábamos de todo, así que directamente me fui a la cama... Ya
-eran casi las once y media de la noche. Sinceramente, no recuerdo
-qué soñé esa noche, pero me dejó un sentimiento de paz y
-tranquilidad enorme.
-Cuando el despertador sonó insistentemente el lunes, supe
-que mi tranquilidad había llegado a su fin y que me tocaba un duro
-día de trabajo, aunque ya estábamos terminando de rodar el drama
-y ya nos lo tomábamos todo con más calma. Las chicas se habían
-levantado junto con mi despertador y me contaron su aventura de la
-noche anterior.
-Hana me dijo que SangHun estaba muy interesado en ella, y
-Elena me dijo que no sabía nada de Yonghwa, pero que le daba
-algo de igual. Lo que sí sabía era que, Jane y R, teniendo lo que
-tenían, no se iban a interesar en otros chicos, aunque Elena, no
-muy contenta, les dijo que buscaran otros novios, ya que con ellos
-poco iban a conseguir, ya que ya sabían cómo pensaban los dos.
-- Pero tal vez se ablanden – Dijo Jane.
-- Solo te digo que no te ilusiones – Negó Elena – Por tu
-bien.
-- Ya, ya – Suspiró la rubia.
-Y entonces, Hana me dijo que había quedado a solas con
-SangHun para esa misma tarde... y era la primera vez que se veían a
-solas y no sabía qué hacer. Me confesó que aún sentía algo fuerte
-por Jae, que no lo podía evitar, pero no quería forzar la situación, ya
-que si no, se volvería demasiado incómodo tanto para él como para
-ella, así que lo mejor era centrarse en otras oportunidades... y esa
-oportunidad era SangHun.
-Esa semana fue tan sencilla y normal. Le envié a la Rhythm
-Zone los informes que me pidieron y esa misma tarde me 
-433
-contestaron con un fax diciéndome que estaban de acuerdo con lo
-que Yunho y yo habíamos propuesto, que lo dejaban en mis manos.
-Y cada vez que imaginaba de que el fracaso o el éxito de ellos en
-Europa iba a ser cosa mía los nervios me comían el estómago.
+Y el tiempo pasaba... y no solo pasaba eso, sino que algunas
+se iban olvidando de cosas que habían hecho y dejado de cumplir.
+Elena volvió a tener ciertos problemas con algunas fans
+Cassiopeia y Elf, aunque alguna también quiso ensañarse contra
+Jane, pero enseguida se calmó la cosa, ya que amenacé con volver a
+cortar el grifo del drama. El problema que esa vez no se mostraron
+tan simpáticas como la primera vez.
+Las “líderes” de los dos clubes de fans se reunieron conmigo
+en una cafetería para hablar. Habían insistido en ir a la SM, pero yo
+no quería follones, así que dije que fuera en una cafetería poco
+transitada, más que nada porque hacía poco que las chicas y yo
+habíamos tenido que empezar a ir con guardaespaldas y demás
+cosas, ya que algunas fans nos seguían, anti fans hacían de las suyas
+y los periodistas algunas veces nos acosaban.
+Los chicos nos decían que nos acostumbraríamos, pero
+sinceramente no entendía como ellos podían ir a veces tan
+tranquilos por las calles con tanta loca suelta.
+Y ahí estaba yo, viendo como había empezado a nevar en
+Seúl y tomándome un chocolate caliente con las dos portavoces. La
+reunión fue de lo más tranquila, las chicas se disculpaban a boca
+abierta por todo lo que estaba pasando, que ellas no podían
+controlar a todas las fans y que de verdad ellas querían el bien para
+los dos grupos. Sabían que aquello era un simple drama y estaban
+convencidas de que ninguno de los chicos mantenía una relación
+seria con ninguna chica. Hasta insinuaron que sería imposible de
+que alguno saliera con nosotras por ser extranjeras, lo dijeron tan
+camuflado que tuve que pensarlo mucho hasta caer en cuenta lo
+que habían dicho.
+Entonces me dieron ganas de decir que yo estaba saliendo
+con Junsu, pero si habían olvidado por completo el horrible 
+436
+incidente y no suponían nada de lo mío con el Junsu, yo estaba más
+que feliz por eso. El caso es que estaban intentando por todos los
+medios calmar a las fans ofendidas, pero que yo debía de entender
+que no a todas les hace gracia ver como unas extranjeras se habían
+metido así, de buenas a primeras con los chicos en ese drama. Y de
+verdad yo lo entendía, pero les dije claramente que ellas también
+eran extremistas y cerradas, no podían ser tan racistas solo porque
+ellas eran extranjeras. Al fin y al cabo solo eran actrices, y tanto ellos
+como ellas actuaban.
+Las dos estuvieron de acuerdo conmigo y, enseguida
+concluyó esa misteriosa reunión. Y meditando, a pesar de ese grupo
+pequeño de anti fans, el drama iba súper bien. Elena y Hana
+empezaron a rodar otro drama. La primera era con un papel
+principal en una serie de la KBS, centrado en la vida de una
+extranjera en Seúl y su triunfo como bailarina. Y Hana había firmado
+para rodar una película como “amiga” de la protagonista, vamos que
+ninguna de las dos se podía quejar.
+Pero R y Jane se sentían algo chafadas, porque habían
+terminado de rodar mi drama y veían que después de las galas y
+premios, volvían a España, y ninguna de las dos querían. Yo ya le
+propuse, antes de hablar con Jane, a Lee Sooman, que la rubia
+entrara al grupo de las SNSD como una nueva integrante. Jane había
+demostrado tener gran habilidad para el canto y el baile, pero Lee
+Sooman se lo pensó mucho, ya que tuvo la experiencia de “Only13”
+con Super Junior y Henry. Aunque me dijo que lo estudiaría y que
+empezaría a pensarlo, ya que tampoco sonaba nada mal.
+Y R... ¿qué hacía con ella? Cada vez se llevaba mejor con
+Changmin, pero nadie ofrecía un trabajo para ella en la televisión o
+la radio, y ella estaba muy desanimada al ver que tenía que
+separarse del más alto del grupo, y no quería. Aunque él no se había
+declarado abiertamente, pasaban muchas horas juntos hablando de
+a saber que hablaban ellos, y yo me sentía algo triste... Pero todo
+comienzo tiene su final, ya sea trágico o realmente feliz. Y el tiempo
+corría, y no a favor de todos.
+437
+El invierno estaba siendo realmente crudo. Los DBSK habían
+sacado la nueva versión de su disco Mirotic con cuatro canciones
+nuevas y un videoclip, a parte de una nueva versión de una de las
+canciones. A ellos sí que les iba bien, iban a muchas galas y ganaron
+muchísimos premios. Después de un año y siete meses, la acogida
+en Corea fue muy buena... pero el pequeño abandono que dejaron
+en Japón se notó, y las fans comenzaron a reclamar que querían más
+cosas de ellos allí en Japón.
+Y eso me enfadó, ya que ellos eran coreanos, los japoneses
+podían aguantarse y escuchar su música en el idioma de los chicos,
+pero Junsu ya me explicó que el mercado de la música en Japón era
+muy importante como para desperdiciarlo por no querer cantar en
+japonés ni allí. Así que yo me di un punto en la boca y me aguantaba
+como una tonta cuando ellos tenían que marcharse a Japón.
+Y llegó la navidad. Y con la navidad llegó una carpeta de la
+Rhythm Zone explicándome que habían contratado ciertos estadios
+en las ciudades concretadas y que todo iba bien. La publicidad de los
+chicos allí, por sorpresa mía, había sido bien acogida en todos los
+países. En todos menos en España. Mi país se había mostrado más
+frío en ese tema, ya que un idioma asiático no era a lo que estaban
+acostumbrados, así que les propuse en cantar todas las canciones en
+inglés. Y lo meditaron, y bastante, tanto que pasada una semana se
+me había olvidado y me respondieron de que si, que harían las
+versiones en inglés y que los chicos tenían que empezar a ensayar
+para grabar las canciones.
+Me dijeron que me iban a dar más noticias de la gira
+Europea a principios de Marzo, ya que ya me habían dado una fecha
+en concreto para comenzar la gira... y era en Mayo. Solo quedaban
+cinco meses... y esta vez, los cinco meses eran de verdad. Yo estaba
+muy nerviosa.
+La emisión de mi drama había finalizado con mucho éxito.
+Nos dieron muchos premios en varias galas, nos habíamos ganado el
+cariño del público ya sin más narices, ya se habían acostumbrado a
+vernos en la pantalla, a que saliéramos en las revistas de moda y de 
+438
+música, a que se rumorearan cosas que no eran... Como por
+ejemplo, una vez mientras navegaba por internet en un foro, leí que
+Yoochun y Elena estaban saliendo juntos porque en una gala,
+ambos habían estado hablando mucho...
+Y recuerdo ese día. Yoochun picaba a mi amiga porque sabía
+español, y ella no podía hablar libremente de lo guapo que le
+parecía Donghae cuando iba de traje de chaqueta porque el
+incordio de Yoochun le decía cada dos por tres: “recuerda que se
+español”... al final ella acabó de los nervios y a la otra punta de los
+asiento. Era tan divertido picar a Elena, que Yoochun solo se
+acercaba a ella para hacerlo... y él que se reía como un niño
+pequeño.
+El día de navidad, hicimos una cena de empresa en el
+restaurante de los abuelos de Yoochun, que reservaron solo para
+nosotros en particular. E íbamos muchos famosos y trabajadores,
+con la ganancia que sumó mi drama, era lo menos que podía hacer
+Lee Sooman para nosotros. Y lo mejor de esa cena era que
+estábamos solo nosotros, en confianza y familia. No había cámaras
+ni periodistas... Y yo pude ser más que feliz con Junsu sin que nadie
+me molestara, ahí cada uno iba a su bola y bebía lo que le daba la
+gana...
+El único día tranquilo que tuvimos de las fiestas, fue en
+noche vieja, que nos reunimos los diez en mi casa para despedir el
+año. Ese día echaban una gala grabada en diferido, ya que DBSK
+salía cantando y ellos estaban viéndola con nosotros. Se estaba tan a
+gusto con todos allí... éramos una pequeña familia, donde los
+oficiales solo éramos Junsu y yo... Y yo sola me reí de mi broma. Esa
+noche, fue, de lo más normal...
+Y antes de año nuevo fue la gala del “Gayo Daejun” que fue
+todo un éxito. Las chicas y yo preferimos ver la gala desde casa, ya
+que sería como si estuviéramos en primera fila. Todos estuvieron
+genial, tanto como los nuevos grupos que habían salido al mercado:
+2PM, 2AM y algunos otros más; y los grupos ya más veteranos,
+como Super Junior (que no fueron todos), DBSK, Big Bang, Rain o la 
+439
+mismísima Boa, que se presentó para el performance.
+Y la sorpresa fue lo que hicieron los chicos al final de su
+actuación... eso de quitarse la camisa cuando terminaron de cantar
+Mirotic y enseñar toda la espalda provocaron muchas risas entre
+nosotras y gritos entre las fans, fue un muy buen espectáculo. Luego
+de eso, vino año nuevo, que fue una buena celebración a lo
+tranquilo. Obviamente nosotras echábamos de menos a nuestras
+familias, pero hablando por correo y teléfono pudimos quitarnos esa
+morriña que teníamos.
+Después de todas las fiestas llegó Enero y los chicos se
+tuvieron que marchar a Japón. Yo estuve muy contenta de su
+progreso musicalmente, estaba destrozada por estar mucho tiempo
+separada de Junsu, pero era lo que había. Ahora estaban
+promocionando una película de ballet en la que ellos cantaban la
+canción principal de la película, Bolero. Y después de eso volverían a
+Corea... si, volverían, pero solo para el dichoso concierto que tenían
+planeado por toda Corea para promocionar Mirotic... su vida era
+estresante, pero la mía no era menos.
+Una mañana de principios de Enero, tuve una reunión en la
+TN Entertainment con Tony Ann, conocido como Seunho, para
+hablar a cerca de Dead End, mi “mejor” novela policíaca... o de
+mafias, como a mí me gustaba llamarla. Esa mañana hacía mucho
+frío, estaba nevando y yo iba muy bien abrigada. Él mismo me
+recibió en la puerta.
+- Casi no se te ve la cara, María – Me dijo mientras me
+estrechaba la mano después de que yo me quitara un guante.
+- No estoy nada acostumbrada a los climas muy fríos...
+mucho menos a la nieve – Me quité la bufanda que llevaba y sonreí -
+¿De qué querías hablarme? - Le pregunté con una sonrisa.
+- Vayamos a mi despacho y te lo explico con todo lujo de
+detalles – Sonrió – A ver qué opinas.
+Caminamos en silencio hacia su despacho, entramos y me
+indicó amablemente que me sentara frente a su imponente mesa de
+despacho. Él se sentó al otro lado y sacó un papel alzado, me 
+440
+sorprendí al ver lo que vi.
+- ¿Iba en serio la propuesta de esa película? - Abrí mucho los
+ojos.
+- Claro que si – Asintió – No sé si trabajas solo para la SM,
+pero puedo colaborar... y sabes que la Jtunes también está dispuesta
+a colaborar...
+- Ya veo... - Asombrada, agarré el papel y lo leí atentamente
+– Tú la has leído bien, ¿verdad?
+- Toda – Asintió.
+- Y sabrás que no puedo ponerla tal cual – Alcé los ojos y
+soné lo bastante convincente como para que asintiera a mi
+expresión.
+- Por supuesto – Asintió como si ya lo supiera de antemano,
+cosa que me sorprendió – Estaba claro que se notaba que
+necesitaba una mejora rápidamente, pero la idea es muy buena y
+quiero trabajar con ella.
+- ... - Yo me quedé con la boca totalmente abierta... su
+explicación abarcaba mucho más que cualquier otra cosa... Para dos
+años, podría conseguir hacer cuatro películas... - Bueno... puedo
+trabajar en el guión y mejorarlo.
+- No esperaba menos de ti – Sonrió – Trabaja en él como en
+un largo proyecto mientras buscamos a los actores y lo preparamos
+todo...
+- Esto... - Alcé la mano con miedo – Yo tengo algunas ideas
+con algunos actores...
+- Yo no voy a salir – Se señaló entre risas, me contagió la risa,
+pero me puse seria y negué con la cabeza.
+- Me refería a otros... - Sonreí abiertamente – Aunque me
+gustaría conservar a los originales.
+- No se puede pedir todo – Se encogió de hombros y sonrió
+agradablemente. Creo que lo que le alagó de la historia era que lo
+sacara a él y con un personaje tan bueno como era el suyo. Pero
+nunca me lo dijo.
+La reunión enseguida terminó y yo me marché a la SM 
+441
+pensando en todo lo que habíamos hablado. Me habían hablado
+acerca de que tenía que revisar unos guiones que habían preparado
+para un programa en la MBC, así que fui directa a mi despacho,
+cuando de pronto, me encontré con Jane apoyada en una pared con
+la mirada ausente. Me acerqué a ella.
+- ¿Qué ocurre, Jane? - Le pregunté preocupada.
+- ... - Me miró alzando la cabeza y se mordió el labio inferior
+– Yo... te digo esto porque eres tú... y vamos, porque pronto te
+acabarías enterando... - Se encogió de hombros – R y yo nos
+volvemos a España sin nada más...
+- ... - Simplemente suspiré. Yo ya lo sabía y me dolía en el
+alma escuchar eso. Ellas lo habían hecho genial, pero no habían
+conseguido nada más y eso era muy triste, para ellas como para mí,
+que me había acostumbrado a estar con ellas. En silencio la abracé,
+y después de unos minutos la miré a la cara – Vuelve a España, haz
+lo que tengas que hacer, que yo te busco algo para que vuelvas.
+- ¿Harías eso? - Su cara se iluminó.
+- Haría lo que pudiera... pero nunca podría prometer nada –
+Le advertí, no quería que luego me echara en cara nada. Sonreí y de
+nuevo la abracé – Ánimo Jane, ya verás como todo se soluciona – Le
+guiñé un ojo y la solté. Alcé la cabeza como si buscara a alguien y de
+nuevo la miré - ¿Os han dicho fecha para volver?
+- No – Negó – Nos pagarán y nos darán un billete de avión
+para cuando queramos...
+- Os pagarán... - Sonreí y asentí – No pagan muy bien – Dije
+bien flojo – Pero al menos es un dinero, ¿no?
+- Supongo – Se encogió de hombros y sonrió – Kiki, has
+hecho mucho por nosotras.
+Vi como se alejaba y yo me miré el reloj. Tenía que revisar el
+guión, así que me marché lo más rápida que pude. Me quedé
+pensando y analizando la cara de Jane. Obviamente no se había
+quedado satisfecha y parecía que la nube que la había estado
+llevando desde que había llegado, se había evaporado haciendo que
+ella cayera estrepitosamente al suelo. El golpe para ambas había 
+442
+sido duro.
+Llegué al despacho y me encontré con un pos-it pegado en
+la puerta, ahí escrito ponía un número de teléfono y un nombre. No
+lo conocía, así que entré y llamé a mi secretaria. Me dijo que él
+mismo se había presentado a mi despacho bien temprano y que le
+llamara con urgencia, no me dio más detalles. Con el teléfono en
+una mano y con los guiones en la otra, paseé por mi despacho.
+- Ah, hola – Dije cuando contestaron – Soy María, de...
+- Si – Me cortó – Soy el presidente de la KBS – Hizo una
+pausa para ver si yo decía algo, pero al notar que me quedé en
+silencio, prosiguió – Quería hablar con usted en persona, ¿cuándo
+estará disponible?
+- En cualquier momento – Dejé los guiones sobre la mesa.
+- ... - Suspiró, mi respuesta no pareció gustarle.
+- ¿Le parece bien mañana a las nueve? - Dije rápidamente.
+- De acuerdo, volveré a ir a su despacho mañana a las nueve
+– Dijo, hablaba tan rápido que me costaba entender a veces lo que
+decía. A primera vista no me caería bien ese hombre.
+- Pues aquí le estaré esperando – Él colgó primero y yo miré
+el teléfono con gesto de extrañada. ¿Por qué quería contactar
+conmigo el presidente de la KBS?
+Me puse a revisar los guiones cuando Lee Sooman irrumpió
+amablemente en mi despacho. Se acercó a mi mesa y sonrió.
+- Vengo a aclarar un par de cosas – Se quedó de pie. Yo
+esperaba que se sentara, pero no lo hizo – Y son sobre tu contrato
+con SM – Sonrió. ¿Y eso a qué venía ahora? ¿A caso Seunho había
+hablado con él ya?
+- ¿Ha pasado algo malo? ¿Algo bueno? - Entrelacé mis dedos
+muerta de nervios.
+- No te preocupes – Pero no se sentaba, y su expresión de
+indiferencia no ayudaba en nada – Simplemente decir que tu
+contrato no se basa simplemente en la SM – Justo, había hablado
+con Seunho – Me ha llamado el presidente de la TN – Ahí aclaró mi
+duda – Y me ha estado comentando varias cosas... Trabajarás aquí, 
+443
+tendrás como prioridad la SM, pero como en tu anterior trabajo,
+podrán participar otras agencias...
+- No entiendo del todo lo que me quieres decir – Alcé una
+ceja. Cierto, no estaba entendiendo nada.
+- Puede trabajar con cualquier empresa... como también con
+cualquier cadena televisiva, siempre y cuando tenga en cuenta los
+patrocinios de esta empresa – Señaló con el dedo en el suelo cuando
+se refirió a la SM. Yo asentí con la cabeza.
+- Ok, creo que me queda claro – Volví a asentir y él medio
+sonrió.
+- Pues no tengo nada más que decirte – Se giró y se marchó
+conforme había venido. Yo me quedé muerta.
+Cuando terminé mi trabajo, fui al piso y me encontré con
+Jane y R hablando sentadas en el sofá. Imaginé que Hana y Elena
+estaban con su nuevo trabajo, donde habían tenido una buena
+acogida con el reparto de actores y con los que allí trabajaban. Hana
+me había dicho que si le iba tan bien, se iría a buscar un piso para
+poder estar ella sola y dejar de abusar de mi amabilidad. Si de
+repente yo me quedara tan sola, sería un golpe un poco duro para
+mí, después de tantos meses con compañía. Suspiré y me senté
+junto a mis amigas.
+- Lo siento... - Casi susurré.
+- Kiki – R sonrió – Me ha llamado Changmin – Y se ruborizó –
+Me ha dado muchos ánimos para todo, además, me ha aconsejado
+que termine la carrera antes de hacer nada.
+- ... - Jane asintió con la cabeza – Es lo mejor... - Puso un
+puchero – Pero a mi Yunho no me ha llamado.
+- No sufras... Junsu tampoco me ha llamado – Me encogí de
+hombros.
+De pronto la puerta se abrió y se cerró. Se escuchó el
+arrastrar de algo, y Elena se dejó ver con cara cansada y
+bostezando.
+- Es... agotador – Sentenció cuando se echó en el sofá – Este
+trabajo cansa muchísimo, más de lo que yo creía.
+444
+- Pero todo bien, ¿no? - Sonrió R.
+- Claro – Asintió moviendo exageradamente la cabeza –
+Perfectamente – Sonrió - ¿Cenamos?
+- Vamos a esperar a Hana – Dijo Jane.
+- No va a venir a cenar – Elena sacó su móvil y nos lo
+enseñó – Me ha mandado un mensaje diciendo que Sanghun la ha
+invitado a cenar.
+- Vaya, vaya – Me crují los dedos – La Hanita se nos hecha
+noviete...
+- Más o menos...
+Todas nos pusimos en pie y nos preparamos para cenar.
+Cuando terminamos y nos acomodamos, mi móvil comenzó a sonar.
+Vi la cara sonriente de Junsu, foto que tenía cuando él me llamaba.
+Suspiré y descolgué marchándome a mi habitación.
+- Hola – Me eché sobre la cama haciendo un ruido sordo
+mientras suspiraba - ¿Qué tal?
+- Cansado... - Él también suspiró – Pero todo bien... - Se
+quedó en silencio – Siento si no te he llamado antes...
+- No te preocupes – Me apresuré a decir, no quería que a
+cada momento me pidiera perdón por esas chorradas. Sabía cómo
+era su agenda y todas las cosas que tenía que hacer, yo no quería ser
+un obstáculo en su mente – He supuesto que estarías ocupado...
+- Pues si – Asintió – He estado bastante liado... entre el
+single de Bolero y las canciones en inglés que tenemos que preparar,
+vamos algo estresados.
+- Lo siento... - Me mordí el labio. Ahí yo tenía algo de culpa.
+- No Kiki – Negó rápidamente – Es lo que nosotros hemos
+decidido – Rió sin fuerzas – Así que, no tienes nada de culpa... - Hizo
+una pausa – Ah, mañana vamos a Seúl – Se quedó callado – Pero con
+las mismas volveremos a Japón.
+- ¿Y eso? - Pregunté curiosa. Yo ya sabía que no podría verlo
+cuando añadió lo último.
+- Tenemos una presentación de un producto en el centro
+comercial lotte – Respondió – Puedes venir si quieres y nos 
+445
+podremos ver.
+- Me encantaría – Soñé – Pero no quiero causarte
+problemas.
+- ¡Kiki! - Alzó la voz y supuse que eso le molestó – No seas
+absurda... - Bajó el tono de su voz – Eso solo son tonterías...
+- Voy a preparar un nuevo proyecto – Dije después de haber
+estado un rato en silencio – En principio con la TN Entertainment,
+¿qué te parece?
+- Me parece muy bien – Asintió – A todo esto... ya has
+preparado lo de nuestra gira, ¿verdad?
+- ... - Eso me pilló de sorpresa y reí – Claro... hago lo que
+puedo.
+- Pues mucho ánimo – Rió – Yo te dejo ya, que tenemos
+cosas que hacer... chao Kikita...
+- Chao... - Colgué y miré el teléfono.
+No podía martirizarme, yo misma había puesto las barreras
+que hacían que estuviéramos así. Después de aquella parafernalia
+cuando fui a su piso y las miradas demasiado serias de Changmin,
+me achanté mucho a la hora de estar con Junsu. Y claro, él no era
+tonto y lo notó, así que también se distanció un poco. Me sentí mal,
+ya que en vez de intentar ver qué pasaba o por qué yo actuaba así,
+decidió actuar de la misma manera que yo... Tal vez él se había dado
+cuenta de como trataba Changmin nuestra relación. Y es que
+Yoochun ayudaba aún menos. Al final me quedé dormida en la cama
+y no salí a cenar con las chicas.
