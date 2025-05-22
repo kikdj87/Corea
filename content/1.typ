@@ -40,7 +40,7 @@ Alguien se acercó a mí y me habló en coreano.
 
 ---Perdón ---me dijo en inglés --- Quería saber, si está usted bien --- Me dijo con un inglés perfecto.
 
----Si, eh... ---me quedé pensativa y le miré de arriba abajo. Un hombre trajeado, como muchos 28 años. Me quedé mirándole y un halo de luz se colocó tras su cabeza --era el sol-- y podía indicarme el camino de vuelta al hotel --- Me he perdido.
+---Si, eh... ---me quedé pensativa y le miré de arriba abajo. Un hombre trajeado, como muchos veintiocho años. Me quedé mirándole y un halo de luz se colocó tras su cabeza --era el sol-- y podía indicarme el camino de vuelta al hotel --- Me he perdido.
 
 ---Vaya ---exclamó --- ¿Dónde te alojas?
 
@@ -82,7 +82,7 @@ Lo miré con los ojos abiertos, si lo supiera, estaría allí buscando trabajo p
 
 ---Vamos, que te acompaño a tu hotel.
 
----¡¡Muchas gracias!!
+---¡Muchas gracias!
 
 Toda mi mala suerte se había esfumado por completo. Había dado con un chico majo que me acompañó al hotel, que estaba al lado de la SM, que ese chico trabajaba allí, que me había conseguido una entrevista ¿¡¡Qué más podía pedir!!? Bueno, por pedir que no sea, conocer a Yoochun y salir con él... bah, eso era imposible. Pero yo, ya estaba contenta, porque tenía la posibilidad de trabajar con él.
 
@@ -92,7 +92,7 @@ Llegué al hotel algo cansada de tanto andar y me metí a la ducha a relajarme u
 
 ---Muy cansada ---escribí --- Pero creo que merece la pena, tal vez trabaje en la SM.
 
----¡SM! ---puso un emoji sorprendido --- ¡¡Verás a los chicos!!
+---¡SM! ---puso un emoji sorprendido --- ¡Verás a los chicos!
 
 ---Si tengo suerte, si ---puse los ojos en blanco, aunque no me vio y me eché a reír yo sola --- ¿Qué hora es allí?
 

@@ -199,7 +199,7 @@ _En esta vibrante aventura, Kiki, junto a sus hermanas, deberán navegar por los
 
 Mucha gente estaba expectante en que se emitiera el primer episodio. Como ya habían salido a la luz las imágenes de las chicas, se escuchaban todo tipo de teorías. Para mi sorpresa, mientras pensaba en la historia, alguien me abrazó por detrás. Me giré y vi una pequeña cara sonriente con su característico pelo rubio.
 
----¡Jane!! ---la abracé --- Oh, cielos, ¿qué tal ha ido todo?
+---¡Jane! ---la abracé --- Oh, cielos, ¿qué tal ha ido todo?
 
 ---Bien, la verdad --- Me dijo.
 
@@ -320,7 +320,7 @@ Junté las manos y caminé por el estudio lentamente, mirando hacia todas partes
 
 ---Yo... ---se sonrojó mirando mis ojos --- Y yo también te quiero...
 
----¡Ah, Junsu, estabas aquí! ---Taeyeon lo cogió del brazo y tiró de él --- ¿Qué haces con ella? ---sonrió como una imbécil --- ¿No será tu novia, verdad?
+---¡Ah, Junsu, estabas aquí! ---Taeyeon lo cogió del brazo y tiró de él --- ¿Qué haces con ella? ---sonrió como una imbécil --- ¿Acaso es tu novia?
 
 ---Si, es mi novia ---dijo Junsu aún sonrojado y muy serio, soltándose de ella y mirándola.
 
@@ -355,7 +355,7 @@ No sé por qué dije eso, simplemente me salió.
 
 ---Casa... ---se quedó pensando y se horrorizó --- ¿Has ido a mi casa? ---se acercó a mí y bajó la voz algo amenazante --- ¿Juno te ha llevado a casa?
 
----Ehm... ayer fui a llevarlo porque su amigo lo dejó tirado y... ---agaché la cabeza avergonzada.
+---Ayer fui a llevarlo porque su amigo lo dejó tirado y... ---agaché la cabeza avergonzada.
 
 ---Voy a matarlo ---negó mientras se recomponía --- Bueno, me tengo que...
 
@@ -434,8 +434,12 @@ Llegamos a casa entre carcajadas y ayudamos a R de nuevo a instalarse en la casa
 
 --- A ver R, cuéntanos qué tal ha ido por allí ---dijo de pronto Elena, todas asentimos con la cabeza.
 
---- Bueno, al principio todo estuvo muy tenso...
+--- Bueno, al principio todo estuvo muy tenso ---comenzó a hablar R --- Llegamos a España y Jane estaba fatal, temblando y casi llorando, y sus padres súper fríos, como era de esperar.
 
-_Llegamos a España y Jane estaba fatal, temblando y casi llorando, y sus padres super fríos. Total, que Kim DongSea y yo nos fuimos a mi pueblo. ¡Mi hermana M cuando vio a DongSea casi le da algo, pensando que era mi novio! Y él sin enterarse de nada, claro, porque no habla español._
+Todas asentimos con la cabeza, no era una situación agradable para ninguno.
 
-_Lo fuerte es que a los tres días aparece Jane llorando, diciendo que se queda en España por sus padres. Yo intentando convencerla de que no, que Kiki se había jugado mucho por ella. Al final, después de una semana de darle la tabarra a sus padres, a DongSea se le ocurrió que ellos también podían ir a Corea a ver a qué se dedicaría Jane. ¡Y coló! Dijeron que irían más tarde. Así que nada, DongSea y yo de vuelta a Corea. Menuda odisea._
+---Total, que Dongsea y yo nos fuimos al pueblo ---continuó R abrazando un cojín contra su cuerpo, sonriendo al recordar --- Cuando mi hermana lo vio casi le da algo pensando que era mi novio. Y el pobre sin enterarse de nada, claro, no habla español.
+
+Nos echamos a reír al imaginar como la hermana había reaccionado al ver delante suya a Dongsea. Que había que admitir que era un chico muy apuesto y guapo.
+
+---Lo fuerte es que a los tres días aparece Jane llorando, diciendo que se queda en España por sus padres. Yo intentando convencerla de que no, que Kiki se había jugado mucho por ella ---respiró hondo y relajó el cuerpo --- Al final, después de una semana de darle la tabarra a sus padres, a DongSea se le ocurrió que ellos también podían ir a Corea a ver a qué se dedicaría Jane. ¡Y coló! Dijeron que irían más tarde. Así que nada, DongSea y yo de vuelta a Corea. Menuda odisea.

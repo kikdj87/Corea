@@ -63,3 +63,4 @@
 
 -En el 17 se habla del resumen del drama
 
+-18/59 hay algo entre Hana y Jaejoong porque lo deja caer ella

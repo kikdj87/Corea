@@ -29,7 +29,7 @@ más hablador, pero tiene poca paciencia y eso lo hace divertido. Y Juno... ---m
 
 Les conté como descubrí que era su hermano y les dije que él no tenía ni idea de que yo estaba saliendo con su hermano. También les conté la dichosa conversación por teléfono que tuve con Junsu y lo enfadada que estaba con él.
 
---- Pero Kiki ---Hana estaba seria --- ¿Tu familia sabe que estás saliendo con Junsu? --- Y me quedé seria.
+---Pero Kiki ---Hana estaba seria --- ¿Tu familia sabe que estás saliendo con Junsu? --- Y me quedé seria.
 
 ---Cierto ---señaló Elena --- No puedes echar en cara eso a Junsu si tus padres no lo saben.
 
@@ -97,7 +97,11 @@ El equipo se reunió y comenzamos con el rodaje. Habían muchas escenas de los p
 
 Una vez terminamos lo que pudimos hacer los que allí estábamos me marché al rodaje del otro drama que se estaba preparando. Aquello me entretuvo hasta pasadas las doce de la noche. Elena y Hana me habían avisado de que se marchaban a casa hacía rato, así que me quedaba yo sola. Ese día había sido muy ajetreado para todo el equipo, y más para mí, que no pude mirar el móvil en todo el día.
 
-Cuando salí de la SM y me encontré con la fría noche, se acercaba el invierno. Miré el móvil y me vi varias llamadas perdidas y mensajes. Eran de Junsu, Changmin y Jae, estaban muy preocupados. Pero el último mensaje que tenía era de Jae. _"A Junsu le han vuelto a quitar el móvil, lo siento Kiki, ¿estás bien? Junsu está de los nervios y muy preocupado. Espero que estés bien. Saludos a las chicas. Llámame cuando lo veas"_. Guardé el móvil nada más terminar y era muy tarde y podrían estar durmiendo, no era plan de molestar, porque yo al menos no tenía ganas de que me molestaran. Tomé un taxi para que me llevara a casa y cuando llegué las chicas estaban echadas en el sofá mientras veían un programa muy divertido. Me acerqué a ellas para saludarlas.
+Cuando salí de la SM y me encontré con la fría noche, se acercaba el invierno. Miré el móvil y me vi varias llamadas perdidas y mensajes. Eran de Junsu, Changmin y Jae, estaban muy preocupados. Pero el último mensaje que tenía era de Jae.
+
+_"A Junsu le han vuelto a quitar el móvil, lo siento Kiki, ¿estás bien? Junsu está de los nervios y muy preocupado. Espero que estés bien. Saludos a las chicas. Llámame cuando lo veas"_.
+
+Guardé el móvil nada más terminar y era muy tarde y podrían estar durmiendo, no era plan de molestar, porque yo al menos no tenía ganas de que me molestaran. Tomé un taxi para que me llevara a casa y cuando llegué las chicas estaban echadas en el sofá mientras veían un programa muy divertido. Me acerqué a ellas para saludarlas.
 
 ---¡Kiki! ---Elena se alarmó --- Tía, estábamos algo preocupadas.
 
@@ -170,7 +174,7 @@ Mientras me traía la cena y comía, ya que me moría de hambre, les conté la r
 
 ---¡Es cierto! ---señaló Elena entre carcajadas --- Las odiosas Cassiopeia ---hubo un momento de silencio y Elena rió --- Bueno, pues tu amado escribió una canción súper romántica, ponla Hana.
 
-Silencio mientras se escuchaba la canción, que envolvió el piso con un aura cálida y romántica. Se me escaparon un par de lágrimas y abracé a las dos que lloraban conmigo. Después de ese bonito momento fui a la cama y pensé en la letra de la canción. ¿La escribió antes de conocerme, cuando ya estábamos juntos? Me había gustado la expresión que decía _tonta, eres tan preciosa para mi_, porque podía imaginar su cara mientras lo decía.
+Silencio mientras se escuchaba la canción, que envolvió el piso con un aura cálida y romántica. Se me escaparon un par de lágrimas y abracé a las dos que lloraban conmigo. Después de ese bonito momento fui a la cama y pensé en la letra de la canción. ¿La escribió antes de conocerme o cuando ya estábamos juntos? Me había gustado la expresión que decía "_tonta, eres tan preciosa para mi_", porque podía imaginar su cara mientras lo decía.
 
 Esa noche dormí muy bien.
 
@@ -242,7 +246,7 @@ Entramos con tanta rapidez que los otros no pudieron entrar detrás de nosotros.
 
 ---Pero si estoy con vosotros ---le dije extrañada, me separé de Juno y me sonrojé --- No es mentira.
 
----Demuestra que tienes novio ---Hyukhae sonrió --- A mí me has gustado ---puso su mano en su barbilla. Yo miré a Juno buscando auxilio en la mirada, pero él simplemente estaba con media sonrisa --- ¿Alguna foto?
+---Demuestra que tienes novio ---Hyukhae sonrió --- A mí me has gustado ---puso la mano en su barbilla. Yo miré a Juno buscando auxilio en la mirada, pero él simplemente estaba con media sonrisa --- ¿Alguna foto?
 
 Tardó un poco, pero Juno al fin reaccionó. Suspiró y le dio un golpe en el hombro a su amigo mientras me miraba con una disculpa.
 
@@ -292,7 +296,7 @@ Estaba entre la espada y la pared, ¿y yo que hacía ahora? La situación con Hy
 
 ---Claro ---se extrañó, buscó su móvil y yo aproveché para mirar el mío, no tenía ni un mensaje --- Y claro ---alcé la cabeza para volver a mirarle --- Era un mensaje muy extraño.
 
----¿Y por qué me dices esto a mí? --- Dije.
+---¿Y por qué me dices esto a mí? ---dije aparentando extrañeza.
 
 ---Bueno... Me ha dicho que tiene novia, pero la cara de la chica está tapada y me ha dado coraje ---suspiró y me enseñó el móvil. Me sonrojé violentamente al ver una foto de ambos, con mi cara tapada
 por un emoji de una cara sonriente. Lo miré esperando que me dijera algo --- Y me ha dicho que yo le ponga la cara.
@@ -328,9 +332,9 @@ también me ha dicho que yo la conocí el fin de semana pasado.
 
 ---En el que participa mi hermano, ¿verdad? ---dijo Juno.
 
----Si ---me sobresalté, ya que me vibró el móvil. Lo miré y vi el dichoso mensaje que esperaba de Junsu. Me dijo que lo escribía a escondidas, que lo sentía mucho, que me echaba de menos. Además me dijo algo que provocó que mirara a Juno. Él sonrió sonrojado.
+---Si ---me sobresalté, ya que me vibró el móvil. Lo miré y vi el dichoso mensaje que esperaba de Junsu. Me dijo que lo escribía a escondidas, que lo sentía mucho y que me echaba de menos. Además me dijo algo que provocó que mirara a Juno. Él sonrió sonrojado.
 
----Bueno, muchos lo saben ya, menos en mi casa --- Dijo Juno.
+---Bueno, muchos lo saben ya, menos en mi casa ---dijo Juno.
 
 ---¿Lo de su proyecto? ---preguntó señalándome Hyukhae, que estaba extrañado.
 
@@ -342,7 +346,7 @@ también me ha dicho que yo la conocí el fin de semana pasado.
 
 ---Oye, que yo no me entero de nada ---rió Hyukhae algo molesto.
 
----Mi novio es... ---busqué en el móvil y puse una foto de ambos --- La verdad es que nadie debería saberlo.
+---Mi novio es... ---busqué en el móvil una foto de ambos --- La verdad es que nadie debería saberlo.
 
 ---Entonces... ---Juno me quitó el móvil y, sin siquiera mirarlo, quitó lo que puse y me lo devolvió --- No lo digas.
 
@@ -352,7 +356,7 @@ Ganamos unas malas palabras de Hyukhae, unos bufidos y que se marchara.
 
 ---¿Y Sanghun y Yonghwa? ---preguntó Juno sorprendido al no verlos.
 
----Pues... ---las chicas se miraron. Hana sonrió --- Se han marchado --- ¿Tienes como volver?
+---Pues... ---las chicas se miraron. Hana sonrió --- Se han marchado, ¿tienes como volver?
 
 ---No ---echó la cabeza para atrás y dijo un taco --- Bueno, ya me buscaré yo la vida.
 
@@ -400,7 +404,7 @@ Salió del coche y Hana también salió para montarse delante conmigo, ya que er
 
 ---No, la madre se queda al lado de Juno mirándonos con cara de inspección, preguntándose por qué tres chicas con un coche tan chulo traen a su hijo a casa a las dos de la madrugada ---dijo de sopetón Hana.
 
----Ala, cuantas cosas dice una mirada, ¿no? --- rió Elena.
+---Ala, cuantas cosas dice una mirada, ¿no? ---rió Elena.
 
 Bajé la ventanilla al ver que su padre estaba ya esperando a que lo hiciera mientras nos miraba entre extrañado y preocupado.
 
@@ -422,9 +426,9 @@ Bajé la ventanilla al ver que su padre estaba ya esperando a que lo hiciera mie
 
 ---¡Mamá! ---Juno se estresó.
 
----¿No será alguna tu novia, verdad? ---dijo con el entrecejo fruncido y yo castañeé mientras apretaba con fuerza el volante, y si me descuidaba lo mordía de los nervios --- Juno, responde.
+---¿No será alguna tu novia, verdad? ---dijo con el entrecejo fruncido y yo castañeé mientras apretaba con fuerza el volante, y si me descuidaba lo mordía de los nervios.
 
----Mamá ---resopló --- No, solo son amigas, se han ofrecido traerme, Sanghun me ha dejado tirado en el local ---dijo intentando cambiar de tema.
+---No ---resopló --- Solo son amigas, se han ofrecido traerme, Sanghun me ha dejado tirado en el local ---dijo intentando cambiar de tema.
 
 ---Sabía yo que no era buen chico ---dio media vuelta y se marchó.
 

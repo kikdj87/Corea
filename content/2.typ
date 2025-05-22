@@ -1,10 +1,12 @@
 = Capítulo 2
 
-Ya llevaba una semana, y Kim Dongsea me ayudó a encontrar un apartamento donde alojarme con un precio económico y muy cerca de la SM. Pero no tenía suerte, no coincidía con los chicos y con tanto trabajo de secretaria, se me fue la inspiración a cualquier sitio menos a mi cabeza. Así que un día salí a una terraza con el portátil, me senté en un saliente, parecido a un banco, e intenté escribir algo de provecho. Aún usaba los deportivos, al final se acostumbraron a verme. De repente alguien entró dando un gran suspiro. Lo miré fijamente y la sangre se me heló.
+Ya llevaba una semana, y Kim Dongsea me ayudó a encontrar un apartamento donde alojarme con un precio económico y muy cerca de la SM.
+
+No tenía suerte, no coincidía con los chicos y con tanto trabajo de secretaria, se me fue la inspiración a cualquier sitio menos a mi cabeza. Así que un día salí a una terraza con el portátil, me senté en un saliente, parecido a un banco, e intenté escribir algo de provecho. Aún usaba los deportivos, al final se acostumbraron a verme. De repente alguien entró dando un gran suspiro. Lo miré fijamente y la sangre se me heló.
 
 ---¡Oh! ---y dijo algo muy rápido en coreano que no me enteré, era una mísera principiante.
 
----No sé... coreano... ---dije en un inglés penosamente hablado y sin dejar de mirarle.
+---No sé... coreano... ---dije en inglés y sin dejar de mirarle.
 
 ---Perdón ---sonrió y sacó un cigarrillo. Eso hizo que pusiera cara de asco de forma involuntaria --- ¿Te he asustado?
 
