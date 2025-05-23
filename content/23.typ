@@ -119,12 +119,12 @@ ingredientes...
 - Llámame, ¿vale? - Sonrió – Si tienes alguna duda, llámame.
 - Gracias – La abrace – Bueno, voy a terminar...
 Termine de arreglarme, de desayunar y de todo, y me fui a
-coger el autobús para ir a la SM, como de costumbre... pero, note
+coger el metro para ir a la SM, como de costumbre... pero, note
 algo extraño que las otras veces.
 - Oye, perdona... - Una chica vestida de uniforme se acercó a
 mí - ¿Podría darme su autógrafo?
 - ¡¡¡...!!! - La mire sorprendida. Uno, me sorprendió que
-hubiera gente en el autobús a esa hora. Dos, me sorprendió más
+hubiera gente en el metro a esa hora. Dos, me sorprendió más
 que hubiera una colegiala. Tres, me sorprendió que me pidiera mi
 autógrafo. Total, que decidí firmarlo - ¿Cómo te llamas?
 - Kim GaEul – Me dijo con una agradable sonrisa.
@@ -134,7 +134,7 @@ firmado.
 Y tengo que ayudar al profesor con las listas y esas cosas...
 - Vaya... - Había llegado a mi parada – Mucha suerte con
 todo.
-- ¡Muchas gracias! - Se despidió con efusividad y me sonroje.
+- ¡Muchas gracias! - Se despidió con efusividad y me sonrojé.
 361
 Llegue a la dichosa SM, subí por el ascensor hasta donde
 tenía mi despacho, yo había llegado quince minutos temprano, pero
@@ -206,7 +206,7 @@ irme, me encontré con Yunho.
 o no lo de la gira europea como Tohoshinki. Opte por no decírselo yo
 - ¿Y tú?
 363
-- Dos reuniones – Alzo los dedos – Una con Lee Sooman de
+- Dos reuniones – Alzó los dedos – Una con Lee Sooman de
 no tengo ni idea de que – Rió divertido y yo reí también – Y la otra
 para la fecha de lanzamiento del nuevo video y de la nueva versión
 de Mirotic.
@@ -261,7 +261,7 @@ mal, sinceramente, por ambas partes. Después de estar un buen
 rato mirando a la nada por la ventana, mi móvil sonó.
 - ¿Diga? - Conteste desganada.
 - ¿María, hija? - Era mi madre.
-- ¡Ah, hola mama! - Sonreí - ¿Qué tal?
+- ¡Ah, hola Mamá! - Sonreí - ¿Qué tal?
 - Muy bien hija, pero quería preguntarte algo... - Se quedó
 pensativa - ¿Llevo para la cena algún dulce o algo?
 - ¡Ah! No, no te preocupes – Dije con rapidez – Vosotros no
@@ -270,7 +270,7 @@ comáis a las dos, porque a las seis vamos allí a cenar, ¿vale?
 trabajo ahora? - Me pregunto.
 - No, ¿por?
 - Por pasar el día juntos...
-- … - Sonreí – Claro que si mama, enseguida estoy en vuestro
+- … - Sonreí – Claro que si Mamá, enseguida estoy en vuestro
 hotel.
 Llame y avise a las chicas de que estaría liada con mis padres
 y, cuál fue mi sorpresa, que ellas me dijeron más o menos lo mismo,
@@ -283,7 +283,7 @@ cuatro, los deje en el hotel y yo me fui al piso, donde me encontré
 sola. Puse la música de la minicadena y me metí a la ducha; estaba
 muy nerviosa, tanto, que no sabía si la comida realmente me
 sentaría fatal.
-Me estire el pelo y, justo cuando termine, alguien llamo a la
+Me estiré el pelo y, justo cuando termine, alguien llamo a la
 puerta de mi casa. Extrañada, fui a ver quién era... Y sonreí al verlo.
 - ¿Puedo subir? - Me pregunto.
 - Si... estoy sola...
@@ -336,7 +336,7 @@ español...
 - Junsu, yo les tengo que traducir – Me extrañe – Pero lo que
 tienes que hacer tu, majo, es aprender español si quieres hablar con
 mis padres y mi familia...
-- ¡Ah...! - Alzo un dedo y se quedó callado – Si, si...
+- ¡Ah...! - Alzó un dedo y se quedó callado – Si, si...
 De pronto se lanzó hacia mí, cayendo sobre el sofá y
 comenzó a besarme mientras me hacía cosquillas. Y nos tiramos así
 hasta que el móvil de él comenzó a sonar.
@@ -347,9 +347,9 @@ dejaba de acariciar mi cuerpo con la yema de su dedo de una
 manera muy especial. Realmente me estaba tentando a que no 
 367
 fuéramos a la cena esa noche, pero era algo muy importante para
-ambos – De acuerdo – Escuche cuando dejo de acariciarme y volví a
+ambos – De acuerdo – escuché cuando dejo de acariciarme y volví a
 la realidad – En un rato estaremos allí, ya sabes, nada de decir pollo,
-pavo o lo que sea ave, ¿vale? … … va, hasta luego mama – Colgó y
+pavo o lo que sea ave, ¿vale? … … va, hasta luego Mamá – Colgó y
 me miro intensamente.
 - ¿P-por qué me... miras así? - Comencé a ponerme nerviosa.
 Y sin decir nada, me agarro de la mano y me llevo hasta mi
@@ -359,12 +359,12 @@ dulcemente mientras recorría sus manos por mis costados. Lo agarre
 de las mejillas y luego pasee mis manos por su espalda. Aquello ya
 surgía solo, ya nos salía del alma... ya no tenía nada que me
 aprisionara el pecho para no poder hacerlo... o eso creía, vamos.
-- ¿Kiki? - Escuche la voz de Elena y eche a un lado a
+- ¿Kiki? - escuché la voz de Elena y eche a un lado a
 Junsu, quien se puso también muy nervioso. Escuchamos más voces
 - ¿Kiki, estas en casa?
 - ¡¡¡Sii!!! - Grite y Junsu me dio una patada - ¿Qué haces? -
 Dije flojo – Estoy aquí...
-- Si, y yo también – Susurro con un puchero – Y medio en
+- Si, y yo también – susurró con un puchero – Y medio en
 bolas... y con el rollo cortado.
 - Eso es lo de menos, babo – Reí – Vístete y todo
 solucionado.
@@ -386,7 +386,7 @@ deambulaban por ahí.
 y se cruzó de brazos, me miro de reojo. Estaba muy sonrojado -
 ¡¡Hay, madre, os hemos arruinado la fiesta!!
 Y todas en la puerta riéndose. Yo, me canse de la bromita y
-comencé a tirar cojines hacia la puerta. Escuche algo de Elena
+comencé a tirar cojines hacia la puerta. escuché algo de Elena
 que hizo que Junsu diera un respingo y yo apretara los puños.
 - ¡¡Le he visto el culo!! - Junsu me miro con interrogación, ya
 que lo había dicho en español.
@@ -407,7 +407,7 @@ camiseta y lo mire, el volteo con rapidez la cabeza.
 al suelo, cuando sentí sus manos recorrer mi espalda, que en ese
 momento estaba sin nada. Me puse tensa - ¿Que... que haces? - Le
 pregunte.
-- Acariciar tu espalda – Me susurro en el oído.
+- Acariciar tu espalda – Me susurró en el oído.
 - ¿A ti no te habían cortado el rollo? - Trague lentamente.
 - Si, pero solo con verte... - Beso mi hombro.
 - Junsu... que están las chicas – Y yo estaba cada vez más
@@ -497,7 +497,7 @@ bien?
 - Por ahora – Resople – Oye, ¿tú vas a salir con Sanghun?
 - Me han llamado – Asintió – Así que saldré un rato para
 dejaros a los seis solos.
-- A ver si te echas novia, hyung – Susurro Junsu entre risitas.
+- A ver si te echas novia, hyung – susurró Junsu entre risitas.
 - Bueno, no tengo prisa dongsen-ah – Le guiño un ojo – Tu
 hyung sabe manejar las cosas...
 - Ya... - Le dio un suave golpe en la espalda y se marchó a la
@@ -581,7 +581,7 @@ dedos sobre su suave y corto pelo, cogiendo de la nuca y
 acercándolo hacia mí con pasión. Solo nos separamos para coger un
 poco de aire.
 - Tengo algo... que le he cogido prestado a alguien... - Me
-susurro a escasos centímetros de mi boca - ¿Te apetece que
+susurró a escasos centímetros de mi boca - ¿Te apetece que
 vayamos?
 - Ahora mismo... me opongo a pocas cosas mientras tu estés
 conmigo – Dije sin ser partícipe de una razón lógica.

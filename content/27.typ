@@ -38,7 +38,7 @@ mi extendiendo su mano, que se la cogí cuando estuvo cerca de mí –
 Estoy muy feliz.
 - ¿Estas feliz? - Me sorprendí.
 - Si – Agacho la cabeza – Tus palabras han calado hondo en
-muchos corazones... - La alzo y sonrió – Y Yoochun me ha pedido
+muchos corazones... - La alzó y sonrió – Y Yoochun me ha pedido
 que le disculpes por lo que te dijo en España.
 - Bueno... - Desvié la mirada.
 - Las fans nos han pedido perdón a nosotros y a Elena –
@@ -53,7 +53,7 @@ me abrazo y me dio un beso en la cabeza. De verdad que no podía
 parar de llorar, estaba soltando todo lo que tenía dentro en los
 brazos de la persona a la que realmente quería. Cuando se lo
 proponía, el mundo no era tan cruel conmigo.
-Esa noche quede con Junsu y fuimos a pasear por el río han,
+Esa noche quedé con Junsu y fuimos a pasear por el río han,
 que por la noche estaba iluminado y era bien bonito. Hablamos de
 muchas cosas, y entre ellas, lo feliz que le hacía que yo fuera la
 agente que los acompañaría por Europa en su nueva gira, que se
@@ -87,7 +87,7 @@ sobre la mesita de cristal.
 problemas, pero se han reducido, ya que muchas se han disculpado
 con nosotras.
 - ¡¡Eso es genial!! - Jane dio varios saltos - ¡¡Kiki ha
-cambiado el mundo!! - Alzo un puño.
+cambiado el mundo!! - Alzó un puño.
 - Hemos venido personalmente a agradecértelo – Sonrió
 Taeyeon – Yo, como líder de las SNSD, os invito a las cinco a comer
 mañana con nosotras.
@@ -178,7 +178,7 @@ te toque la nariz – La señalo y la mire.
 - Se te nota – Dijo Jane con gesto de preocupación -
 ¿Duermes bien?
 - Anoche dormí genial – Le dije.
-- Faltaba yo – Susurro Junsu, lo que causo muchos gritos
+- Faltaba yo – susurró Junsu, lo que causo muchos gritos
 entre los presentes. Gritos y risas. Junsu se llevó un golpe de
 Changmin en el brazo – Ok, era broma... lo siento...
 - … - Lo mire de reojo – Estrés acumulado... Y ahora vamos a
@@ -254,7 +254,7 @@ que más deseaba en el mundo, es que ninguna de las fans odiara a
 las chicas por lo que iría a ocurrir en los próximos episodios. Era
 capaz de verdad de cancelar la emisión del drama si eso causaba
 más daños a mis amigas. Le envié un mensaje de cariño a Junsu y
-me quede dormida con el teléfono en mano.
+me quedé dormida con el teléfono en mano.
 El domingo por la mañana recibí una llamada muy extraña.
 Conteste el teléfono sin estar muy en mis cabales, pero su respuesta
 hizo que me despejara del todo.
@@ -293,7 +293,7 @@ la cocina, donde como siempre, vi a Hana tomando café hablando
 con Elena.
 - ¿Qué haces despierta, peque? - La mire.
 - Tu móvil, ¿qué va a ser? - Suspiro - ¿Quién te ha llamado?
-- … - Y me quede pensando, ninguna de las chicas lo sabía,
+- … - Y me quedé pensando, ninguna de las chicas lo sabía,
 iba siendo momento de contarles todo – Me han llamado de la
 Rhythm Zone.
 - ¿Qué? - Hana flipó – Esa es la compañía de los niños en
@@ -382,7 +382,7 @@ de fondo – Mira que Changmin es pesado.
 - Es un cotilla – Bufo – Pero bueno, espera Kiki... Changmin, 
 420
 déjame hablar tranquilo por teléfono – Dijo con un suspiro,
-Changmin le contesto algo, pero no lo escuche – Si, ahora voy a
+Changmin le contesto algo, pero no lo escuché – Si, ahora voy a
 cenar... - Hizo una pausa y resoplo – Que sí, que si... ¿Kiki?
 - Si, dime – Conteste.
 - Que voy a cenar... Yoochun ha practicado en la cocina y nos
@@ -399,7 +399,7 @@ coreana que se llamaba Kimchi jjigae. Tenía buena pinta, pero
 estaba claro que las verduras yo no me las comería. Después de la
 deliciosa cena... si, había que admitir que la dichosa cena estaba
 muy buena, me arreglé y me preparé para irme a la reunión con
-Yunho. Cogí el autobús y en menos de media hora estaba en la SM,
+Yunho. Cogí el metro y en menos de media hora estaba en la SM,
 di un par de pasos y un coche me pitó, era un A4 totalmente negro
 con cristales en negro, pero pude ver claramente que era Yunho, ya
 que el cristal principal no estaba negro. Sonreí.

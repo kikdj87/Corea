@@ -729,7 +729,7 @@ Lo cogí agradecida y algo sonrojada. Sinceramente, no tenían por qué haberme 
 
 Entre risas ayudamos a los chicos a recoger la mesa, a limpiar un poco la cocina y el comedor. A las nueve y media estábamos sentados por el sofá y en el suelo hablando de yo que sé, de mil cosas. La verdad es que las chicas se habían soltado bastante y se comportaban de una manera natural con ellos. Y ellos eran como normalmente solían ser, divertidos, agradables y muy cariñosos.
 
-Pronto se hizo la hora de volver a casa y Yunho se volvió a ofrecer para llevarnos en el coche grande. Hablamos de que nos hacía falta un coche, pero yo me negué en rotundo. Sinceramente, andando o en autobús se iba muy, pero que muy bien. Los otros cuatro nos acompañaron hasta el ascensor.
+Pronto se hizo la hora de volver a casa y Yunho se volvió a ofrecer para llevarnos en el coche grande. Hablamos de que nos hacía falta un coche, pero yo me negué en rotundo. Sinceramente, andando o en metro se iba muy, pero que muy bien. Los otros cuatro nos acompañaron hasta el ascensor.
 
 ---¡Nos vemos mañana! ---canturreó Junsu sonriente --- Que espero saber quién será Alicia.
 

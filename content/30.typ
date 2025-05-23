@@ -187,7 +187,7 @@ algo – Dejé la taza sobre el poyete - ¿Qué pasa con Jaejoong?
 - Sé que has dejado a Sanghun por él – Suspiré triste - ¿Por
 qué no le dices nada?
 - ... - Frunció el ceño – Yo no le voy a decir nada – Parecía
-molesta – Además, no dejé a Sanghun por él, que te quede claro.
+molesta – Además, no dejé a Sanghun por él, que te quedé claro.
 Simplemente no me llenaba, ya está.
 - Perdón – Agaché la cabeza – Estaba preocupada por ti.
 - Pues no tienes nada de qué preocuparte, todo está bien –

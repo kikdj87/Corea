@@ -249,9 +249,9 @@ Con el teléfono en la oreja nos quedamos los dos durante un momento en silencio
 
 ---Tengo ganas de verte ---dije en un susurro.
 
----Y yo ---sonrió --- Bueno, hasta mañana mi Kikita, te quiero.
+---Y yo. Y por cierto, no olvides la canción _picture of you_ ---se rió entre dientes --- Bueno, hasta mañana mi Kikita, te quiero.
 
----Yo también te quiero mi Junsu ---él rió y yo no pude evitar reí --- Hasta mañana.
+---Yo también te quiero mi Junsu ---asentí cual tonta al recordar la canción --- Hasta mañana.
 
 Colgué y miré el teléfono. Con unas buenas palabras se solucionó todo, había que ser perseverantes hasta el fin... todo trabajo duro tiene su recompensa al final. Sonreí y abrí la puerta. Allí tenía a esas tres cotillas con la oreja puesta en la puerta, disimularon.
 
@@ -271,4 +271,4 @@ Colgué y miré el teléfono. Con unas buenas palabras se solucionó todo, habí
 
 ---Ya te vale ---la señalé recordando la conversación con Jae de la tarde y nos echamos a reír.
 
-Enseguida nos fuimos a dormir, sobre todo yo, que me esperaba un lunes horrible, agotador y ajetreado por culpa de todo el trabajo. Me eché sobre la cama, me abracé a la almohada y tardé en quedarme dormida pensando en Junsu, ya que me dormí cuando el reloj dio las dos de la mañana.
+Enseguida nos fuimos a dormir. Y más yo, que me esperaba un lunes horrible, agotador y ajetreado por culpa de todo el trabajo. Me eché sobre la cama, me abracé a la almohada y tardé en quedarme dormida pensando en Junsu, ya que me dormí cuando el reloj dio las dos de la mañana.

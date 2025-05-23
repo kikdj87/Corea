@@ -58,7 +58,7 @@ Hana.
 - A mí, lo que me sorprende es que haya venido mi madre...
 - De pronto me puse en pie y comencé a reírme como una loca -
 ¡¡Ahora mi padre tendrá que comer pollo!!
-- La tomamos como caso perdido – Susurro R.
+- La tomamos como caso perdido – susurró R.
 - …si... - Dijeron las otras.
 - Bueno, bueno – Me senté normal y fui a la cocina – Voy a
 traer tilas para todas...
@@ -88,13 +88,13 @@ consecuencias que tenga el hecho de que salgamos juntos.
 - También es cierto... - Comenzó a decir Hana – Que
 Changmin no es como Junsu – Resoplo – Es más callado, más
 cuidadoso y desde luego, no tendrá la lengua tan larga...
-- Otras cosas si – Susurro Elena y todas, comenzamos a
+- Otras cosas si – susurró Elena y todas, comenzamos a
 reírnos.
 - Ya, en serio... - Dijo Hana – Changmin me pregunto qué era
 lo que tú sentías hacia él... no supe responderle porque no lo sabía,
 la verdad...
 - Bueno... quisiera hablar de este tema con Changmin –
-Susurro R.
+susurró R.
 - Pero si habláis de todo menos de eso – Se quejó Jane – De
 la universidad, de los estudios... solo falta que habléis de las raíces
 cuadradas...
@@ -116,14 +116,14 @@ caso, Jane... le gustas, pero no te piensa decir nada...
 Yunho!!
 - Tranquila... - R acaricio su cabeza – Salte de la SM y saldrás
 con él.
-- ¡¡...!! - sonrió y alzo un dedo, luego le dio un cogote en la
+- ¡¡...!! - sonrió y alzó un dedo, luego le dio un cogote en la
 frente – Ni loca, so babo...
 - Entonces no te quejes – Se echó a reír.
 - Nenitas – Dije haciendo palmas – Hora de ir a dormir...
 mañana tendremos un día muy, muy ajetreado.
 - ¡¡Si señora!!
 Y, sorprendentemente, sin más quejas, se marcharon a
-dormir. Yo me quede maravillada de su obediencia y me fui a mi
+dormir. Yo me quedé maravillada de su obediencia y me fui a mi
 cama. Esa noche soñé que hacia el amor con Junsu...
 A la mañana siguiente fue todo un poco caos. Mi teléfono
 comenzó a sonar bien temprano, se me olvidó quitar el sonido así
@@ -133,7 +133,7 @@ el teléfono y Hana la puerta.
 - ¿Diga? - Conteste al estruendoso aparato.
 - María, soy Lee Sooman, he mandado a su casa unas
 estilistas para que os relajéis y para que os arregléis...
-- ¿Eh? - Me quede un poco loca a lo que estaba diciendo.
+- ¿Eh? - Me quedé un poco loca a lo que estaba diciendo.
 341
 - La presentación es a las cinco, no lo olvides...
 - No se preocupe señor, no nos olvidaremos... - Y colgamos -
@@ -157,7 +157,7 @@ volumen permitido. Y, sonreí ampliamente cuando las tres
 dormijosas se asomaron al comedor.
 - ¿Que es todo este escándalo? - Pregunto Elena.
 - Hay que arreglarse y ponerse guapas para esta noche... -
-Hana alzo un dedo.
+Hana alzó un dedo.
 - … - Yo baje el sonido de la música – Que no es esta noche,
 es a las cinco...
 Y entonces empezó el salón de belleza. Mientras tanto:
@@ -186,7 +186,7 @@ guapas... tu especialmente para mí... sin caso, pues eso, os traigo
 pollo porque a todo el mundo le gusta el pollo. A mí me gusta el
 pollo y a Yoochun también. Aunque Changmin y Jae siempre se
 quejan... Pues eso, disfrutad. Te quiero Kiki” - Termine de leer la nota
-y se hizo el silencio en el salón – Que tonto – Me sonroje.
+y se hizo el silencio en el salón – Que tonto – Me sonrojé.
 - Pues nada, a comer – Elena empezó a comer.
 Y así comimos todas. Incluso había comida suficiente para
 las que trabajaban allí arreglándonos. Y ese fue nuestro almuerzo. Y
@@ -213,7 +213,7 @@ Cuando el desapareció con las chicas, me sumí en un mar de
 incomodidades, dudas y nervios... Hasta que Dongsea se acercó a
 mí.
 - Hola – sonrió – Vas preciosa...
-- Gracias... - Me sonroje mucho.
+- Gracias... - Me sonrojé mucho.
 - Bueno, que... ¿nerviosa? - Me pregunto.
 - Estoy que muerdo las paredes – Respondí con una radiante
 sonrisa, él se sorprendió – Si, estoy muy nerviosa...
@@ -301,7 +301,7 @@ ocurriendo.
 - Siwon y Yoochun – Respondió Yunho muy atento, eso sí,
 sin levantar la cabeza.
 Y el coche se detuvo por completo. Trague saliva y Junsu me
-agarro de la mano, sonrió y la beso. Me susurro que todo estaría
+agarro de la mano, sonrió y la beso. Me susurró que todo estaría
 bien y se bajó del coche el primero con Jane. Se escucharon
 muchísimos gritos y los flashes se veían por todos lados. Luego se
 bajaron Elena y Yunho, iban muy elegantes ambos. Y por último
@@ -470,7 +470,7 @@ prensa y vi como Yunho hablaba con ellos para calmarlos. Junsu se
 me quedo mirando, pero alguien me impedía ir hacia él. Alce la
 cabeza.
 - ¿Yoochun? - Me soltó.
-- Ese Junsu es idiota – Susurro junto con un suspiro - ¿A
+- Ese Junsu es idiota – susurró junto con un suspiro - ¿A
 quién se le ocurre gritar eso de esa manera?
 - Solo a Junsu – Sonreí y le mire a los ojos. No me estaba
 mirando a mí aunque lo intentaba – Oye... yo... quiero pedirte
@@ -479,7 +479,7 @@ disculpas.
 Unos ojos muy oscuros que me envolvieron entera. En ese momento
 fui yo la que desvió la mirada – Por... no sé, lo siento Yoochun.
 - María – Era mi madre - ¿Quién es este chico?
-- Ah, mama... papa – Los mire, al igual que Yoochun – Ah...
+- Ah, Mamá... papá – Los mire, al igual que Yoochun – Ah...
 él es Yoochun, un compañero...
 - Oh – Mi madre lo señalo - ¿No me digas que es...?
 - Encantado, señora – Yoochun se inclinó y hablo en español,
@@ -487,20 +487,20 @@ mi madre se maravilló.
 351
 - Al final, conseguiste que fuera tu novio – Dijo entre risas.
 Yoochun y yo nos miramos.
-- Eh... no mama, te equivocas, Yoochun no...
+- Eh... no Mamá, te equivocas, Yoochun no...
 - Yo no soy su novio – Dijo muy educado – Simplemente
 compañeros de trabajo.
 - Oh, vaya, lo siento – Miro a mi padre – Mi hija tenía su
 habitación forrada con fotos tuyas por todos lados...
-- Mama... - La mire con odio.
+- Mamá... - La mire con odio.
 - Cierto... Aun conservas ese álbum de fotos, ¿no? - Añadió
 mi padre.
 - Basta...
 - Oh, María – Yoochun me miro con sonrisa... ¿sádica? – Yo
 quiero verlo...
-- Papa, eso que comes esta echo solo de pollo... - Di media
+- papá, eso que comes esta echo solo de pollo... - Di media
 vuelta.
-Escuche como mi padre lo escupía del susto y como
+escuché como mi padre lo escupía del susto y como
 Yoochun le afirmaba que de verdad, eso no llevaba pollo. De pronto
 Hana me arramblo.
 - ¿Has visto a Yoochun? - Me pregunto.
@@ -560,7 +560,7 @@ Yoochun... y mis padres.
 - Fijo que al Junsu – Dijo Yoochun entre risas en español.
 - Ah... Yoochun – Dijo de pronto la madre de Hana –
 Piénsate mi propuesta.
-- Mama – Hana estaba muy roja.
+- Mamá – Hana estaba muy roja.
 - ¿De qué se trata? - Pregunte, cosa que hice mal, Hana me
 miro con odio.
 - Veras, quiero a Yoochun como yerno – Dijo.
@@ -568,7 +568,7 @@ miro con odio.
 sonrisa.
 - Le he dicho que se lo piense – Rió la mujer.
 - No hace falta que lo sepas, Yoochun – Dijo Hana roja –
-Mama, ya vale...
+Mamá, ya vale...
 - ¿Se te ha pasado el enfado, hija? - Me pregunto mi madre.
 - No... - Los mire – Fijo que le habéis soltado algún rollo de
 los míos...
@@ -591,7 +591,7 @@ por todos lados, de los pies a la cabeza. Yo temblaba por dentro, no
 sabía cómo iban a reaccionar, aunque había visto la buena 
 354
 aceptación que habían tenido con Yoochun.
-- Mama, papa... - Me puse tensa – Vamos a un lugar privado.
+- Mamá, papá... - Me puse tensa – Vamos a un lugar privado.
 - ¿Qué? - Dijeron mis padres. El que de Junsu fue un “boh”
 en coreano.
 - Digo, los tres – Rectifique y mire a Junsu – Que vamos a un
@@ -620,7 +620,7 @@ lejano... ¿Iría bien? Entonces alguien me cogió de la mano.
 - María, hija – Era mi madre – Nosotros nos vamos al hotel,
 dile que ya nos vemos mañana a la hora de la cena...
 - Vale – Se los traduje y los padres de Junsu se marcharon,
-dejándonos a los cuatro solos – Por cierto, mama, aquí se cena a las
+dejándonos a los cuatro solos – Por cierto, Mamá, aquí se cena a las
 seis...
 - ¿A las seis? - Mi padre pregunto y yo asentí – Pues a las
 seis.
@@ -632,7 +632,7 @@ cuides muy bien de nuestra hija...
 - … - Junsu sonrió cuando se lo traduje – Descuide, la
 cuidare muy bien – Y me cogió de la mano.
 Traduje eso y mi padre miro nuestra mano. Enseguida nos
-despedimos de ellos y al fin me quede sola con Junsu. Lo abracé
+despedimos de ellos y al fin me quedé sola con Junsu. Lo abracé
 bien fuerte, tanto, que él se sorprendió y también me abrazo.
 - ¿Qué ocurre? - Me preguntó.
 - Nada... necesitaba abrazarte, simplemente – Susurré y él
@@ -661,7 +661,7 @@ atraganta...
 - ¿Buena intención? - Me volví a enfadar y me encare con 
 356
 Yoochun – Ni de coña, Yoochun. Mi madre sabía perfectamente
-que... que... - Y me quede muda con el dedo alzado enfrente de su
+que... que... - Y me quedé muda con el dedo alzado enfrente de su
 cara – Olvídalo.
 - … - El suspiró y desvió la mirada.
 - Hora de explicar que pasa – Dijo Junsu, todos se habían

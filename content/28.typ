@@ -19,7 +19,7 @@ Yunho. Yoochun se marchó del comedor tras Junsu y seguía el
 silencio ahí. Yo comencé a sentirme incómoda – Quiero ir a casa,
 Yunho.
 - Ahora no... Espera – No me soltaba del hombro – No
-quiero que esto se quede así... siéntate mejor.
+quiero que esto se quedé así... siéntate mejor.
 Me senté al lado de Jae y apreté con fuerza las manos sobre
 mis rodillas. Miré de reojo a Changmin, que seguía mirando el libro,
 pero con una mirada aún más tensa que antes. Ojalá supiera lo que

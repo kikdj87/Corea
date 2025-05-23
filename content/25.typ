@@ -23,7 +23,7 @@ sonó.
 - ¿Estas bien? - Y me preocupo la forma en la que estaba
 hablando.
 - Yo sí... - Suspiro – Escúchame Kiki, no salgas de casa...
-- ¿Qué? - Me quede un poco en shock - ¿Que ha pasado,
+- ¿Qué? - Me quedé un poco en shock - ¿Que ha pasado,
 Heechul?
 - Mira, resumidamente... - Dijo – Un grupo de fans te vieron
 en casa de Yoochun, vieron algo malo y ahora no eres la más
@@ -41,7 +41,7 @@ caer sin que yo me diera cuenta hasta que mire.
 por el espejo - ¿Estas bien? ¿Te has hecho daño? - Miro mi mano -
 ¿Con quién has hablado...?
 No dije nada, me di la vuelta y la abrace, estallando a llorar
-como una niña. De pronto escuche pasos y las demás estaban a mi
+como una niña. De pronto escuché pasos y las demás estaban a mi
 alrededor preguntándome por que lloraba... y yo no podía contestar,
 solo tenía en mente las palabras que Heechul el escandaloso, me
 había dicho muy serio. Me seque las lágrimas con las mangas de la
@@ -52,7 +52,7 @@ preocupación.
 cara.
 - ¿Que te ha dicho? - Pregunto Elena – Mira que nos estas
 preocupando mucho...
-- Es cierto Kikita... - Susurro Jane con un puchero el cual no
+- Es cierto Kikita... - susurró Jane con un puchero el cual no
 vi, pero supe que estaba ahí.
 - Bien... - Me di la vuelta y me seque la cara con la toalla –
 Me ha pedido que no salga de casa... Algo vieron las Cassiopeia en
@@ -61,7 +61,7 @@ marrón.
 - … - Las cuatro se quedaron en silencio y se miraron. Hana
 tomo la palabra al fin - ¿Qué hiciste, Kiki?
 - Nada... yo no salí de la casa en ningún momento. Me
-quede en cama, estaba mareada y con dolor de nariz... - Intentaba
+quedé en cama, estaba mareada y con dolor de nariz... - Intentaba
 acordarme de algo – Salí de su casa cuando era de noche, no había
 nadie y yo no parecía una chica saliendo de casa de Yoochun... Yo...
 no... - Mas lagrimas cayeron - … hice nada...
@@ -75,10 +75,10 @@ expectantes. De pronto se asomó Elena, con cara muy enfadada.
 - Kiki, sal – Me dijo – Por favor...
 Extrañada, salimos de la habitación y me encontré con
 Heechul con una gran sonrisa, con una botella de vino en la mano
-izquierda y dos copas en la derecha. HangNeng, que estaba detrás,
+izquierda y dos copas en la derecha. Hangneng, que estaba detrás,
 sonreía. Al igual que Siwon, Kangin y YeSung.
 - ¡Sorpresa! - Grito Heechul alzando los brazos.
-Yo me quede muda. Totalmente muda. Muda, sorda... y solo
+Yo me quedé muda. Totalmente muda. Muda, sorda... y solo
 tenía ojos para Heechul y su radiante sonrisa. Di unos pasos hasta su
 dirección y le solté un bofetón. Él como acto reflejo se llevó la mano
 derecha a su cara y las copas cayeron al suelo haciendo un gran
@@ -91,7 +91,7 @@ de mí – Espera...
 atrás.
 - ¿Por qué le has pegado? - Más seguro, se acercó a mí – No
 lo ha hecho con mala intención...
-- Intenta recordar por que, antes del estreno de SM me tire
+- Intenta recordar por que, antes del estreno de SM me tiré
 un mes sin pisar la compañía – Dije muy seria, alzando un dedo -
 ¿Puedes recordar?
 - … - Asintió en silencio.
@@ -107,10 +107,10 @@ no estábamos muy de acuerdo.
 cosa? - Me acerque a él – Tu sabes muy bien lo mal que lo pase en
 aquel tiempo... y se te ocurre esa idea... Heechul, ¿tu cabeza no
 riega bien o qué?
-- Va a ser que no – Escuche de fondo a Kangin.
+- Va a ser que no – escuché de fondo a Kangin.
 - Lo siento mucho...
 Se giró, cogió la botella de vino y salió de la casa sin decir
-nada y cerrando la puerta a su espalda. HangNeng salió tras él y los
+nada y cerrando la puerta a su espalda. Hangneng salió tras él y los
 demás se quedaron extrañados por la actuación de Heechul.
 - Se lo merece – Bufo Hana enfadada – Con eso no se
 juega...
@@ -120,7 +120,7 @@ una grata sorpresa.
 - De grata nada – Dijo Jane.
 - Lo siento mucho, de verdad María – Siwon me volvió a
 mirar – Si quieres nos vamos...
-- No hace falta – Susurro Jane.
+- No hace falta – susurró Jane.
 - Si, mejor – Dije y la rubia me miro con un puchero – Se me
 han quitado las ganas de salir.
 Me encerré en mi habitación y apague el teléfono. Se me
@@ -140,7 +140,7 @@ han querido contármelo...
 - Pues... - Y se lo conté todo, aunque cuando termine, me
 arrepentí un poco de contarle toda la verdad, se enfadó muchísimo
 – Junsu, cálmate...
-- ¿Que me calme? - Grito y escuche voces que se quejaban
+- ¿Que me calme? - Grito y escuché voces que se quejaban
 de los gritos de Junsu - ¡¡Ese Heechul se las verá conmigo!! ¿A caso
 es idiota? ¿Cómo se le ocurre hacer algo así?
 - No seas cruel... - Lo calme – Ya le he gritado yo... creo que
@@ -151,14 +151,14 @@ quiero no se juega... – Comenzó a decir cosas incoherentes – Luego
 me dice el a mí que soy un peligro para ti... si el solo te causa
 problemas...
 - Junsu...
-- “Junsu, cállate o te pongo un tapón” - Escuche la voz de
+- “Junsu, cállate o te pongo un tapón” - escuché la voz de
 Changmin al otro lado del teléfono - “¿Con quién narices hablas?” -
 Preguntó. Junsu contestó – Hablo con Kiki, que le han gastado una
 broma pesada – Dijo muy enfadado – Así que no me toques las
 narices, Changmin... ¿Kiki?
 - Si...
 - “Quita...” - Se escuchó un forcejeo, quejas de Junsu y
-suplicas de Changmin. Al final escuche el suspiro victorioso del
+suplicas de Changmin. Al final escuché el suspiro victorioso del
 menor – Bueno... ¿Qué ha pasado?
 - Eh... No es nada...
 - Ya claro... Junsu no me habla así porque no ha pasado nada
@@ -183,13 +183,13 @@ mejor que tu...
 caso a Changmin...
 - A ti te cae muy mal Heechul – Le dije – Pero ahora quiero
 relajarme... ¿Nos veremos mañana?
-- No – Me dijo y me quede algo impactada – Lo siento,
+- No – Me dijo y me quedé algo impactada – Lo siento,
 tenemos una entrevista con una revista y una sesión de fotos...
-- Vaya... - Me quede callada – Pues ya me llamas...
+- Vaya... - Me quedé callada – Pues ya me llamas...
 - Claro – Rió – Y tú no sufras más, que yo te... … Changmin,
-lárgate, ¿quieres? - Escuche unas risas y el cerrar de una puerta – Te
+lárgate, ¿quieres? - escuché unas risas y el cerrar de una puerta – Te
 quiero...
-- … - Me sonroje – Yo también.
+- … - Me sonrojé – Yo también.
 Salí de la habitación más relajada y disfrute de una noche
 entre risas con las chicas. Una noche divertida llena de juegos,
 olvidando la broma pesada de Heechul.

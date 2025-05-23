@@ -118,7 +118,7 @@ primero que decía desde que había llegado fuera del rodaje.
 - ¿Queréis algo de comer? - Pregunte.
 - Si, tenemos hambre...
 Fui a pedir lo que ellos me habían pedido y, mientras estaba
-en la cola, escuche a un par de chicas hablar entre ellas.
+en la cola, escuché a un par de chicas hablar entre ellas.
 - Esos son famosos – Le dijo una - ¿Recuerdas el grupo que
 te hable?
 - Cuál de ellos – Dijo la otra.
@@ -176,7 +176,7 @@ nosotros estábamos allí - ¿Estás seguro Yunho?
 - ¿Que ha pasado? - Heechul se puso en pie y capto su
 atención. Yoochun me miro y abrió mucho los ojos – Eh, ¿qué ha
 pasado?
-- Espera Heechul... - Yoochun alzo la mano – Repite Yunho...
+- Espera Heechul... - Yoochun alzó la mano – Repite Yunho...
 - Hizo una pausa, asintió un par de veces y me miro – Es un poco
 tarde para eso, la verdad – Otra pausa en la que hizo lo mismo –
 Vale, no tardaremos mucho en volver a Corea... Esto se tiene que
@@ -189,7 +189,7 @@ estas preocupando.
 - En realidad... esto paso hace un par de semanas – Y
 entonces me miro, yo me temía lo peor – Elena ha estado
 teniendo problemas con las Cassiopeia.
-- ¿Qué? - Me quede helada, ¿por qué no me lo había dicho?
+- ¿Qué? - Me quedé helada, ¿por qué no me lo había dicho?
 - Es por... cuando se besa con Yunho, ¿verdad?
 - Si – Asintió serio – Han llegado al extremo y mientras iba a
 la SM a grabar, tuvieron un percance en la estación de autobuses...
@@ -220,7 +220,7 @@ nerviosa por lo ocurrido... ¿y me lo habían estado escondiendo?
 ¿Por cuánto tiempo lo iban a esconder?
 Ni siquiera pude ir a ver a mis padres, enseguida nos fuimos
 a Corea, no podía dejar a Elena sola. Cuando se lo conté a Hana y
-a R, me dijeron que ya lo sabían y me quede realmente mal de ser la
+a R, me dijeron que ya lo sabían y me quedé realmente mal de ser la
 única que no sabía nada.
 - ¡¡No me lo puedo creer!! - Grite cuando me entere – O sea,
 que me lo escondéis para que no me preocupe...
@@ -248,7 +248,7 @@ ver si te escuchan.
 - Organiza una rueda de prensa para el viernes a las diez –
 Señale – Todo estará listo para ese día.
 Salí de allí que me hervía la sangre. Cuando puse un pie en
-la calle, me vi un cartel grande en un autobús del drama. Todo era
+la calle, me vi un cartel grande en un metro del drama. Todo era
 tan bonito... realmente la felicidad duraba poco.
 Dos noches después de que llegara y un día antes de la
 rueda de prensa llame a Junsu. Parecía que lo nuestro se había
@@ -258,7 +258,7 @@ adecuada – Me dijo serio – Se ha pasado mucho, tú no tienes la
 culpa.
 - Ya, pero ahora no puedo evitar sentirme mal – Solloce –
 Junsu te echo de menos...
-- Yo también – Susurro – Mañana por la noche no tengo
+- Yo también – susurró – Mañana por la noche no tengo
 nada que hacer, ¿quieres que vaya a verte?
 - No vengas a casa – Dije con voz débil – Mejor nos vemos
 en otro sitio, ¿vale?

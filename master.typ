@@ -64,3 +64,11 @@
 -En el 17 se habla del resumen del drama
 
 -18/59 hay algo entre Hana y Jaejoong porque lo deja caer ella
+
+-el drama nuevo lo ha hecho un equipo y para el cap 19 ya está terminado
+
+-19 primera sesión del psicólogo
+
+-En el capitulo 18 hay un momento de tensión entre Kiki y Junsu que no se trata hasta el principio del capitulo 20
+
+-El final del capítulo 20 es... equis de.
