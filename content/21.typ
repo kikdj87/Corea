@@ -2,7 +2,7 @@
 
 Me desperté cuando un fino rayo de sol me dio en la cara.
 
-Me moví, me gire y sentí que había alguien a mi lado. Abrí los ojos, estaba acostada en una cama tapada por una colcha de plumas y totalmente desnuda. Mire a mi lado y me encontré a Junsu dormido, mire bajo la sabana y me lo encontré en la misma situación que yo. Me sonrojé y quise gritar, pero me contuve.
+Me moví, me gire y sentí que había alguien a mi lado. Abrí los ojos, estaba acostada en una cama tapada por una colcha de plumas y totalmente desnuda. miré a mi lado y me encontré a Junsu dormido, miré bajo la sabana y me lo encontré en la misma situación que yo. Me sonrojé y quise gritar, pero me contuve.
 
 Sinceramente la cama esa era minúscula y estaba rodeada de otras camas, pero se estaba tan a gusto así, que abrace a mi pequeño Junsu y lo bese con un dulce beso en los labios. Se estremeció y me rodeó el cuerpo. Reí nerviosa sintiendo cada parte de su piel contra la mía.
 
@@ -26,7 +26,7 @@ Eso podía ser la cursilada más grande que había escuchado en mucho tiempo, pe
 
 ---¡Junsu!
 
----Bah, estamos solos. Además... ---se sonrojo mirándome con media sonrisa --- Lo que tenías que ver ya lo has visto.
+---Bah, estamos solos. Además... ---se sonrojó mirándome con media sonrisa --- Lo que tenías que ver ya lo has visto.
 
 Se marchó dejándome con la boca abierta. Salí de la cama, cogí lo primero que pille sobre una cama y me lo coloque. Era una camiseta grande que olía bastante bien a Yoochun. Me sonrojé y quise quitármela con rapidez, pero Junsu llego con mi teléfono sonando y con el suyo en la oreja. Evite mirar al suelo y mantuve mi vista fija en sus ojos. El salió de la habitación y yo conteste.
 
@@ -38,7 +38,7 @@ Se marchó dejándome con la boca abierta. Salí de la cama, cogí lo primero qu
 
 ---¿Todo bien con Junsu? ---no me dejó hablar --- Bueno, Yunho está hablando con él y parece que todo ha ido bien.
 
----Babo, cállate ---me sonrojé mucho y me senté sobre la cama. Me mire el reloj --- ¿Por qué me llamas tan temprano?
+---Babo, cállate ---me sonrojé mucho y me senté sobre la cama. Me miré el reloj --- ¿Por qué me llamas tan temprano?
 
 ---¿Has dormido? ---le dije que si --- Oh, qué pena, eso es que no... ---paró un momento y rió --- Junsu no ha dormido.
 
@@ -52,13 +52,13 @@ Se marchó dejándome con la boca abierta. Salí de la cama, cogí lo primero qu
 
 ---No ---me sonrojé y sin querer lo revisé entero con la mirada y él se dio cuenta.
 
----Kiki, no me mires así que me sonrojo ---desvié la mirada y él se echó a reír --- Eres muy linda, ¿sabes? ¡Ah! Esa camiseta que llevas es de Yoochun.
+---Kiki, no me mires así que me sonrojó ---desvié la mirada y él se echó a reír --- Eres muy linda, ¿sabes? ¡Ah! Esa camiseta que llevas es de Yoochun.
 
 ---¿A si? ---me hice la loca --- Es lo primero que he pillado, lo siento.
 
 ---No pasa nada. Los chicos van a venir, vamos a recoger esto un poco.
 
-Nos vestimos, recogimos la habitación, el comedor y desayunamos ramen a petición de Junsu. A la media hora llegaron los chicos, y no los cuatro solos, sino que mis cuatro amigas venían con ellos. Por un momento la situación fue muy incómoda. Junsu y yo veíamos la tele mientras comíamos, pero es que seis de ellos nos miraban con una sonrisa muy cómplice. Mire a Yoochun, que había desviado la mirada para posarla sobre la televisión y Changmin lo miraba a él.
+Nos vestimos, recogimos la habitación, el comedor y desayunamos ramen a petición de Junsu. A la media hora llegaron los chicos, y no los cuatro solos, sino que mis cuatro amigas venían con ellos. Por un momento la situación fue muy incómoda. Junsu y yo veíamos la tele mientras comíamos, pero es que seis de ellos nos miraban con una sonrisa muy cómplice. miré a Yoochun, que había desviado la mirada para posarla sobre la televisión y Changmin lo miraba a él.
 
 ---¿Habéis dormido bien? ---preguntó Hana sentándose a mi lado.
 

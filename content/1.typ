@@ -155,7 +155,7 @@ El hombre fue muy bueno y simpático conmigo, me dijo que buscaban una buena his
 
 ---Gracias.
 
----Empiezas mañana ---estiró la mano hacia la mía y la estreché --- Nos veremos por los pasillos. ¡Ah!, antes de que te vayas ---me cogió del  brazo y me llevó hasta un armario, lo abrió y buscó --- Esta será tu talla ---me dio una bolsa de las miles que habían ahí dentro --- Si no lo es, mañana vienes y lo cambias. Es tu uniforme de secretaria ¡Nos vemos!
+---Empiezas mañana ---estiró la mano hacia la mía y la estreché --- Nos veremos por los pasillos. ¡Ah!, antes de que te vayas ---me cogió del  brazo y me llevó hasta un armario, lo abrió y buscó --- Ésta será tu talla ---me dio una bolsa de las miles que habían ahí dentro --- Si no lo es, mañana vienes y lo cambias. Es tu uniforme de secretaria ¡Nos vemos!
 
 ---Adiós... ---me despedí y me fui al hotel con la bolsa en la mano.
 

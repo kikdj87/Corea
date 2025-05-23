@@ -128,7 +128,7 @@ Miré a Kim Dongsea y volví la vista hacia los otros, por suerte aún no se hab
 
 ---¡Ma...!
 
-Supuse que me llamó por mi nombre, pero yo salí con rapidez del local. Mire hacia atrás y vi que ni Kim Dongsea ni Yoochun habían salido, suspiré profundamente y me apoyé en una farola.
+Supuse que me llamó por mi nombre, pero yo salí con rapidez del local. miré hacia atrás y vi que ni Kim Dongsea ni Yoochun habían salido, suspiré profundamente y me apoyé en una farola.
 
 ---Mierda... mierda, mierda ---me pasé la mano por la cara, hablando en mi idioma --- Que haces Kiki, ¿por qué huyes de él?
 

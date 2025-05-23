@@ -238,7 +238,7 @@ Cuando los Super Junior se marcharon y las SNSD también, nosotros entramos de n
 
 Y todos limpiaron entre risas mientras Yunho y yo veíamos como limpiaban, si es que me dejaba, ya que no dejaba de tocar mi costado con su dedo y eso me causaba cosquillas. Enseguida, Hana, Jae y Changmin salieron de la habitación, y nosotras nos marchamos.
 
-Al igual que habíamos llegado, Junsu nos llevó en el coche junto con Juno, pero me di cuenta que íbamos solo nosotros tres al coche, las otras cuatro se fueron con Yunho por petición de Junsu, que quería hablar con nosotros a solas. Y el hablar con nosotros a solas, termino en su casa veinticinco minutos después. Yo lo mire con miedo y mi cuerpo empezó a temblar solo.
+Al igual que habíamos llegado, Junsu nos llevó en el coche junto con Juno, pero me di cuenta que íbamos solo nosotros tres al coche, las otras cuatro se fueron con Yunho por petición de Junsu, que quería hablar con nosotros a solas. Y el hablar con nosotros a solas, termino en su casa veinticinco minutos después. Yo lo miré con miedo y mi cuerpo empezó a temblar solo.
 
 ---Junsu, no sé si...
 
@@ -258,7 +258,7 @@ Me agarre a la camiseta de Junsu por la espalda y caminamos por el conocido cami
 
 ---Pero bonito ---sonrió.
 
-Le di un golpe en el brazo y entramos a su casa. Nos quitamos los zapatos en la entrada y yo lo mire todo admirada. Era una casa acogedora y más pequeña de lo que se veía por fuera, impresionaba de lo bonita y bien decorada que estaba, y como era de esperar habían muchas fotos de Junsu. Yo seguía agarrada a su espalda, ralentizando el paso, Juno entro al comedor antes que nosotros y nos preparó el terreno.
+Le di un golpe en el brazo y entramos a su casa. Nos quitamos los zapatos en la entrada y yo lo miré todo admirada. Era una casa acogedora y más pequeña de lo que se veía por fuera, impresionaba de lo bonita y bien decorada que estaba, y como era de esperar habían muchas fotos de Junsu. Yo seguía agarrada a su espalda, ralentizando el paso, Juno entro al comedor antes que nosotros y nos preparó el terreno.
 
 ---Mamá, ¿dónde está papá? ---preguntó Juno al fondo.
 
@@ -334,11 +334,11 @@ Nos sentamos de nuevo en el sofá y hablamos sobre mi país, mis costumbres, mis
 
 ---He podido conocerte más, Kiki ---me miro de una manera muy especial, no sabría explicarla y yo automáticamente me sonrojé muchísimo --- Además me he quitado un peso de encima, mis padres te han aceptado muy bien. Hasta mi madre ha insinuado el ir a España ---Junsu rió mientras se pasaba la mano por el pelo --- Aunque creo que no estoy preparado para conocer a toda tu familia.
 
----¿Perdón? ---lo mire abriendo los ojos. Reí interiormente, había roto el encanto del momento --- Tú me has traído contra mi voluntad, señorito Kim Junsu.
+---¿Perdón? ---lo miré abriendo los ojos. Reí interiormente, había roto el encanto del momento --- Tú me has traído contra mi voluntad, señorito Kim Junsu.
 
 ---Bueno ---arranco el coche --- Ya veremos cuando tenga las vacaciones.
 
----O bien... ---coloque mi mano sobre su muslo y él se tensó entero. Lo mire a la cara inclinándome hacia él, pero el rehusó el mirarme --- Hacéis una gira por Europa incluyendo España.
+---O bien... ---coloque mi mano sobre su muslo y él se tensó entero. Lo miré a la cara inclinándome hacia él, pero el rehusó el mirarme --- Hacéis una gira por Europa incluyendo España.
 
 ---Oh, Kiki... ---me miro de pronto y yo retiré mi mano de su pierna --- He tenido una idea...
 
@@ -358,7 +358,7 @@ Saco su móvil y buscó en su agenda, al poco se puso a hablar con alguien. Adiv
 
 escuché de fondo la risa estruendosa de Yunho y yo ya no pude escuchar nada más de la conversación. ¿Que yo lo había empezado? ¿Que había empezado? ¿A caso él estaba pensando con su cabeza inferior? No, no, no, él no podía dejarse llevar por su “fuego interior”, la cosa tenía que surgir entre ambos y yo no estaba pensando en ese tema precisamente. Suspire pesadamente y estiré los brazos contra la guantera, me crují los codos con mucha paciencia.
 
----¡Kiki! ---lo mire sobresaltada y el preocupado --- ¿Estas bien?
+---¡Kiki! ---lo miré sobresaltada y el preocupado --- ¿Estas bien?
 
 ---Si ---Me sonrojé y bajé la mirada --- Junsu, yo... no sé si...
 
@@ -378,13 +378,13 @@ Cuando vi de qué juego se trataba salte en el sofá y grite emocionada, Junsu s
 
 ---Kiki... ---me miro con una gran interrogación --- ¿Te gustan los videojuegos?
 
----¡Si! ---lo mire con una gran sonrisa, muchísimo más tranquila. De pronto me abrazo.
+---¡Si! ---lo miré con una gran sonrisa, muchísimo más tranquila. De pronto me abrazo.
 
 ---Nadie quiere jugar conmigo Kikita, solo Changmin, pero últimamente está demasiado ocupado ---nos separamos y sonrió --- Gracias.
 
 ---A ti ---dije emocionada --- Me encanta este juego.
 
----Kiki, ¿te he dicho alguna vez que eres mi chica ideal? ---se sonrojo --- ¡Ah! ¿Te gusta el fútbol?
+---Kiki, ¿te he dicho alguna vez que eres mi chica ideal? ---se sonrojó --- ¡Ah! ¿Te gusta el fútbol?
 
 Estaba sonrojada por lo que me había dicho, y me costó responder, ya que se había emocionado bastante.
 
@@ -410,7 +410,7 @@ Con manos temblorosas, acaricie su espalda y metí las manos bajo su camiseta. S
 
 Por un momento paró de besarme y yo sentí una extraña sensación de soledad en mi cuerpo, deseaba que me tocara por cada rincón, que me besara y que me hiciera suya. Pero él, en ese momento, parecía absorto en otra cosa. Y cuando sacó del bolsillo de su pantalón un pequeño envoltorio, me hizo reír. Parecía todo calculado.
 
----Hay que tener precaución ---rompió la envoltura de aquel preservativo y ambos lo miramos. Se sonrojo bastante --- Bésame.
+---Hay que tener precaución ---rompió la envoltura de aquel preservativo y ambos lo miramos. Se sonrojó bastante --- Bésame.
 
 Dicho y hecho, comencé a besarle por el cuello, mordiendo su oreja. El colocó sus manos sobre mi trasero y, estando de rodillas sobre el sofá, me sentó sobre sus caderas. Mi cuerpo se deslizo contra el suyo y entonces, después de colocarse aquello llegó lo doloroso.
 

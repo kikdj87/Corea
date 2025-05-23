@@ -72,3 +72,8 @@
 -En el capitulo 18 hay un momento de tensión entre Kiki y Junsu que no se trata hasta el principio del capitulo 20
 
 -El final del capítulo 20 es... equis de.
+
+-El final del capitulo 21 es una mala decision de Kiki despues de hablar con Boa
+
+-Ya se han grabado 5 episodios para el capitulo 22
+

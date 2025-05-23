@@ -102,7 +102,7 @@ con nadie en la SM... nos costó mucho trabajo meternos en este
 mundo... Todas hemos tenido problemas.
 412
 - Pues si – Asintió Jessica – Y no pequeños...
-- ¿Que decís? - Pregunto Sunny.
+- ¿Que decís? - preguntó Sunny.
 - Por mi si – Jane estaba feliz.
 - A mí no me importa comer gratis – R sonrió lo más que
 pudo.
@@ -112,7 +112,7 @@ apunto.
 tripas corazón – Sonrió – Iré.
 - ¡¡Kyaa!! - Taeyeon la abrazo y pude ver la incomodidad en
 el rostro de Elena mientras esta le daba unas palmadas en la
-espalda - ¡¡Sera muy divertido Kikita, ya lo veras!!
+espalda - ¡¡Sera muy divertido Kikita, ya lo verás!!
 - No lo dudo... - Sonreí.
 Las SNSD se marcharon de casa y nosotras alucinamos de
 verdad. Hablamos un poco del tema y enseguida nos fuimos a
@@ -127,7 +127,7 @@ pucheros de Junsu cuando Heechul estaba a mi lado y seguíamos
 con las bromas.
 Mientras tomaba un descanso y bebía un poco de agua,
 Taeyeon, que apareció de la nada, se colocó a mi lado con una gran
-sonrisa. La mire y me atragante con el agua. Sonreí como pude.
+sonrisa. La miré y me atragante con el agua. Sonreí como pude.
 - Ho-hola – La salude alzando la mano.
 - Hola Kikita – Dijo en español - ¿Esta bien dicho? - Se
 emocionó cuando dije que si - ¡Kyaa, que feliz que estoy! - Me cogió
@@ -146,14 +146,14 @@ con vosotras – Ella había hecho de Chae en el drama.
 - Va genial – Le dije – Cada día mejor...
 - Me hubiera encantado ir a España en el rodaje – Suspiro –
 Pero Junsu me necesitaba.
-- ¿Qué? - La mire boquiabierta.
+- ¿Qué? - La miré boquiabierta.
 - Digo en el rodaje – Rió escandalosamente mientras ponía
 su mano sobre mi hombro – Nos has salvado a nosotras, yo cuido de
 Junsu.
-- No hace falta – La mire seria.
+- No hace falta – La miré seria.
 - Tranquila Kiki – Se percató de mi serio tono de voz – No
 voy más allá con Junsu, sé que está contigo.
-La mire de reojo y volví al rodaje. Ya me hacía que pensar su
+La miré de reojo y volví al rodaje. Ya me hacía que pensar su
 actitud tan amable, cariñosa y simpática. Volví la vista atrás y la vi
 mientras hablaba con Kangin como si nada. Taeyeon... esa chica era
 muy rara. El almuerzo fue muy bien, aunque se echaba de menos a
@@ -164,7 +164,7 @@ como por ejemplo Se7en o Boa.
 hablaba entre ellos y yo estaba más en mi mundo que en otro sitio.
 A todo contestaba que sí, aunque realmente no sabía que me
 estaban preguntando o contando, hasta que alguien toco mi nariz -
-¡Quien ha sido! - Me puse en guardia y mire a todos los que estaban
+¡Quien ha sido! - Me puse en guardia y miré a todos los que estaban
 a mi alrededor, hasta que una mano acusadora se dejó ver por
 detrás para atacar de nuevo a mi nariz - ¡Tu!
 - Yo – Junsu sonreía tras de mi – Me ha dicho Elena que
@@ -181,7 +181,7 @@ te toque la nariz – La señalo y la mire.
 - Faltaba yo – susurró Junsu, lo que causo muchos gritos
 entre los presentes. Gritos y risas. Junsu se llevó un golpe de
 Changmin en el brazo – Ok, era broma... lo siento...
-- … - Lo mire de reojo – Estrés acumulado... Y ahora vamos a
+- … - Lo miré de reojo – Estrés acumulado... Y ahora vamos a
 comer con las SNSD.
 - ¡¡Qué bien!! - Heechul sonrió - ¡¡Que majas son las niñas!!
 ¿A que si?
@@ -222,7 +222,7 @@ mucho.
 Llegamos al piso y estuvimos hablando de miles de cosas.
 Como por ejemplo, que había sentido Elena con respecto a
 cuándo su personaje se acostaba con Kangin.
-- Bueno... - Se sonrojo – No sé qué pasara cuando esto salga
+- Bueno... - Se sonrojó – No sé qué pasara cuando esto salga
 a la luz, la verdad – Se acarició la mejilla desviando la mirada –
 Aunque en realidad se deja ver que va a pasar eso, pero nosotros no
 hacemos nada de nada... ni un beso.
@@ -267,7 +267,7 @@ Sooman le entrego los papeles...
 tour final, tenemos que llamar a las ciudades que elijáis y
 necesitamos mucho tiempo para eso... - Me dijo serio.
 - ¿Para cuándo lo necesita?
-- ¿Puede ser para mañana a primera hora? - Me pregunto.
+- ¿Puede ser para mañana a primera hora? - Me preguntó.
 - … - Pensé por un momento – Sí, claro... Se los enviare por
 fax.
 - Muy bien... - Me dio un número de fax – Por cierto, avísales
@@ -298,10 +298,10 @@ iba siendo momento de contarles todo – Me han llamado de la
 Rhythm Zone.
 - ¿Qué? - Hana flipó – Esa es la compañía de los niños en
 Japón.
-- Si, la misma – Mire las otras habitaciones – Mejor
+- Si, la misma – miré las otras habitaciones – Mejor
 esperamos a que las chicas se despierten, os lo quiero decir a todas.
 - Pues nos podemos morir – Elena se echó sobre Hana.
-Reímos un poco y enseguida sonó mi móvil, lo mire y vi que
+Reímos un poco y enseguida sonó mi móvil, lo miré y vi que
 era Changmin el que me estaba llamando. Me extrañe mucho, pero
 conteste.
 - Soy Yunho – Dijo a través de la línea – No sé dónde está mi
@@ -311,7 +311,7 @@ llamé...
 - Pues ya no sé dónde está – Dijo desganado - ¿Querías
 decirme algo importante?
 418
-- ¡Ah! Si, veras... - Mire a las chicas y vi que Jane se había
+- ¡Ah! Si, verás... - miré a las chicas y vi que Jane se había
 levantado - ¿Puedes quedar hoy? - Las chicas se sorprendieron, al
 igual que él – Es para hablar sobre la gira en Europa.
 - ¡Ah, eso! - Dijo entre risas – Claro, ¿a qué hora?
@@ -321,7 +321,7 @@ los chicos?
 - No – Negué – No hace falta... bastante es que tenemos que
 decidir las cosas entre tú y yo, como para que venga alguno más...
 - … - El comenzó a reírse – Bueno, pues... ¿voy a tu casa?
-- No, vamos a la SM, en mi despacho – Mire a Jane – Así no
+- No, vamos a la SM, en mi despacho – miré a Jane – Así no
 te me despistas...
 - Eres cruel – Suspiro – Bueno, nos vemos a las siete.
 - Chao Yunnie – Sonreí.
@@ -329,7 +329,7 @@ te me despistas...
 así? - Dijo Jane echándose al lado de Hana en el sofá, quien la
 abrazo.
 - No pasa nada, hablaba con Yunho, por eso te miraba – Se
-sonrojo y yo me reí – Ale, que alguien vaya a despertar al monito,
+sonrojó y yo me reí – Ale, que alguien vaya a despertar al monito,
 que quiero contaros algo.
 - Si, si – Dijo Elena mientras me señalaba - ¿Qué es eso de
 una gira por Europa?
@@ -337,14 +337,14 @@ una gira por Europa?
 Enseguida fueron a despertar a R y nos sentamos todas en el
 sofá mientras contaba la propuesta de la Rhythm Zone. Se alegraron,
 pero enseguida se pusieron serias.
-- Y... ¿qué pasará con nosotras? - Me pregunto Jane.
+- Y... ¿qué pasará con nosotras? - Me preguntó Jane.
 - Bueno... no sé qué es lo que tiene pensado la SM con
-vosotras – Mire a Hana y Elena – Al menos vosotras ya tenéis
+vosotras – miré a Hana y Elena – Al menos vosotras ya tenéis
 trabajo.
 - Si, pero nosotras no – Dijo R – Y yo no es que quiera volver
 ahora...
 - Bueno – Medite – Algo haré con vosotras dos.
-- ¿Dónde haréis la gira? - Pregunto Hana – Recuerda que a 
+- ¿Dónde haréis la gira? - preguntó Hana – Recuerda que a 
 419
 Yoochun le gusta mucho la playa... y las de Cádiz son muy bonitas.
 - Pero en Murcia hay más palmeras, como le gusta a Junsu –

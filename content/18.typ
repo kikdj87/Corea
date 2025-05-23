@@ -56,7 +56,7 @@ Sin previo aviso, la agarré del brazo y excusándome con las otras dos, la ence
 
 ---La otra vez te vi muy bien con Hannie ---le dije con una sonrisa.
 
----No es Jae ---suspiró --- Mire a quien mire no es él. Y lo que más me duele es que parece que le intereso, pero creo que no damos ese paso por lo que vemos en Junsu y tú. Me he dado cuenta de que es
+---No es Jae ---suspiró --- miré a quien miré no es él. Y lo que más me duele es que parece que le intereso, pero creo que no damos ese paso por lo que vemos en Junsu y tú. Me he dado cuenta de que es
 una persona aún más maravillosa de como imaginé en casa y realmente estoy enamorada de él.
 
 ---¿Y por qué te lías con Sanghun? ---le pregunté pasando las manos por sus brazos.
@@ -164,7 +164,7 @@ Mientras todos hablábamos tranquilamente sobre nuestras cosas y demás, Juno se
 
 ---¿Qué? ---me sorprendí a su afirmación --- ¿Quieres que le mienta?
 
----No ---negó con rapidez --- Pero eso de que fuiste a mi casa, podrías habértelo ahorrado. Esta muy nervioso y no sabe qué va a hacer.
+---No ---negó con rapidez --- Pero eso de que fuiste a mi casa, podrías habértelo ahorrado.estámuy nervioso y no sabe qué va a hacer.
 
 ---Yo no quería que... ---agaché la cabeza --- No sabía que...
 

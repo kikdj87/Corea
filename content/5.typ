@@ -122,7 +122,7 @@ Me asomé al comedor y me encontré a Junsu y Yunho haciendo tonterías, Changmi
 
 ---No lo soy ---dije mientras cruzaba las piernas sobre el sofá --- Pero tampoco nado entre billetes. De todas formas, esto pasará y se olvidará, como todo.
 
----Si, eso seguro ---sonrió y cerró la revista tirando esta sobre la mesa.
+---Si, eso seguro ---sonrió y cerró la revista tirando ésta sobre la mesa.
 
 ---Por aquí te están hablando ---me dijo Yoochun --- Una tal Hana.
 

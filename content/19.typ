@@ -146,7 +146,7 @@ Asentí y nos fuimos a la SM con el murmullo de fondo de la radio y Harang. Dejo
 
 ---¿Y tu Ferrari? ---pregunte de pronto.
 
---- Lo vendí ---suspiró algo melancólico --- Me he comprado otro, pero esta al llegar, tardará su tiempo porque es importado.
+--- Lo vendí ---suspiró algo melancólico --- Me he comprado otro, peroestáal llegar, tardará su tiempo porque es importado.
 
 ---¿Por qué tienes dos coches? ---abrí los ojos sorprendida, riendo.
 
