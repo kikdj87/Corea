@@ -1,344 +1,351 @@
 = Capítulo 24
 
-Y cundió el pánico. El perro se quedó en la puerta y se tumbó en el suelo, esperando a que su amo aparcara el coche. No tardó mucho cuando de nuevo regresó y alzó la cabeza hacia donde yo estaba. Me escondí. Miré de espaldas a Junsu y entré corriendo a la casa, chocándome de nuevo con aquello que me había hecho mucho daño y cayendo de golpe al suelo.
+Cundió el pánico. El perro se quedó en la puerta y se tumbó en el suelo esperando a que su amo aparcara el coche. No tardó mucho cuando de nuevo regresó y alzó la cabeza hacia donde yo estaba. Me agaché rápidamente para esconderme. Miré de espaldas a Junsu y entré a la casa, chocándome de nuevo con aquello que me había hecho mucho daño y cayendo de golpe al suelo.
 
---- ¿Quién anda ahí? --- Se escuchó la voz proveniente del comedor --- ¿Y esa ropa...?
+---¿Quién anda ahí? ---se escuchó una voz proveniente del comedor --- ¿Y esta ropa...?
 
-Mierda... Junsu babo, ¿dónde has dejado la ropa? ¿Qué has hecho mientras yo dormía? Me puse en pie y me acerqué en la cama, comencé a moverlo con violencia, hasta que no abrió los ojos extrañado no paré. Pero cuando abrió los ojos era demasiado tarde, la luz se había encendido y dos pares de ojos negros nos miraban atentamente. Los primeros sorprendidos y los segundos sin comprender nada.
+Mierda, Junsu babo, ¿dónde había dejado la ropa? ¿Qué había hecho mientras yo dormía? Me puse en pie y me acerqué en la cama, comencé a moverlo con violencia y hasta que no abrió los ojos extrañado no paré. Pero cuando los abrió era demasiado tarde, la luz se había encendido y dos pares de ojos negros nos miraban atentamente. Los primeros sorprendidos y los segundos sin comprender nada.
 
---- ¡Ah!
+---¡Ah!
 
-¿Ah? ¿Solo podía exclamar eso? Harang quiso saltar a la cama, pero Yoochun lo agarró del collar y lo mantuvo a su lado. Miré a Junsu y luego a Yoochun, pero no le miré a los ojos. Realmente esperaba a que se enfadara o algo por el estilo, realmente prefería eso.
+¿Ah? ¿Solo podía exclamar eso? Harang quiso saltar a la cama, pero Yoochun lo agarró del collar y lo mantuvo a su lado. Miré a Junsu y luego a Yoochun, pero no le miré a los ojos. Esperaba que se enfadara o algo por el estilo, realmente prefería eso a ver expresión de tristeza o decepción.
 
---- Hyung --- Junsu lo miró sorprendido --- ¿Qué haces aquí?
+---Hyung ---Junsu lo miró sorprendido --- ¿Qué haces aquí?
 
---- Es mi casa babo --- Yoochun me miró --- ¿Qué haces tú en mi casa... y con ella?
+---Es mi casa, babo ---Yoochun me miró --- ¿Qué haces tú en mi casa y con ella?
 
---- ... --- Ambos nos sonrojamos. No sé de qué manera quería decir lo último, pero no lo dijo de la mejor posible --- Hyung, yo... te cogí la llave de repuesto... creyendo que no vendrías.
+Ambos nos sonrojamos. No sé de qué manera quería decir lo último, pero no lo dijo de la mejor posible. Yo me cubrí el cuerpo con los brazos.
 
---- Ash --- Se pasó la mano por el pelo. Aún sujetaba a Harang para que no saltara hacia nosotros --- Me podrías haber avisado, ¿sabes? No quería encontrarme con esto en mi cama... con las sabanas limpias.
+---Te cogí la llave de repuesto creyendo que no vendrías ---Junsu se sentó en la cama avergonzado mientras se pasaba la mano por la nuca.
 
---- ¡¡No hicimos nada!! --- Dije con rapidez, aferrando mis manos a la camiseta para alargarla lo máximo posible. Ambos me miraron sorprendidos y yo agaché la cabeza.
+---Idiota ---se pasó la mano por el pelo. Aún sujetaba a Harang para que no saltara hacia nosotros --- Me podrías haber avisado, ¿sabes? No quería encontrarme con esto en mi cama.
 
---- Bueno... --- Junsu salió de la cama --- Lo siento Yoochun... --- Me miró de reojo, yo aún seguía sentada sobre la cama.
+---¡No hicimos nada! ---dije con rapidez, aferrando mis manos a la camiseta para alargarla lo máximo posible. Ambos me miraron sorprendidos y yo agaché la cabeza.
 
---- No sufras Junsu --- Yoochun rió y soltó al perro.
+---Bueno ---Junsu salió de la cama --- Lo siento Yoochun --- Me miró de reojo, yo aún seguía sentada sobre la cama.
 
-Pero el perro no se quedó al lado de Yoochun, ni fue a saludar a Junsu, sino que se tiró sobre mí, haciendo que cayera para atrás y me diera con la cabeza en la pared, y eso dolió mucho. El perro no paraba de chuparme la cara y yo no podía hacer nada por quitármelo de encima... lo más que pude hacer fue gritar y patalear.
+---No sufras, Junsu ---Yoochun rió y soltó al perro.
 
---- ¡¡Harang para!! --- Yoochun gritaba.
+Pero el perro no se quedó al lado de Yoochun ni fue a saludar a Junsu, sino que se tiró sobre mí, haciendo que cayera para atrás y me diera en la cabeza con la pared y eso dolió mucho. El perro no paraba de chuparme la cara y yo no podía hacer nada por quitármelo de encima, era muy grande y pesaba mucho, así que lo más que pude hacer fue gritar y patalear.
 
---- ¡¡Maldito tu chucho!! --- Rió Junsu mientras intentaba sin logros quitar al perro de encima de mí.
+---¡Harang para! ---Yoochun gritaba.
 
---- ¡Harang, ya, para de una vez! --- Y al fin Harang obedeció a la voz de su amo y algo pasó entre Yoochun y yo... y digo algo por decirlo de alguna manera, él cayó sobre mí y dio con su nariz sobre mi boca, es decir, mi nariz chocó contra su frente --- ¡¡Lo siento!!
+---¡Maldito perro! ---rió Junsu mientras intentaba sin logros quitar al perro de encima mía.
 
---- Estoy... --- Me llevé la mano a la cara y con la otra intenté no caer de nuevo hacia atrás. Me había hecho sangre.
+---¡Harang, ya, para de una vez! --- y al fin Harang obedeció a la voz de su amo, pero algo pasó entre Yoochun y yo. Cuando el perro se movió, él cayó sobre mí y dio con su nariz sobre mi boca, por lo que, mi nariz chocó contra su frente --- ¡Lo siento!
 
---- ¡Junsu! --- Dijo el mayor --- Ve y tráeme algo, creo que le he roto la nariz.
+---Estoy... ---me llevé ambas manos a la cara e intenté no caer de nuevo hacia atrás. Me había hecho sangre, notaba como caía por mis manos.
 
---- Eres un bruto... --- Dijo Junsu mientras desaparecía.
+---¡Junsu! ---dijo Yoochun alarmado --- Ve y tráeme algo, creo que le he roto la nariz.
 
---- Lo siento Kiki, ¿te duele? --- Yoochun me colocó la cabeza para abajo.
+---Eres un bruto ---dijo Junsu mientras desaparecía.
 
---- Si... --- Estaba realmente muy mareada, el golpe en la cabeza provocado por Harang me dolía más de lo que creía. Y Harang había comenzado a ladrar.
+---Lo siento Kiki, ¿te duele? ---Yoochun me colocó la cabeza para abajo.
 
---- ¡¡Ya Harang, fuera de aquí!! --- El perro obedeció sin más y salió de la habitación. Escuché unos pasos que entraban --- No Junsu, eso no... No es mío...
+---Si... ---estaba muy mareada, el golpe en la cabeza provocado por Harang me dolía más de lo que creía. Y, para colmo, Harang había comenzado a ladrar.
 
---- ¿De quién es? --- Le escuché decir entre risitas
+---¡Ya Harang, fuera de aquí! ---el perro obedeció y salió de la habitación. Escuché unos pasos que entraban.
 
---- De mi madre... --- Resopló --- Bueno, da igual, tráelo o esta pobre se nos desangra aquí en medio...
+---He traído una toalla, ¿está bien? ---escuché como Junsu llegaba y se subía a la cama.
 
---- Kiki... --- Junsu me cogió de la mano --- Sobrevivirás, te pondrás bien...
+---Esa no... ---resopló y me lo puso sobre la cara --- Da igual, servirá para que no se nos desangre.
 
---- ¿Qué dices? --- Dije ahogada en lágrimas por el dolor.
+---Kiki ---Junsu me cogió de la mano ---sobrevivirás, te pondrás bien.
 
---- Por darle dramatismo --- Su pudiera verle la cara y pudiera pegarle, le hubiera dado un gran pescozón.
+---¿Qué dices, tonto? ---dije ahogada en lágrimas por el dolor, hablando con la nariz taponada.
 
---- Ahh... Junsu babo --- Yoochun me alzó la cabeza y entonces vieron que estaba llorando --- ¿Te duele mucho?
+---Por darle dramatismo ---si pudiera verle la cara y pudiera pegarle, le hubiera dado un gran pescozón.
 
---- Si... --- Pero exactamente no sabía si me dolía más el pecho o la cabeza entera.
+---Muy poco oportuno ---Yoochun me alzó la cabeza y entonces vieron que estaba llorando --- ¿Te duele mucho?
 
-Hubo un gran silencio entre todos, el cual agradecí, si hubiera sido por mí, hasta hubiera apagado las luces de la habitación, apenas podía mantener los ojos abiertos. Ni un sonido, ni siquiera un susurro se podía escuchar.
+---Si ---no sabía si me dolía más el pecho, la cabeza entera o solo la nariz.
 
---- Yoochun, me estás poniendo negro --- Susurró Junsu con tono enfadado --- ¿No sabes cortar una hemorragia?
+Hubo un gran silencio entre todos, el cual agradecí. Si hubiera sido por mí hasta hubiera apagado las luces de la habitación, apenas podía mantener los ojos abiertos. Ni un sonido, ni siquiera un susurro podía escuchar en ese momento.
 
---- ¿Qué quieres que haga si no deja de sangrar? --- Dijo el otro de los nervios.
+---Yoochun, me estás poniendo negro ---susurró Junsu con tono enfadado --- ¿No sabes cortar una hemorragia?
 
---- Haz esto...
+---¿Qué quieres que haga si no deja de sangrar? ---dijo el otro de los nervios.
+
+---Haz esto...
 
 Y entonces Junsu metió algo por mi nariz que provocó que abriera los ojos y gritara llena de dolor, me llevé las manos a la nariz y me aparté de ellos.
 
---- ¡¡Bruto!! --- Escuché un golpe.
+---¡Bruto! ---escuché un golpe.
 
---- Kiki lo siento --- Dijo Junsu cabizbajo, acarició en mi pierna algo viscoso, supuse que era sangre.
+---Kiki lo siento ---dijo Junsu cabizbajo, cayó en mi pierna algo viscoso y supuse que era sangre.
 
---- No... --- Sollocé --- No pasa nada...
+---No pasa nada ---sollocé.
 
-Y solo recordé un estúpido sueño que tuve con el maldito perro de Yoochun, Harang. Estaba paseando por un prado del sur de España, extraño, porque nunca había visto alguno, pero sabía que era el sur de España, y de pronto aparecía Harang y se me echaba encima, me mordía, jugaba conmigo y encima de todo, hacía que cayera al suelo y me diera un fuerte golpe en la cabeza. Luego me pisoteaba y yo no lo podía aguantar más. Cuando me venía a dar cuenta estaba en la Alhambra, castillo situado en Granada, con el maldito chucho... y a mí que me dolía tanto la cabeza... De fondo aparecía Jaejoong con Yoochun. Y me desperté.
+Me limpié la cara con la toalla que tenía en las manos, ya había dejado de sangrar así que me acomodé en la cama, encogiendo el cuerpo para esconderme del mundo mientras me cubría el cuerpo con la manta. Me quedé dormida.
 
---- Mmmm... --- Me sobé la cabeza y abrí un poco los ojos, realmente me dolía. Un ladrido, dos...
+Solo recordé un estúpido sueño que tuve con el maldito perro de Yoochun, Harang. Estaba paseando por un prado del sur de España, extraño porque nunca había visto alguno, pero sabía que era el sur de España. De pronto aparecía Harang y se me echaba encima, me mordía, jugaba conmigo y encima de todo, hacía que cayera al suelo y me diera un fuerte golpe en la cabeza. Luego me pisoteaba y yo no lo podía aguantar más. Cuando me vine a dar cuenta estaba en la Alhambra, un castillo situado en Granada, con el maldito chucho y a mí me seguía doliendo la cabeza. De fondo aparecía Jaejoong con Yoochun. Y me desperté.
 
---- ¡Harang! --- Y el peor, Yoochun gritando.
+Abrí los ojos, estaba con mucho dolor en el cuerpo porque no había cambiado la postura. Mantenía las manos cubriendo mi nariz con la toalla, que estaba ya más tiesa. Me sobé la cabeza y abrí un poco los ojos, realmente me dolía mucho. Escuché un ladrido, dos...
 
---- Basta --- Me incorporé con la mano derecha sobre mi frente sujetando un poco mi cabeza --- ¿Dónde estoy?
+---¡Harang! ---el grito de Yoochun me taladró la cabeza.
 
---- Aún sigues en mi casa --- Dijo entre susurros, parecía adormilado. Al fin lo miré, estaba acostado en SU cama a MI lado. Me sorprendí tanto que me caí de la cama --- Duele... --- Dije llorosa.
+---Basta ---me incorporé con la mano derecha sobre mi frente sujetando un poco mi cabeza --- ¿Dónde estoy?
 
---- ¡¡Qué haces!! --- Me agarró y me subió en la cama --- ¿Estás loca? --- Resopló --- Tienes un chichón en la cabeza, la nariz rota y encima de todo, te caes de la cama.
+---Aún sigues en mi casa ---dijo entre susurros, parecía adormilado. Al fin lo miré, estaba acostado a mi lado. Me sorprendí tanto que me hice a un lado, con la mala fortuna que me caí de la cama --- Duele...
 
---- Suelta... que estoy bien... --- Puse un puchero --- ¿Y Junsu?
+---Qué haces ---se inclinó hacia mí y estiró los brazos para subirme de nuevo a la cama --- ¿Estás loca? Tienes un chichón en la cabeza, la nariz mal y encima de todo vas te caes de la cama.
 
---- En la SM...
+---Suelta, que estoy bien ---me solté y me quedé sentada en la cama, desorientada --- ¿Y Junsu?
 
---- ¿Qué hora es? --- Al alzar rápida la cabeza, me mareé y él se dio cuenta, me cogió de los brazos.
+---En la SM...
 
---- Es hora de que te relajes, no vas a salir de aquí --- Frunció el ceño --- Ya hemos llamado a la gente... Y resulta que Elena anoche bebió de la cuenta y también está en cama. Hana la está cuidando.
+---¿Qué hora es? ---al alzar rápida la cabeza me mareé y él se dio cuenta, me cogió de los hombros.
 
---- ¿Bebió de más? --- Me enfadé --- Se supone que no puede beber --- Suspiré --- ¿Y por qué te has quedado tú?
+---Es hora de que te relajes, no vas a salir de aquí ---frunció el ceño --- Ya hemos avisado a los que importan que sepan que estás mal. Y resulta que Elena anoche bebió más de la cuenta y también está en cama. Hana la está cuidando.
 
---- Soy el único que puede controlar a Harang aquí --- Señaló al perro, que estaba en la puerta, en ese momento levantó la cabeza y nos miró moviendo la cola --- Y Junsu tenía que ir a no sé dónde con R y su hermana.
+---¿Bebió de más? ---me enfadé --- Se supone que no debe beber... ¿Y por qué te has quedado tú?
 
---- ¿A si? --- Estaba extrañada. Me eché de nuevo sobre la cama y con suavidad me pasé la mano por la nariz. Me dolía --- ¿Está rota?
+---Soy el único que puede controlar a Harang aquí ---señaló al perro, que estaba en la puerta. En ese momento levantó la cabeza y nos miró moviendo la cola --- Y Junsu tenía que ir a no sé dónde con R.
 
---- Sí.
+---¿A si? ---estaba extrañada. Me eché de nuevo sobre la cama y con suavidad me pasé la mano por la nariz. Me dolía --- ¿Está rota?
 
---- ¿Por qué no me has llevado a un médico? --- Repliqué.
+---No lo parece.
 
---- Vagancia...
+---¿Por qué no me has llevado a un médico? ---repliqué.
 
---- Vaya --- Lo miré de reojo --- Y dejemos que a la pobre Kiki se le mal cure la nariz, se ponga fea y horrible y además, morada...
+---Porque está bien.
 
---- Si se pone así, yo te pago la operación --- Rió entre dientes y yo fruncí el ceño, cosa que hizo que me doliera la nariz --- Kiki --- Me miró --- Tu nariz, por sorprendente que parezca, está bien, solo un
-poco hinchada.
+---Vaya ---lo miré de reojo --- Como se me deforme la nariz te mato.
 
---- Oh, que consuelo... solo un poco hinchada --- Dije con ironía.
+---Si te pasara eso yo te pago la operación ---rió entre dientes y yo fruncí el ceño, cosa que hizo que me doliera más la nariz --- Kiki, tu nariz, por sorprendente que parezca, está bien, solo un poco hinchada.
 
---- Ah... eh... Kiki --- Captó mi atención --- ¿Realmente no hicisteis nada en mi cama?
+---Oh, que consuelo, solo un poco hinchada ---dije con ironía.
 
---- ... --- Lo miré en silencio --- No, no hicimos nada --- Quería sonar realista --- Yo me quedé durmiendo en el sofá, y me desperté en la cama.
+---Ah... por cierto ---captó mi atención --- ¿Realmente no hicisteis nada?
 
---- ¿Estabas en el balcón?
+Lo miré en silencio. Esperaba que en cualquier momento saliera esa conversación.
 
---- ¿Me viste?
+---No, no hicimos nada ---dije más relajada, tumbada, mirando hacia el techo --- Yo me quedé durmiendo en el sofá, y me desperté en la cama.
 
---- Algo vi --- Se quedó pensativo y sonrió --- Y... quería decirte otra cosa...
+---¿Saliste al balcón?
 
---- Nada de cosas masocas --- Dije alzando un dedo y mirándolo a la cara --- ¿De acuerdo?
+---¿Me viste?
 
---- ¿Masocas? --- Se sorprendió y asintió --- En realidad un poco sí que es --- Rió --- Pero...
+---Algo vi ---se quedó pensativo y sonrió --- Quería comentarte otra cosa...
 
---- Yoochun --- Lo volví a cortar --- Para, ¿quieres? Ya me parece muy embarazosa esta situación para que vengas a hablar de más cosas embarazosas...
+---Qué cosa ---dije girando la cara para poder mirarle, tenía algo de miedo por lo que pudiera decir.
 
---- Si... tienes razón.
+---Es sobre lo que pasó en la fiesta, con tus padres ---estaba sentado en la cama, a mi lado, mirándome.
 
-No volvimos a hablar más. Se puso en pie y salió de la habitación, Harang se puso en pie, pero me miró con insistencia hasta que Yoochun lo llamó, que fue tras él. Al cabo de los minutos, llegó con agua y unas pastillas.
+---Yoochun ---le corté y giré el rostro para no mirarlo --- Para, ¿quieres? Ya me parece muy embarazosa esta situación como para que vengas a hablar de más cosas embarazosas...
 
---- ¿Qué es? --- Pregunté.
+---Si... tienes razón.
 
---- Son para el dolor de cabeza --- Respondió.
+No volvimos a hablar más. Se puso en pie y salió de la habitación, Harang fue tras él. Al cabo de los minutos llegó con agua y unas pastillas, se sentó a mi lado y me lo ofreció.
 
---- ¿Las dos?
+---¿Qué es? ---pregunté.
 
---- Bueno... --- Agachó la cabeza --- Una es un relajante, estás muy tensa y eso te pondrá peor...
+---Son para el dolor de cabeza ---respondió.
 
-Lo miré seria y cogí las dos pastillas, me las metí a la boca y bebí un largo trago de agua... Y fue en ese momento que me di cuenta que estaba muy sedienta. Y claro, no tardé mucho en querer levantarme para ir al cuarto de baño. Yoochun me acompañó hasta la puerta y yo entré sola. Me senté en el váter y me quedé pensativa... y tanto, hasta que me dormí.
+---¿Las dos?
 
---- ¡¡... Kiki, voy a entrar, una, dos y...!!
+---Bueno ---se encogió de hombros --- Una es un relajante, estás muy tensa y eso hará que te duela más la cabeza.
 
---- ¡¡No!! --- Grité de pronto reaccionando, tarde, como siempre. Yo me estaba subiendo las bragas y Yoochun había entrado. Me miró sonrojado --- Sal.
+Lo miré seria y cogí las dos pastillas, me las metí a la boca y bebí un largo trago de agua. Y fue en ese momento que me di cuenta que estaba muy sedienta, y no tardé mucho en querer levantarme para ir al cuarto de baño. Yoochun me acompañó hasta la puerta y yo entré sola. Me senté en el váter y me quedé pensativa hasta que me dormí.
 
---- Lo siento --- Salió como le ordené.
+---¡Kiki, voy a entrar, una, dos y...!
+
+---¡No! ---grité de pronto reaccionando tarde, como siempre. Yo me estaba subiendo las ropa interior a la vez Yoochun estaba abriendo la puerta. Me miró sonrojado. Señalé la puerta furiosa --- Sal de aquí.
+
+---Lo siento ---salió como le ordené.
 
 Me tambaleé un poco, me limpié las manos y salí del baño. No nos miramos a la cara, simplemente me tumbé en su cama y la pastilla siguió haciendo su efecto. Me desperté de nuevo cuando sentí que alguien cogía mi mano y otra mano pasaba por mi cara. Abrí los ojos y vi a Jae.
 
---- Hola --- Me sonrió --- ¿Cómo estás?
+---Hola ---me sonrió con dulzura --- ¿Cómo estás?
 
---- Lfdgndf --- Eso era un intento de bien, él se rió.
+Intenté hablar, pero a penas me respondía la lengua, por lo que balbuceé un poco.
 
---- Yoochun me ha enseñado lo que te ha dado --- Negó con la cabeza --- Es un completo babo, ninguna de las dos era una pastilla para el dolor de cabeza --- Lo miró con represalia y el menor agachó la cabeza --- Ambas eran tranquilizantes, y de los suyos, es decir fuertes...
+---Yoochun me ha enseñado lo que te ha dado ---negó con la cabeza --- Es un completo idiota, ninguna de las dos era una pastilla para el dolor de cabeza ---lo miró con represalia, no vi la reacción de Yoochun --- Ambas eran tranquilizantes y de los suyos, es decir, de los fuertes.
 
---- Yo... no me di cuenta --- Señaló --- Empecé a preocuparme cuando se hacía de noche y no despertaba...
---- Menos mal que estoy aquí --- Bufó y negó con la cabeza --- Kiki, ¿puedes hablar?
+---No me di cuenta ---señaló --- Empecé a preocuparme cuando se hacía de noche y no despertaba.
 
---- Pfffmmshsd --- Eso era si, aunque obviamente, se dio cuenta de que no.
+---Menos mal que estoy aquí ---bufó y negó con la cabeza --- Kiki, ¿puedes hablar?
 
---- Relájate, enseguida se pasará el efecto --- Rió --- ¿Querías drogarla?
+Moví la cabeza de forma afirmativa, pero ambos se rieron al verme ya que también intentaba hablar. Me sentí muy frustrada.
 
---- Si, y tenerla aquí en contra de su voluntad --- Bufó con ironía --- Ya te lo he explicado... Y puedes irte, la puedo cuidar bien.
+---Tranquila, enseguida se pasará el efecto ---djo Jaejoong entre pequeñas risas --- ¿Querías drogarla?
 
---- ¿A si? --- Lo miró con los ojos abiertos. Yo quería ver la cara de Yoochun y reírme de él, pero me era un poco imposible --- ¿A base de pastillas tranquilizantes? Así seguro que no te molesta --- Se echó a reír.
+---Si, y tenerla aquí en contra de su voluntad ---bufó con ironía --- Ya te lo he explicado. Y puedes irte, la puedo cuidar bien.
 
---- ... --- Bufó y llamaron a la puerta --- Fijo que es Junsu...
+---¿A si? ---lo miró con los ojos abiertos señalándome. Yo quería ver la cara de Yoochun y reírme de él, pero me era un poco imposible --- ¿A base de pastillas tranquilizantes? Así seguro que no te molesta ---se echó a reír.
 
---- Abre... --- Se quedó un momento callado y se escucharon unos pasos, luego de eso me miró --- Te he curado bien la nariz, y si, la tienes mejor de lo que me había imaginado cuando me lo han contado...
+---Ya te vale ---bufó y llamaron a la puerta --- Fijo que es Junsu.
 
---- ¿Qué hora es? --- Dije al fin, mi lengua reaccionó.
+---Abre ---se quedó un momento callado y me miró --- Te he curado bien la nariz, y si, la tienes mejor de lo que me había imaginado cuando me lo han contado.
 
---- Bastante tarde... esta noche te dedicaras a dar saltos... --- Rió.
+---¿Qué hora es? ---dije al fin, mi lengua reaccionó.
 
---- Lo dudo, aún me duele un poco la nariz... y la espalda --- Me toqué dicho lugar con un puchero.
+---Bastante tarde, esta noche no vas a poder dormir ---rió.
 
---- Si es que lo veo normal... --- Negó con la cabeza --- No te ha dado nada para el dolor, y encima has estado todo el día ahí acostada, con dos tranquilizantes en el cuerpo...
+---Lo dudo, aún me duele la nariz, la espalda y todo ---murmuré aún con la lengua dormida.
 
---- ¡¡Kiki!! --- La voz de Junsu, eran tambores en mi cabeza. Me agarró de la mano y lo miré --- ¿Cómo estás? ¿Estas mejor? No te vayas... ahora que nuestro amor empezaba a fluir como las flores en primavera...
+---Si es que lo veo normal ---negó con la cabeza --- No te ha dado nada para el dolor, y encima has estado todo el día ahí acostada con dos tranquilizantes en el cuerpo. ¿Has comido algo?
 
---- ¿Qué ha comido? --- Preguntó Yoochun.
+---¡Kiki! ---la voz de Junsu eran agujas en mi cabeza. Me agarró de la mano y lo miré --- ¿Cómo estás? ¿Estas mejor? No te vayas, ahora que nuestro amor empezaba a florecer como las flores en primavera.
 
---- Querrás decir, qué no ha comido --- Señaló Jae entre risas.
+---¿Qué ha comido? ---preguntó Yoochun.
 
---- Junsu --- Todos me miraron --- Eres tonto --- Al fin pude incorporarme --- Todos --- Los señalé --- Solo es un chichón, una pequeña fisura en mi nariz --- Puse un puchero --- Lo estáis llevando demasiado lejos.
+---Querrás decir qué no ha comido ---señaló Jae entre risas.
 
---- ... --- Las miradas fueron a Yoochun, que disimuló mientras intentaba agarrar algo con los dedos en el aire. Jae tomó la palabra --- A mí me preocupaba el hecho de haberte tomado dos de esas
-pastillas...
+---Junsu ---todos me miraron --- Eres tonto ---al fin pude incorporarme --- Sois todos unos exagerados, solo es un chichón y una pequeña fisura en mi nariz, lo estáis llevando demasiado lejos.
 
---- Y a mí el hecho de quedarte con ese babo...
+Las miradas fueron a Yoochun, que disimuló mientras intentaba agarrar algo con los dedos en el aire.
 
---- Un respeto, ¿eh? --- Yoochun frunció el ceño --- Que está bien.
+---A mí me preocupaba el hecho de enterarme que has tomado dos de esas pastillas y sin comer nada ---Jaejoong me miró muy serio.
 
---- ... --- Suspiré --- Pues esta noche todos despiertos, que no tengo sueño.
+---Y a mí me preocupa más el hecho de quedarte con ese babo ---Junsu señaló a Yoochun con la cabeza.
 
---- ... --- Jae se miró el reloj --- Ahora que ha llegado Junsu, es hora de que me vaya, mirad que tarde es. Fijo que Changmin y Yunho andan preocupados...
+---Un respeto, ¿eh? ---Yoochun frunció el ceño --- Que está bien.
 
---- Ash... necesito una ducha...
+---Eso es, estoy bien ---suspiré cansada --- Y sin pizca de sueño.
 
-Junsu y yo nos miramos en silencio cuando los otros dos salieron de la habitación, siendo Jae el que la cerrara sin cuidado alguno, provocando que me chirriaran los dientes. Suspiré y me relajé.
+---Mira que bien ---Jae se miró el reloj --- Ahora que ha llegado Junsu es hora de que me vaya, mirad que tarde es. Fijo que Changmin y Yunho andan preocupados.
 
---- ¿De verdad estás bien?
+---Necesito una ducha ---Yoochun se encerró en su baño.
 
---- Si no me tocas la nariz, si --- Asentí.
+Junsu y yo nos miramos en silencio cuando los otros dos salieron de la habitación, siendo Jae el que cerrara la puerta sin cuidado alguno, provocando que me chirriaran los dientes. Suspiré y me relajé.
 
---- Me alegro --- Me abrazó con cuidado --- Todos me han dado recuerdos para ti... y... he hablado con tus padres --- Se sonrojó.
+---¿De verdad estás bien?
 
---- ¿Qué? --- Me sobresalté --- ¿Cómo?
+---Si no me tocas la nariz, si ---asentí agarrando su mano.
 
---- A través de R --- Se encogió de hombros --- Ella lo sabe, pero quería hablar con ellos...
+---Me alegro ---me abrazó con cuidado --- Todos me han dado recuerdos para ti y he ido a despedirme de tus padres ---se sonrojó.
 
---- Aprende español de una vez, como Yoochun --- Suspiré.
+---¿Qué? ---me sobresalté --- ¿Cómo?
 
---- Si, ellos hablaron de él --- Se sonrojó --- Quise saber cosas y... me dijeron que, cuando estabas en España, tú ya eras fan nuestra... --- Silencio, ambiente tenso --- Y bueno, no sabían reconocer a ninguno
-de las fotos, pero me habló de que tenías tu habitación empapelada con fotos... que siempre estabas... y que claro, el nombre más conocido para tu familia era y es Yoochun --- Puso un puchero.
+---A través de R ---se encogió de hombros --- Quería quedar bien con ellos, la verdad.
 
---- Junsu, yo...
+---Aprende español de una vez, como Yoochun ---suspiré.
 
---- ¿Kiki, has estado, o estas enamorada de Yoochun? --- Aquella pregunta me pilló desprevenida.
-//creo que ya hablaron de eso, hay que buscarlo
---- Ehh... no entiendo a qué viene eso ahora, la verdad --- Me hice la dura --- Junsu, yo soy tu novia, te quiero a ti...
+---Si, ellos hablaron de él ---se sonrojó --- Quise saber cosas y me dijeron que, cuando estabas en España, tú ya eras fan nuestra ---silencio, el ambiente se puso tenso --- Y bueno, no sabían reconocer a ninguno excepto a Yoochun, que siempre estabas hablando de él y enseñando fotos suyas ---puso un puchero.
 
---- ¿Me respondes, por favor? --- Grité interiormente, su voz estaba extrañamente quebrada, sus ojos suplicaban respuesta.
+---Junsu, yo...
 
---- Junsu --- Susurré --- Yo no sabía que era el amor, de verdad... me sentía como una niña caprichosa, queriendo a Yoochun solo para mí --- Suspiré --- No sabía nada de lo que ocurría a mi alrededor, y
-en realidad tampoco quería hacerlo. Tenía una imagen en mi mente y con esta me quedaba. ¿Que algunos lo llaman amor? Que lo llamen así, yo no lo sentía de esa manera... ¿Que lloraba? Pues sí, me sentía vacía y triste sin su calor que no podía tener... --- Lo miré, no tenía brillo en sus ojos --- Pero no --- Quise convencerme a mí misma más que a Junsu --- No estoy enamorada de él... Lo estoy de ti.
+---Kiki, ¿sigues sintiendo algo especial por Yoochun? ---aquella pregunta me pilló desprevenida.
 
---- ... --- Soltó una risa expulsando aire por la nariz, sin abrir la boca. Me miró de reojo --- Ya veo... ¿ahora entiendes el amor de verdad?
+---No entiendo a qué viene eso ahora, la verdad ---me hice la dura --- Junsu, yo soy tu novia, te quiero a ti.
 
---- Estoy aprendiendo --- Me encogí de hombros.
+---¿Me respondes, por favor? ---quise gritar interiormente, su voz estaba extrañamente quebrada, sus ojos suplicaban respuesta.
 
---- ¿Y Yoochun...? --- Señaló a la puerta.
+---Junsu, yo no sabía qué era el amor de verdad. En esa época me sentía como una niña caprichosa queriendo a Yoochun solo para mí ---suspiré agarrando sus manos con fuerza --- No esperaba que fuera a conocerle ni a tener una relación de amistad con vosotros cinco. Yoochun fue mi capricho, si, pero no le conocía. Quería una imagen de él que no es real. ¿Que algunos lo llaman amor? Que lo llamen así, yo no lo sentía de esa manera. ¿Que lloraba? Pues sí, me sentía vacía y triste sin ese que no podía tener ---lo miré, no tenía brillo en sus ojos --- Pero no. No estoy enamorada de él. Estoy enamorada de tí.
 
---- ¿Qué tal todo por la agencia? --- Cambié de tema mientras agarraba mis rodillas --- ¿Que ha dicho Lee Sooman de esto?
+---Ay... ---soltó una risa expulsando aire por la nariz, sin abrir la boca. Me miró de reojo --- Ya veo, ¿ahora entiendes el amor de verdad?
 
---- ... --- Suspiró --- Que te mejores --- Se encogió de hombros --- ¿Qué va a decir? Y que espera que tu nariz mejore, sin ella bien, poco podemos hacer...
+---Estoy aprendiendo ---me encogí de hombros apretando su mano.
 
---- ¿De qué color la tengo? --- Pregunté señalándola y poniendo los ojos bizcos para verla.
+---¿Y Yoochun? ---señaló a la puerta del baño.
 
---- Lila --- Se sorprendió --- Mira, un color muy bonito, la verdad.
+---Él es un amigo más ---murmuré suave --- A quien quiero de otra manera.
 
---- Si, pero no en mi nariz.
+---A quien quieres... ---lo murmuró con un puchero.
 
-Reímos y jugamos hasta que mi móvil sonó con su insistente sonido desde algún lado de la casa. Nos quedamos en silencio y Junsu se levantó a buscarlo. Después de un rato el sonido paró sin hallar el teléfono, hasta que volvió a sonar y Yoochun entró a la habitación con él.
+---¿Qué tal todo por la SM? ---cambié de tema mientras agarraba mis rodillas --- ¿Que ha dicho Lee Sooman de esto?
 
---- ¿Qué es esto? --- Lo enseñó.
+---Qué va a decir ---suspiró rendido --- Que te mejores y que espera que tu nariz mejore. Estando así poco podemos hacer.
 
---- Es cosa de Heechul --- Alargué las manos --- Trae...
+---¿De qué color la tengo? ---pregunté señalándola y poniendo los ojos bizcos para verla.
 
---- Pues es él el que te llama --- Junsu lo cogió más rápido --- ¿Qué te pica?
+---Lila ---se echó a reír al ver mi cara --- Un color muy bonito, la verdad.
 
---- ¿Por qué te llama? --- Puso un puchero.
+---Si, pero no en mi nariz.
 
---- Querrá saber cómo estoy --- Puse los ojos en blanco --- Dame mi teléfono Junsu... --- A regañadientes me lo dio, contesté --- ¿Diga?
+Reímos y hablamos hasta que mi móvil sonó con su insistente sonido desde algún lado de la casa. Nos quedamos en silencio y Junsu se levantó a buscarlo. Después de un rato el sonido paró sin hallar el teléfono, hasta que volvió a sonar y Yoochun salió del baño con él en la mano.
 
---- ¡¡¡¡Kikii!!! --- Separé el teléfono de mi oreja y miré a Junsu con una sonrisa.
+---¿Qué es esto? ---lo enseñó con gesto de disgusto por el sonido.
 
---- Ah, hola Heechul --- Sonreí.
+---Es cosa de Heechul ---alargué las manos --- Trae...
 
---- ¿Cómo estás? Que me han dicho que estás malita...
+---Pues es él quien te llama ---Junsu lo interceptó antes de que Yoochun pudiera dármelo --- ¿Por qué te llama? ---puso un puchero.
 
---- Estoy mejor, después de las drogas que me han dado... --- Vi que Yoochun y Junsu hacían muecas de que me callara --- Después de tomar pastillas para el dolor de cabeza, mejor, gracias.
+---Querrá saber cómo estoy ---puse los ojos en blanco --- Dame mi teléfono Junsu ---a regañadientes me lo dio y contesté --- Hola.
 
---- Me alegro --- Se quedó pensativo --- ¿Dónde estás?
+---¡Kiki! ---separé el teléfono de mi oreja y miré a Junsu con una sonrisa.
 
---- ... --- Puse el manos libres al ver la cara de sufrimiento de Junsu --- ¿Qué?
+---Si, soy yo ---sonreí suspirando y me volví a colocar el teléfono en la oreja.
 
---- Te digo que... ¿dónde estás?
+---¿Cómo estás? Me han dicho que estás indispuesta...
 
---- En tu casa --- Susurró Junsu.
+---Estoy mejor, después de las drogas que me han dado... ---vi que Yoochun y Junsu hacían muecas de que me callara --- Las pastillas para el dolor hicieron su efecto y estoy mejor.
 
---- En casa, ¿por? --- Pregunté.
+---Me alegro ---Se quedó pensativo --- ¿Dónde estás?
 
---- ¡¡¡Junsu babo mentiroso!!! --- Heechul comenzó a patalear y solté el teléfono sobre la cama mientras Heechul se desquitaba blasfemando todo lo que quería o más. Se calmó y resopló --- Elena está mejor, para tu información.
+---Pues... ---puse el manos libres al ver la cara de sufrimiento de Junsu --- ¿Qué has dicho?
 
---- Ah... eh... me alegro mucho --- Asentí.
+---Que dónde estás, Kikita.
 
---- Kiki, quiero ir a verte --- No lo vi, pero fijo que estaba poniendo un puchero --- Quiero ver cómo estás... y que me cuentes que te ha pasado de verdad... porque a saber si lo de tu cabeza es cierto...
+---En tu casa ---susurró Junsu en mi oído para que Heechul no lo escuchara.
 
---- ¿Qué te ha dicho Junsu? --- Miré Junsu de reojo.
+---En casa, ¿por? ---pregunté mirando mal a Junsu.
 
---- Pregúntale a él --- Se hizo el ofendido --- ¿Me vas a decir dónde estás?
+---¡Junsu babo mentiroso! ---Heechul comenzó a insultar a Junsu ya que le había escuchado decir aquello, se le notaba molesto pero se calmó y resopló --- Elena está mejor, para tu información.
 
---- ... --- Miré a Yoochun, que se encogió de hombros. Junsu lo fulminó con la mirada --- Estoy en casa de Yoochun, ¿sabes dónde...?
+---Ah... me alegro mucho ---asentí mordiéndome el labio inferior. Me había pillado.
 
---- ¡¡Allí que voy!! --- Rió --- Te llevaré algo de regalo...
+---Kiki, quiero ir a verte ---no lo vi, pero fijo que estaba poniendo un puchero mezclado con el ceño fruncido --- Quiero ver cómo estás y que me cuentes que te ha pasado de verdad, porque a saber si lo de tu cabeza es cierto.
 
---- ¡¡Heechul, no hace falta que...!! --- Y colgó --- Pues viene hacia aquí... --- Los miré.
+---¿Qué te ha dicho Junsu? ---miré Junsu de reojo.
 
---- Mira que guay... --- Junsu bufó.
+---Pregúntale a él ---se hizo el ofendido --- ¿Me vas a decir dónde estás?
 
---- Voy a vestirme --- Y en ese momento me fijé en que Yoochun iba SOLO en toalla, un hilito de sangre comenzó a caer por mi nariz y caí hacia atrás por sorpresa mía y de Junsu.
+---Vale, está bien ---miré a Yoochun que se encogió de hombros. Junsu lo fulminó con la mirada --- Estoy en casa de Yoochun, ¿sabes dónde...?
 
---- Joder, Kiki --- De pronto ve mi a Junsu haciéndome aire --- ¿Qué te pasa? ¿Es la primera vez que ves un tío así? Ya viste a Yunho y no reaccionaste así --- Bajó la voz --- Y conmigo menos... --- Puso un puchero.
+---¡Allí que voy! ---dijo entre carcajadas --- Te llevaré algo de regalo.
 
---- Uhg... --- Me incorporé y me limpié la nariz con la camiseta. 
+---¡Heechul, no hace falta que...! ---miré la pantalla del teléfono, ya que había colgado --- Pues viene hacia aquí.
 
-Miré a Junsu --- Solo me ha pillado desprevenida... Estoy delicada, recuerda.
+---Mira que guay ---Junsu bufó.
 
---- Ya me haces dudar, ¿sabes? --- Me miró de reojo y vio mis ropas --- Y metete bajo las sabanas, no quiero que Heechul juegue con la derecha a tu costa... --- Bufó --- Bastante ha visto Yoochun.
+---Voy a vestirme ---Yoochun volvió a entrar en el baño y en ese momento me fijé que iba _solo_ en toalla. Comencé a sentir como un líquido viscoso y caliente salía por mi nariz, por lo que agaché rápidamente la cabeza tapándome con ambas manos.
 
---- No sabes cuánto --- Negué con la cabeza.
+---Joder, Kiki ---comencé a sentir aire en la cara y al alzar el rostro vi a Junsu molesto --- ¿Qué te pasa? ¿Es la primera vez que ves un tío así? Ya viste a Yunho y no reaccionaste de esa manera ---bajó la voz y apretó los labios --- Y conmigo menos.
 
---- ¿Qué? --- Abrió mucho los ojos.
+---Lo siento ---me incorporé y miré mis manos, a penas había sangrado unas gotas. Miré a Junsu --- Solo me ha pillado desprevenida. Estoy delicada, recuerda.
 
---- Te quiero --- Me eché sobre él y se puso notablemente nervioso. Lo besé --- Junsu, lo siento mucho.
+---Ya me haces dudar, ¿sabes? ---me miró de reojo y vio mis ropas --- Y métete bajo las sabanas, no quiero que Heechul vea de más ---bufó --- Bastante ha visto Yoochun.
 
---- ¿Por? --- Me agarró de la cintura.
+---No sabes cuánto ---negué con la cabeza.
 
---- Por lo que estás pasando por mi culpa --- Me miró sin comprender bien --- Junsu... --- Acaricié su barriga, donde sabía que tenía su cicatriz --- Lo siento... yo...
+---¿Qué has dicho? ---abrió mucho los ojos.
 
---- Kiki --- Agarró mi barbilla y nos miramos, con la otra mano me pegó más a él --- Vive el presente ¿te lo han dicho alguna vez? --- Negué --- Pues hazlo... --- Y nos besamos.
+---Te quiero ---me eché sobre él y se puso notablemente nervioso. Lo besé --- Junsu, lo siento mucho.
 
---- Ejem, ejem --- Alguien estaba en la puerta, Junsu y yo nos miramos --- Que, no lo hicisteis anoche, pero ahora sí, ¿no? --- Yoochun resopló --- Cochinos, al menos podríais a esperar para estar solos, ya que abusáis de mi cama como si nada...
+---¿Por? ---me rodeó con un brazo por la cintura y con el otro fue bajando por mi pierna.
 
-No dijimos nada durante un rato. Yo entré dentro de las sábanas y miré mi manchada camiseta, así que le pedí una nueva a Yoochun, al principio dudo, pero me dio una que pilló por ahí vieja. Y como todo lo demás, olía realmente bien, aunque ya me estaba acostumbrando a su olor. Tuve un poco de intimidad para cambiarme de camiseta y justo cuando me eche en la cama para relajarme, la puerta sonó con insistencia.
+---Por lo que estás pasando por mi culpa ---me miró sin comprender bien. Acaricié su barriga, donde sabía que tenía su cicatriz --- Lo siento, yo...
 
---- Espero que no atraiga a las Cassiopeia --- Susurró Yoochun --- No quiero que se sepa nada de que tú estás aquí --- Salió de la puerta mientras me señalaba. Un momento de silencio...
+---Kiki ---agarró mi barbilla y nos miramos, con la otra mano me pegó más a él --- Vive el presente ¿te lo han dicho alguna vez? ---negué con la cabeza perdida en sus ojso --- Pues hazlo ---nos besamos con suavidad.
 
---- ¡¡Kikita!! --- Se abalanzo sobre la cama y sonrió --- ¿Qué tal... ...? --- Me miro serio --- ¿Que le ha pasado a tu nariz?
+---Esto... hola ---Yoochun estaba en la puerta, Junsu y yo nos separamos --- Qué, no lo hicisteis anoche, pero ahora sí ¿no?, cochinos. Al menos podríais esperar para estar solos, ya que abusáis de mi cama como si nada.
 
---- ... --- Resople y miré a Yoochun --- ¿Tanto se nota? Está rota...
+Nos disculpamos y Junsu se separó de mi. Me metí mejor entre las sábanas y me tapé hasta la cintura, viendo como la camiseta que llevaba puesta estaba muy manchada de sangre. Sin decir nada, por el gesto, Yoochun me lanzó una camiseta que cayó en mi regazo. Un golpe de su olor me dio en la cara y cerré un segundo los ojos disfrutándola.
 
---- ¡¡Caramba si se nota!! --- Admitió. A decir verdad, no me había mirado a un espejo --- ¿Cómo te has hecho eso, Kikita? Ya entiendo el motivo por el cual no puedes rodar...
+Me dejaron sola durante un rato mientras me aseaba un poco, estaba con las manos y la cara manchadas de sangre algo seca y me sentía incómoda. Después volví a meterme en la cama algo mareada y me tumbé boca arriba. En ese momento la puerta sonó con insistencia.
+
+---Espero que no atraiga a las fans, no quiero que sepan que ella está aquí ---escuché decir a Yoochun alejándose. Hubo un momento de silencio que se rompió con unos pasos que corrieron hacia el dormitorio.
+
+---¡Kikita! ---Heechul entró de golpe y se sentó en el borde de la cama ---¿Qué tal...? ---me miro serio y sorprendido --- ¿Qué le ha pasado a tu nariz?
+
+---Vaya ---resople y miré a Yoochun que estaba asomado en la puerta junto a Junsu --- ¿Tanto se nota? Creo que está rota.
+
+---¡Caramba si se nota! ---admitió. Aún no me había mirado a un espejo y no sabía bien como estaba --- ¿Cómo te has hecho eso, Kikita? Ya entiendo el motivo por el cual no puedes venir a grabar.
 
 --- Me lo hice...
 
---- Se dio con un armario --- Dijo de pronto Yoochun. Junsu y yo lo miramos --- Junsu sin querer abrió con fuerza un armario y Kiki estaba detrás...
+---Se dio con un armario ---dijo de pronto Yoochun. Junsu y yo lo miramos --- Junsu sin querer abrió con fuerza un armario y Kiki estaba detrás.
 
---- ¿Yo? --- Junsu se señaló.
+---¿Yo? ---Junsu se señaló.
 
---- Mira que siempre he sabido que eras un peligro para ella... --- Heechul me agarro del brazo y me acurruco en su pecho mirando a Junsu mientras negaba con la cabeza --- Mala persona.
+---Mira que siempre he sabido que eras un peligro para ella ---Heechul me agarró del brazo y me acurrucó en su pecho mirando a Junsu mientras negaba con la cabeza --- Mala persona.
 
---- Pero si... yo... --- Junsu me miro y miro a Yoochun serio. Luego me agarro de la mano --- Bueno, pero está bien...
+---Pero si yo... ---Junsu me miró y volvió la mirada a Yoochun serio --- Bueno, pero está bien.
 
---- Si, con un morado en la nariz --- Heechul rió.
+---Si, con la nariz amoratada ---Heechul rió.
 
---- Bueno, ya basta --- Puse un puchero --- Me recuperare...
+---Bueno, ya basta ---puse un puchero molesta --- Me recuperaré.
 
-Y tanto que me recupere, de madrugada por la noche me fui a casa y descanse con la compañía de las chicas. Elena ya se había recuperado y las cinco nos fuimos tranquilamente a la SM al día siguiente. Yo no grabe, por supuesto, tenía la nariz más grande que una Esfinge, pero al menos adelante un trabajo que me habían pedido para unos meses... una pequeña serie para las SNSD de dos episodios con Big Bang para la SBS.
+De madrugada por la noche me fui a casa a escondidas, Junsu fue quien me llevó. Por la mañana temprano Elena ya se había recuperado y las cinco nos fuimos tranquilamente a la SM. Yo no me dediqué a grabar ese día, pero al menos adelanté un trabajo que me habían pedido para unos meses, una pequeña serie para las SNSD de dos episodios con Big Bang para la SBS.

@@ -77,3 +77,8 @@
 
 -Ya se han grabado 5 episodios para el capitulo 22
 
+-23/39 kiki tiene cacao mental porque yoochun le despierta algo especial aunque quiere a junsu
+
+-23/55 Sooman paga a la prensa para que las fotos de ellos no salga a la luz
+
+-23/193 Junsu lo pasa mal porque intentan entorpecer la relacion con Kiki

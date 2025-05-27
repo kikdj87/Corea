@@ -60,9 +60,9 @@ Abrí mi portátil y me puse a investigar por Internet a ver si había salido al
 
 ---¡Kiki! ---dijo Jane en mayúsculas --- ¡Hemos visto el mini drama por YouTube!
 
----¡Se ha quedado genial! ---añadió Mabel --- ¡Quiero que hagan el de YeSung y yo!
+---¡Se ha quedado genial! ---añadió Mabel --- ¡Quiero que hagan el de Yesung y yo!
 
----Aún no conozco a YeSung ---escribí.
+---Aún no conozco a Yesung ---escribí.
 
 ---¿De verdad estás en Corea? ---preguntó Rocío.
 

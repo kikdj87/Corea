@@ -142,7 +142,7 @@ Al final de la noche había un grupo hablando, pude ver a Jane con Heechul, Yunh
 
 Hana hablaba de nuevo con Boa, Yoochun, Jaejoong y Tiffany. Parecía que se lo pasaban bien y a pesar de la confesión de mi pelirroja amiga, vi sus miradas hacia el mayor de los DBSK.
 
-R estaba con Changmin hablando, parecían interesados en esa conversación, a lo que de pronto se le sumó YeSung y Shingdong. Vi como ella reía ante los comentarios que iban haciendo los tres chicos.
+R estaba con Changmin hablando, parecían interesados en esa conversación, a lo que de pronto se le sumó Yesung y Shingdong. Vi como ella reía ante los comentarios que iban haciendo los tres chicos.
 
 Y me fijé en Sungmin. Ese chico iba a su bola con Kyuhyun y Ryeowook, quienes hablaban con Sunny y otra chica, que supuse que sería de las SNSD. Era muy mala para los nombres, pero solo los que no me convenían.
 

@@ -168,7 +168,7 @@ estaban preguntando o contando, hasta que alguien toco mi nariz -
 a mi alrededor, hasta que una mano acusadora se dejó ver por
 detrás para atacar de nuevo a mi nariz - ¡Tu!
 - Yo – Junsu sonreía tras de mi – Me ha dicho Elena que
-te toque la nariz – La señalo y la mire.
+te toqué la nariz – La señaló y la mire.
 - Exagerado – Se encogió de hombros.
 414
 - ¿Qué pasa? - Pregunte, estaba algo perdida.

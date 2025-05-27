@@ -152,7 +152,7 @@ Y así comimos todas. Incluso había comida suficiente para los que estaban all�
 
 Aún no había empezado nada, así que bajamos de la limusina en el parking del centro comercial y nos encontramos con muchísima gente allí. Todo el equipo técnico de la SM estaba allí ultimando algunas cosas con el sonido y las pantallas. Cuando Lee Sooman nos vio se acercó a nosotras.
 
----Vosotras cuatro venid conmigo ---señalo a las chicas --- Tú te esperas aquí.
+---Vosotras cuatro venid conmigo ---señaló a las chicas --- Tú te esperas aquí.
 
 Cuando él desapareció con las chicas me sumí en un mar de incomodidades, dudas y nervios hasta que Dongsea se acercó a mí.
 
@@ -182,358 +182,352 @@ Me agarro del hombro y caminamos por todas las instalaciones y me iba explicando
 
 ---María ---Dongsea me cogió de las mejillas con mucho cuidado e hizo que le mirara --- Que sepas que no saben nada de lo de Junsu, eso lo dicen por el drama.
 
---- Si, bueno... creo que eso es lo de menos --- Reí como una tonta --- Va... ¿vamos? Supongo que requerirán que estemos allí para ensayar.
+---Si, bueno, creo que eso es lo de menos ---reí como una tonta --- Va, ¿vamos? Supongo que requerirán que estemos allí para ensayar.
 
---- Si... vamos...
+--- Si, vamos.
 
-Cuando salí al exterior del centro del Lotte y vi el escenario con la pantalla gigante, flipé en colores, aquello era maravilloso. Delante de la pantalla gigante había un pequeño escenario con una mesa muy larga llena de micrófonos. Dongsea me explico que ahí nos sentaríamos muchos para hacer la rueda de prensa, y que cuando saliera el primer episodio, nos sentaríamos en unas sillas que había en frente para verlo.
+Cuando fuimos a la plaza central del _Lotte World Mall_ y vi el escenario con la pantalla gigante me quedé con la boca abierta, aquello era maravilloso. Delante de la pantalla gigante había un pequeño escenario con una mesa muy larga llena de micrófonos. Dongsea me explico que ahí nos sentaríamos para hacer la rueda de prensa, y que cuando saliera el primer episodio, nos sentaríamos en unas sillas que había en frente para verlo.
 
---- Y bueno, no sé dónde estarán las chicas... --- Miro a todos lados --- Tampoco he visto a ninguno de los actores por aquí...
+---No sé dónde estarán las chicas ---miro a todos lados --- Tampoco he visto a ninguno de los actores por aquí.
 
---- Tal vez se estén concienciando --- Reí.
+---Tal vez se estén haciendo meditación ---reí.
 
-Estuvimos preparando los guiones que íbamos a decir, lo que podíamos decir y lo que no. Y a mí se me obligo y casi amenazo de que no hablara sobre mi relación con Junsu. Aunque eso ya lo sabía, no era tonta. El caso, que cuando faltaba poco para la hora, vi un montón de coches llegar, de ellos bajaban muchos artistas famosos y caminaban por una larga alfombra roja que habían puesto, y miles de flashes se disparaban por todos lados. Y entonces, me hicieron bajar al parking del Lotte y me reuní con las demás chicas.
+Estuvimos preparando los guiones que íbamos a decir, lo que podíamos decir y lo que no. Y a mí se me obligó y casi amenazó de que no hablara sobre mi relación con Junsu. Aunque eso ya lo sabía no era tonta. El caso era que cuando faltaba poco para la hora vi un montón de coches llegar y de ellos empezaban a bajar muchos artistas famosos y caminaban por una larga alfombra roja que habían puesto en la entrada. Miles de flashes se disparaban por todos lados. Y entonces, me hicieron bajar al parking del centro comercial y me reuní con las demás chicas.
 
---- ¡¡Kiki!! --- Elena se acercó a mí --- Va a ser increíble, no sabes la de famosos que han venido... y además de que saldremos en la televisión, y en las revistas, y además de que...
+---¡Kiki! ---Elena se acercó a mí --- Va a ser increíble, no sabes la de famosos que han venido y además de que saldremos en la televisión, en las revistas y además de que...
 
---- Tranquila Elena --- Dijo R mientras destrozaba un papel entre sus manos --- No te pongas nerviosa.
+---Tranquila Elena ---dijo R mientras destrozaba un papel entre sus manos --- No te pongas nerviosa.
 
---- Mira quien habla --- Señalo Jane --- ¡Wah Kiki! --- Jane me arramblo y me sobresalte --- Yunho me ha dicho que voy muy guapa.
+---Mira quien habla ---señaló Jane --- ¡Ah Kiki! ---Jane me arramblo y me sobresalte --- Yunho me ha dicho que voy muy guapa.
 
---- Lleva el rato dando la tabarra con eso --- Rió Hana.
+---Lleva todo el rato dando la tabarra con eso ---rió Hana.
 
-Y nos montamos en dos coches diferentes. Jane, Elena y yo por un lado, y Hana y R por otro lado. Cuando subimos al coche, abrí mucho los ojos.
+Nos montamos en dos coches diferentes. Jane, Elena y yo por un lado, y Hana y R por otro lado. Cuando subimos al coche, abrí mucho los ojos cuando vi a Heechul, Junsu y Yunho ya sentados.
 
---- ¡Chicos! --- Exclame al ver allí a Heechul, Junsu y Yunho --- Hola...
+--- ¡Chicos! ---exclame contenta --- Hola.
 
---- Hola Kikita --- Heechul me agarro de la mano --- Vas muy guapa...
+---Hola Kikita ---Heechul me agarro de la mano --- Vas muy guapa.
 
---- ¡Ya lo sabe! --- Junsu lo soltó de mí y lo miro con un puchero.
+---Ya lo sabe ---Junsu lo soltó de mí y lo miro con un puchero.
 
---- Junsu con modales --- Suspiro Yunho sin haber levantado la cabeza.
+---Junsu, con modales ---suspiro Yunho sin haber levantado la cabeza.
 
---- ¿Por qué estamos todos en el mismo coche? --- Pregunte sin saber nada.
+---¿Por qué estamos todos en el mismo coche? ---pregunte sin saber nada.
 
---- ¿No te lo han dicho? --- Elena se sorprendió y yo negué --- Resulta que tenemos que ir con una supuesta pareja --- Heechul comenzó a reírse y Junsu se enfadó más --- Y claro...
+---¿No te lo han dicho? ---Elena se sorprendió y yo negué --- Resulta que tenemos que ir con una pareja ---Heechul comenzó a reírse y Junsu se enfadó más --- Y claro...
 
---- Que no es justo...
+---Que no es justo...
 
---- Se vería raro si tú fueras con ella, Junsu --- Dijo Jane.
+---Se vería raro si tú fueras con ella, Junsu ---dijo Yunho.
 
---- Pero si en el primer capítulo no se sabe nada --- Seguía con morros mientras miraba por el cristal negro como llegaban a la entrada principal.
+---Pero si en el primer capítulo no se sabe nada ---seguía con morros mientras miraba por el cristal negro como el coche llegaba a la entrada principal.
 
---- ¿Quién va en el otro coche? --- Yo tenía cara de emporrada, y de verdad lo parecía, no me enteraba de nada de lo que estaba ocurriendo.
+---¿Quién va en el otro coche entonces? --- Sentía el aire del coche muy cargado y me estaba mareando. Me costaba un poco poder concentrarme.
 
---- Siwon y Yoochun --- Respondió Yunho muy atento, eso sí, sin levantar la cabeza.
+---Siwon y Yoochun ---respondió Yunho muy atento, eso sí, seguía sin levantar la cabeza.
 
-Y el coche se detuvo por completo. Trague saliva y Junsu me agarro de la mano, sonrió y la beso. Me susurró que todo estaría bien y se bajó del coche el primero con Jane. Se escucharon muchísimos gritos y los flashes se veían por todos lados. Luego se bajaron Elena y Yunho, iban muy elegantes ambos. Y por último Heechul tomó mi mano y ambos salimos del coche. Más gritos. Aunque las principales cámaras se las llevo Yunho al pasar; él es el líder de DBSK y arramblaba con todo.
+El coche se detuvo por completo. Trague saliva y Junsu me agarro de la mano, sonrió y la beso. Me susurró que todo estaría bien y se bajó del coche el primero con Jane. Se escucharon muchísimos gritos y los flashes se veían por todos lados. Luego se bajaron Elena y Yunho, iban muy elegantes ambos. Y por último Heechul tomó mi mano y ambos salimos del coche. Más gritos. Aunque las principales cámaras se las llevo Yunho al pasar ya él era el líder de DBSK y bastante popular.
 
-Heechul no me soltó de la mano, y eso provocó que muchos nos miraran extrañado. miré por encima del hombro hacia atrás y vi a Hana llegar con Siwon y a R con Yoochun. Reí, hubiera quedado mejor que Yoochun hubiera ido con Hana por el hecho de su amistad, pero visto así, no hacían mal pareja. Y llegaron más actores, como el resto de Super Junior y los de DBSK, mas a parte Boa, que llego junto a Jaejoong y las SNSD.
+Heechul no me soltó de la mano, y eso provocó que muchos nos miraran extrañado. Miré por encima del hombro hacia atrás y vi a Hana llegar con Siwon y a R con Yoochun. Reí, hubiera quedado mejor que Yoochun hubiera ido con Hana por el hecho de su amistad, pero visto así, no hacían mala pareja. Y llegaron más actores, como el resto de Super Junior y Changmin, mas a parte Boa, que llego junto a Jaejoong y las SNSD.
 
-Los principales actores nos sentamos en la mesa y charlábamos entre nosotros. Yo estaba con Heechul y con Jaejoong hablando mientras sentía que mi nuca ardía, miré hacia atrás y vi a Taeyeon.
+Habían pequeñas mesas repartidas por todo el lugar llenas de canapés y copas. Además, camareros iban y venían con bandejas pasando por todos los invitados, que no solo eran famosos.
 
---- ¡¡Kikita!! --- Había aprendido a decirlo --- ¡Estoy súper emocionada con esto! --- Me abrazo --- Todo está saliendo genial.
+Los principales actores nos acercamos a una mesa cerca del escenario y charlamos entre nosotros. Yo estaba con Heechul y con Jaejoong hablando mientras sentía que mi nuca ardía, miré hacia atrás y vi a Taeyeon.
 
---- Ya lo veo --- Me separe un poco de ella.
+---¡Kikita! ---había aprendido a decirlo --- Estoy súper emocionada con esto ---me abrazo de pronto y me sentí incómoda, pero le devolví el abrazo. Se estaba esforzando por agradarme --- Todo está saliendo genial.
 
---- ¡Ya se español! --- Y lo primero que se me paso por la cabeza fue... “oh, no” --- ¡Se decir: “hola, ¿qué tal?”! ¿Lo he dicho bien? --- Rió como una loca y yo asentí --- Es muy difícil tu idioma... pero lo aprenderé, de verdad.
+---Ya lo veo ---me separe un poco de ella esbozando una sonrisa.
 
---- ¡¡Fotos!! --- Grito alguien por ahí.
+---¡Ya se español! ---y lo primero que se me paso por la cabeza fue un rotundo no lleno de pánico --- ¡Se decir: _hola, ¿qué tal?_! ¿Lo he dicho bien? ---rió como una loca y yo asentí --- Es muy difícil tu idioma, pero lo aprenderé, de verdad.
 
-Si, fotos... comenzaron a sacarnos fotos a todos. A las tres protagonistas, a nosotras con los DBSK, con los SuJu, con Boa... realmente por un momento desee que aquello acabara a la voz de ya. Y entonces llegó la hora del avance. Muchísimos gritos... gritos y más gritos. Y por un momento me vi horrible en la pantalla, sin maquillaje, es que era cierto de que la televisión engorda muchos kilos... al menos conmigo lo note.
+---¡Fotos! ---grito alguien por ahí.
 
-Después del avance... vino el primer capítulo. La banda sonora estaba hecha por SHINee, DBSK, SuJu, Boa, SS501, Big Bang y Seven, y la verdad es que el opening de DBSK se había quedado genial... Era la canción de Flower Lady versionada.
+Si, fotos. Comenzaron a sacarnos fotos a todos. A las tres protagonistas, a nosotras con los DBSK, con los SuJu y con Boa. Realmente por un momento deseé que aquello acabara a la voz de ya. Y entonces llegó la hora del avance. Muchísimos gritos, gritos y más gritos. Por un momento me vi horrible en la pantalla, sin maquillaje, es que era cierto de que la televisión engorda muchos kilos, al menos conmigo lo note.
 
---- Jane --- R, que estaba a su lado, se acercó a su oído, pero yo pude oírlas --- ¿Tienes un pearcing en el ombligo?
+El avance era una pequeña introducción de los primeros episodios. Cuando terminó la gente aplaudió y un presentador habló sobre la buena acogida que había estado teniendo, agradeció que estuviéramos allí y cuando acabó de hablar vino el primer capítulo. La banda sonora estaba hecha por SHINee, DBSK, SuJu, Boa, SS501, Big Bang y Seven, y la verdad es que el opening de DBSK se había quedado genial. Era la canción de Flower Lady versionada.
 
---- ... --- Rió como una tonta y se llevó la mano a la cabeza --- Bueno, lo requería el guion y claro... yo acepte... no es malo, ¿no?
+---Jane ---R, que estaba a su lado, se acercó a su oído, pero yo pude oírlas --- ¿Tienes un piercing en el ombligo?
 
---- ¿Lo saben tus padres? --- preguntó.
+---Puede ser ---rió como una tonta y se llevó la mano a la cabeza --- Lo requería el guion y claro, yo acepte, no es malo, ¿no?
 
-Rió y siguió viendo la pantalla sin decir nada más. R negó con la cabeza y con una sonrisa en su rostro. Y fue en el momento que salió Siwon, que todas las Elf que allí se congregaban comenzaron a gritar como locas posesas. Me gustaba el resultado de ese primer episodio.
+---¿Lo saben tus padres? ---preguntó.
 
-El episodio duró toda una hora, pero se hizo corto. Las fans gritaban cada vez que algún famoso salía en la pantalla. Mis pensamientos en la parte que lo contaba yo estaba muy bien echo... y me gustaba como actuaban los chicos. Desde luego, si hubiera querido hacer algo así en España, no hubiera salido bien por dos cosas. Uno, los actores españoles no son mi fuerte, y dos... la peor de todas... cosas así en España no se llevan.
+Rió y siguió viendo la pantalla sin decir nada más. R negó con la cabeza con una sonrisa en su rostro. Y fue en el momento que salió Siwon que todas las Elf que se congregaban en los pisos superiores, junto con otras fans, comenzaron a gritar como locas. Me gustaba el resultado de ese primer episodio.
 
-Cuando termino el drama, empezó la dichosa rueda de prensa. Las preguntas como: “¿Cómo se le ocurrió hacer dicho drama siendo usted española?” fueron las más comunes; los más directos hablaron sobre el tema más tabú que teníamos en ese momento... El ataque a Junsu estando en mi casa.
+El episodio duró toda una hora, pero se hizo corto. Las fans gritaban cada vez que algún famoso salía en la pantalla. Mis pensamientos en la parte que lo contaba yo estaba muy bien hecho y me gustaba como actuaban los chicos. Desde luego, si hubiera querido hacer algo así en España, no hubiera salido bien por dos cosas. Uno, los actores españoles no son mi fuerte, y dos, la peor de todas, cosas así en España no se llevan.
 
---- Realmente... --- Comenzó a decir Yunho muy serio --- Eso ya es pasado, y no es bueno remover el pasado... aun así, esta rueda de prensa es sobre el drama, no sobre la vida personal de cada uno.
+Cuando termino el drama empezó la dichosa rueda de prensa. Las preguntas más comunes fueron _"¿Cómo se le ocurrió hacer dicho drama siendo usted española?"_ Los más directos hablaron sobre el tema más tabú que teníamos en ese momento: el ataque que sufrió Junsu estando en mi casa.
 
-Yunho sonrió y me miro, yo también le sonreí, sabia sacarme de apuros. Nos preguntaron la fecha de emisión, horario, si llevaba contenido para mayores y nos preguntaron por un rumor de supuestas escenas de “sexo”. Y yo, que en ese momento estaba bebiendo agua, me atragante. Tosí y todos me miraron.
+---Realmente... ---comenzó a decir Yunho muy serio --- Eso ya es pasado, no es bueno removerlo. Aun así, la rueda de prensa es sobre el drama, no sobre la vida personal de cada uno.
 
---- Bien... veréis, no queremos adelantar detalles... todo lo que habéis escuchado de un rumor es eso... un rumor --- Dije con total tranquilidad --- Las cosas pasaran cuando tengan que pasar... no hay prisa por adelantarse a los acontecimientos. El drama se emitirá en un horario de nueve de la noche a diez, saldrá por ahora los jueves y viernes, no está del todo decidido.
+Yunho sonrió y me miro, yo también le sonreí, sabia como sacar a los demás de apuros. Nos preguntaron la fecha de emisión, horario, si llevaba contenido para mayores y nos preguntaron por un rumor de supuestas escenas de _sexo_. Y yo, que en ese momento estaba bebiendo agua, me atragante. Tosí y todos me miraron.
 
---- ¿Habrá algún especial, segunda parte?
+---Bien, veréis, no queremos adelantar detalles. Todo lo que habéis escuchado de un rumor es eso, un rumor ---dije con total tranquilidad --- Las cosas pasaran cuando tengan que pasar, no hay prisa por adelantarse a los acontecimientos. El drama se emitirá en un horario de nueve de la noche a diez, saldrá los jueves y viernes, espero que se reciba igual de bien que aquí.
 
---- Puede ser --- tomó la palabra Kim Dongsea --- Todo dependiendo de la acogida que se le dé con los primeros episodios... 
+---¿Habrá algún especial, segunda parte?
 
-Ahora empezaremos a dar publicidad a los actores con propaganda... Ya se verá en un futuro como va...
+---Puede ser ---tomó la palabra Kim Dongsea --- Todo dependiendo de la acogida que se le dé con los primeros episodios. Ahora empezaremos a dar publicidad a los actores. Ya se verá en un futuro como va.
 
---- ¿Tenemos que esperar hasta la semana que viene para ver el episodio dos?
+---¿Tenemos que esperar hasta la semana que viene para ver el episodio dos?
 
---- Me temo que si --- Sonrió cálidamente Dongsea --- Si algo se quiere... se espera... y cuando se reciba, se acogerá con mayor deseo...
+---Me temo que si ---sonrió cálidamente Dongsea --- Si algo se quiere se espera con más ganas.
 
-Todo el centro comercial comenzó a aplaudir sobre sus palabras. En un momento nos miramos y me guiño un ojo, aquellas palabras realmente eran muy bonitas, sonreí y también aplaudí. Ya entrada bien la noche, hubo una fiesta con cóctel para los invitados especiales, además de una buena comida. Y entonces me acerque a mis padres.
+Todo el centro comercial comenzó a aplaudir después de la entrevista. En un momento nos miramos y me guiño un ojo, aquellas palabras realmente eran muy bonitas, sonreí y también aplaudí. Ya entrada bien la noche, hubo una fiesta con cóctel para los invitados especiales, por lo que se cerró el recinto para la retirada de las fans y los que no estaban invitados. Y entonces me acerque a mis padres. Junto a ellos había una persona que servía como traductor.
 
---- ¿Que os ha parecido? --- Pregunte ansiosa.
+---¿Que os ha parecido? ---pregunte ansiosa.
 
---- Muy bien hija --- Mi madre me abrazo --- Has estado estupenda... y tus palabras me han sorprendido.
+---Muy bien hija ---mi madre me abrazo --- Has estado estupenda, y tus palabras me han sorprendido.
 
---- Realmente has hecho tu sueño realidad --- Dijo mi padre mientras me acariciaba la cara.
+---Realmente has hecho tu sueño realidad ---dijo mi padre mientras me acariciaba la cara.
 
---- Aun no --- Negué con una sonrisa --- Aun me queda mucho por culminar este sueño...
+---Aún no ---negué con una sonrisa --- Aún me queda mucho por culminar este sueño.
 
---- Y al paso que vas... lo conseguirás --- Mi madre me dio un beso.
+---Y al paso que vas lo conseguirás ---mi madre me dio un beso.
 
---- Por cierto, aquí comen mucho pollo --- Dijo mi padre con media sonrisa.
+---Por cierto ---mi madre me agarro de la mano --- ¿Qué es lo que pasó, de lo que han hablado los periodistas?
 
---- Mira donde está mi madre --- La señale --- Se ha montado en avión, a comer pollo.
+---Ah, lo del chico al que apuñalaron ---dijo mi padre.
 
---- ... --- Puso una mueca rara y paso de mí.
-
---- Por cierto --- Mi madre me agarro de la mano --- ¿Qué es eso que paso, de lo que han hablado los periodistas?
-
---- Ah, lo del chico al que apuñalaron... --- Dijo mi padre.
-
---- No es tan grave como lo pintan, de verdad --- Alce las manos en defensa --- Pero... quiero que sepáis algo... muy importante --- Desvié la mirada. Ellos me miraron esperando respuesta --- Pero aquí no... Esperad un momento, quiero... hablar con alguien.
+---No es tan grave como lo pintan, de verdad ---alcé las manos en defensa --- Pero quiero que sepáis algo muy importante ---desvié la mirada. Ellos me miraron esperando respuesta --- Pero aquí no. Esperad un momento, quiero hablar con alguien primero.
 
 Salí corriendo de allí y busqué a Junsu, no fue muy difícil encontrarlo ya que estaba hablando con Yunho y Eunhyuk sin dejar de mirar hacia mis padres. Me acerque a ellos.
 
---- Vamos a hacer un dúo --- Dijo de pronto Yunho.
+---Vamos a hacer un dúo ---dijo de pronto Yunho.
 
---- Así es --- Asintió Eunhyuk --- Empiezo yo.
+---Así es ---asintió Eunhyuk --- Escucha con atención Kiki, empiezo yo.
 
---- Vale... --- Dijo Yunho y yo los miré extrañada. Junsu se puso rojo.
+---¿Qué está...? ---comencé a decir pero Yunho me interrumpió para que escuchara a Eunhyuk.
 
---- ¡Oh! --- Eunhyuk imito la voz de Junsu --- ¡Esos son los padres de Kiki!
+---¡Oh! ---Eunhyuk imito la voz de Junsu --- ¡Esos son los padres de Kiki!
 
---- Si, parecen ellos --- Yunho se aguantaba la risa.
+---Si, parecen ellos, Kiki está abrazándoles ---Yunho se aguantaba la risa.
 
---- ¿Me acerco a ellos? --- Seguía diciendo Eunhyuk --- O no... Tal vez no sepan aun de mí...
+---¿Me acerco a ellos? ---seguía imitando Eunhyuk --- O no. Tal vez no sepan aun de mí.
 
---- Quien sabe... --- Yunho estaba con la cabeza alta.
+---Quien sabe ---Yunho estaba con la cabeza alta rojo de la risa que aguantaba.
 
---- ¿Crees que les gustara el pollo? --- Eun se sobo la cabeza pensativo --- Bueno... pero... ¡Oh no! ¡Han oído lo que me paso aquella vez!
+---¿Crees que les gustaré? ---Eun se sobo la cabeza pensativo --- Bueno, pero ¡Oh no! Han oído lo que me paso aquella vez.
 
---- Junsu, no pensaran nada malo --- Yunho le coloco la mano en el hombro a Eun, y yo comencé a reírme.
+---Junsu, no pensaran nada malo ---Yunho le coloco la mano en el hombro a Eun y yo comencé a reírme.
 
---- Jolín... ¿que pensaran de mí? ¿Les gustare? ¿No les gustare? ¿Les pareceré una niña? ¿Me verán muy gordo? --- En ese momento Eun se miró el culo y yo estalle en risas.
+---Jolín, ¿que pensaran de mí? ¿Les gustare? ¿No les gustare? ¿Les pareceré una niña? ¿Me verán muy gordo? ---en ese momento Eun se miró el culo y yo estalle en risas.
 
---- ¿Mi voz es como un Junsu de verdad? --- Imito Yunho con voz de pito.
+---¿Mi voz es como un deñfín de verdad? ---imito Yunho con voz de pito.
 
---- ¡¡Ya vale!! --- Junsu estaba más que colorado y nosotros tres no dejábamos de reírnos. La escena fue buenísima, y el hecho de imaginarme a Junsu así, hacía que me riera más --- Sois muy malos conmigo...
+---¡Ya vale! ---Junsu estaba más que colorado y nosotros tres no dejábamos de reírnos. La escena fue muy divertida, y el hecho de imaginarme a Junsu así hacía que me riera más --- Sois muy malos conmigo.
 
---- Pero si es cierto --- Eun le dio en el hombro.
+---Pero si es cierto ---Eun le dio en el hombro.
 
---- Lo del culo no lo he dicho... --- Se cruzó de brazos.
+---Lo del culo no lo he dicho ---se cruzó de brazos.
 
---- Yo... Junsu, ¿podemos hablar a solas? --- Pregunte.
+---Junsu, ¿podemos hablar a solas? --- Pregunte relajándome, recordando por qué había ido a por él.
 
---- Oh... Eun, nos echan... --- Yunho se colocó la mano en el pecho.
+---Oh, Eun, nos echan ---Yunho se colocó la mano en el pecho.
 
---- Nada... nos iremos con la cabeza alta --- Añadió Eun con un tono muy melodramático.
+---Nada, nos iremos con la cabeza alta ---añadió Eun con un tono muy melodramático.
 
---- Iros a la mierda --- Junsu dio una patada en el aire y resoplo --- Pesados... --- Me miro --- ¿Que le has dicho a tus padres?
+---Iros a la mierda ---Junsu dio una patada en el aire y resopló --- Pesados. ¿Que le has dicho a tus padres?
 
---- Aun nada... me han preguntado sobre lo de aquel... dichoso accidente --- Me encogí de hombros --- Y... he pensado en hacer una cena esta noche...
+---Aun nada, me han preguntado sobre lo de aquel dichoso accidente ---me encogí de hombros --- Y he pensado en hacer una cena mañana noche.
 
---- Oh...
+---Oh...
 
---- En tu casa...
+---En tu casa.
 
---- Hum...
+---Hum...
 
-Silencio...
+Se quedó en silencio pensando y de pronto abrió mucho los ojos.
 
---- ¡¡¡¿En mi casa?!!!
+---¡¿En mi casa?!
 
-Su grito tuvo eco en el Lotte y todos nos comenzaron a mirar. Lo miré severamente y él se sonrojó mucho por haber gritado así. Y nada, mi gozo en un pozo, los periodistas comenzaron a atacarnos a preguntas, fotos, videos... Y de pronto sentí como alguien me agarraba de la mano y me sacaba de aquel barullo que se había formado. Vi a lo lejos como unos gorilas apartaban a la prensa y vi como Yunho hablaba con ellos para calmarlos. Junsu se me quedo mirando, pero alguien me impedía ir hacia él. Alce la cabeza.
+Su grito tuvo eco en el Lotte y todos nos comenzaron a mirar. Lo miré molesta y él se sonrojó mucho por haber gritado así. Y nada, mi gozo en un pozo, los periodistas comenzaron a atacarnos a preguntas, fotos y videos. De pronto sentí como alguien me agarraba de la mano y me sacaba de aquel barullo que se había formado. Vi a lo lejos como unos gorilas apartaban a la prensa y también como Yunho hablaba con ellos para calmarlos. Junsu se me quedó mirando, pero alguien me impedía ir hacia él. Alcé la cabeza.
 
---- ¿Yoochun? --- Me soltó.
+---¿Yoochun? ---me soltó.
 
---- Ese Junsu es idiota --- susurró junto con un suspiro --- ¿A quién se le ocurre gritar eso de esa manera?
+---Junsu es idiota ---susurró junto con un suspiro --- ¿A quién se le ocurre gritar eso de esa manera?
 
---- Solo a Junsu --- Sonreí y le miré a los ojos. No me estaba mirando a mí aunque lo intentaba --- Oye... yo... quiero pedirte disculpas.
+---Solo a él ---sonreí y le miré a los ojos. No me estaba mirando a mí aunque lo intentaba --- Oye, yo quiero pedirte disculpas.
 
---- ¿Y eso? --- Ahora sí que me miro con los ojos bien abiertos. Unos ojos muy oscuros que me envolvieron entera. En ese momento fui yo la que desvió la mirada --- Por... no sé, lo siento Yoochun.
+---¿Y eso? --- Ahora sí que me miró con los ojos bien abiertos. Unos ojos muy oscuros que me envolvieron entera. En ese momento fui yo la que desvió la mirada --- Por esto, no sé, lo siento Yoochun.
 
---- María --- Era mi madre --- ¿Quién es este chico?
+---María ---era mi madre --- ¿Quién es este chico?
 
---- Ah, Mamá... papá --- Los mire, al igual que Yoochun --- Ah... él es Yoochun, un compañero...
+---Ah, Mamá, papá ---los miré al igual que Yoochun --- Él es Yoochun, un compañero...
 
---- Oh --- Mi madre lo señalo --- ¿No me digas que es...?
+---Oh ---mi madre lo señaló --- ¿Es el famoso Yoochun?
 
---- Encantado, señora --- Yoochun se inclinó y hablo en español, mi madre se maravilló.
+---Encantado, señora ---Yoochun se inclinó y habló en español, mi madre se maravilló.
 
---- Al final, conseguiste que fuera tu novio --- Dijo entre risas.
+---Al final conseguiste que fuera tu novio ---dijo entre risas.
 
-Yoochun y yo nos miramos.
+Yoochun y yo nos miramos sonrojados y sorprendidos. Él mucho más que yo.
 
---- Eh... no Mamá, te equivocas, Yoochun no...
+---No Mamá, te equivocas, Yoochun no...
 
---- Yo no soy su novio --- Dijo muy educado --- Simplemente compañeros de trabajo.
+---Yo no soy su novio ---dijo muy educado sin perder la agradable sonrisa --- Simplemente, como ha dicho, soy un compañero de trabajo.
 
---- Oh, vaya, lo siento --- Miro a mi padre --- Mi hija tenía su habitación forrada con fotos tuyas por todos lados...
+---Oh, vaya, lo siento ---miro a mi padre y de nuevo volvió la mirada hacia él --- Mi hija tenía su habitación forrada con fotos tuyas por todos lados.
 
---- Mamá... --- La miré con odio.
+---Mamá ---la miré con los ojos muy abiertos, en señal que cerrara la boca.
 
---- Cierto... Aun conservas ese álbum de fotos, ¿no? --- Añadió mi padre.
+---Cierto. Aún conservas ese álbum de fotos, ¿no? ---añadió mi padre.
 
---- Basta...
+---Basta...
 
---- Oh, María --- Yoochun me miro con sonrisa... ¿sádica? --- Yo quiero verlo...
+---Oh, María ---Yoochun me miro con sonrisa ¿sádica? --- Yo quiero ver ese álbum que dicen.
 
---- papá, eso que comesestáecho solo de pollo... --- Di media vuelta.
+---Papá, eso que comes está hecho solo de pollo... ---di media vuelta yendo a otro lugar.
 
-Escuché como mi padre lo escupía del susto y como Yoochun le afirmaba que de verdad, eso no llevaba pollo. De pronto Hana me arramblo.
+Escuché como mi padre lo escupía del susto y como Yoochun le afirmaba que de verdad eso no llevaba pollo. De pronto Hana me arramblo.
 
---- ¿Has visto a Yoochun? --- Me preguntó.
+---¿Has visto a Yoochun? ---me preguntó.
 
---- ¿Que tiene ahora Yoochun que todos quieren algo con él? --- Dije muy enfadada.
+---¿Que tiene ahora Yoochun que todos quieren algo con él? ---dije muy enfadada.
 
---- ... --- Hana me miro extraña.
+---Pues... ---Hana me miro extraña.
 
---- Hija, dime, ¿dónde está Yoochun? --- Y vi a su madre, que la tenía agarrada del brazo. Yo flipé.
+---Hija, dime, ¿dónde está Yoochun? ---vi a su madre que la tenía agarrada del brazo. Yo aluciné.
 
---- Mi madre, que quiere conocerlo... --- La señalo.
+---Mi madre quiere conocerlo ---la señaló.
 
---- Pues que se peleen con mis padres... parece que están encantados con él... como solo veían su cara en mi habitación, pues con él se quedan...
+---Pues que se pelee con mis padres, parece que están encantados con él. Como solo veían su cara en mi habitación, pues con él se quedan.
 
-Me marche antes de que pudieran decir algo. ¿Por qué tenían que abrir la boca cuando no tenían que hacerlo? Yo que había pensado en hacer una cena en casa de Junsu para que... que...
+Me marché antes de que pudieran decir algo. ¿Por qué tenían que abrir la boca cuando no tenían que hacerlo? Yo que había pensado en hacer una cena en casa de Junsu para que...
 
---- Hola María --- Bingo, ahí estaban los padres de él --- La rueda de prensa ha estado genial.
+---Hola María ---bingo, ahí estaban los padres de Junsu --- La rueda de prensa ha estado genial.
 
---- Si, has hablado muy bien --- Su padre sonrió.
+---Si, has hablado muy bien ---su padre sonrió.
 
---- Muchas gracias --- Me incline sonrojada --- Lo he hecho lo mejor posible.
+---Muchas gracias ---me incline sonrojada --- Lo he hecho lo mejor posible.
 
---- Bueno, y el drama es muy bueno... todos habéis actuado muy bien --- Asintió su madre. Me estaba cayendo bien esa mujer --- Aun que veo... que nadie sabe de tu relación con mi hijo.
+---Bueno, y el drama es muy bueno, todos habéis actuado muy bien ---asintió su madre. Me estaba cayendo bien esa mujer --- Aun que veo que nadie sabe de tu relación con mi hijo.
 
---- Ahora es conveniente que no se sepa nada... --- Alce las manos.
+---Ahora es conveniente que no se sepa nada ---alcé las manos.
 
---- Hola Kiki --- Juno acababa de llegar --- Has estado muy bien.
+---Hola Kiki ---Juno acababa de llegar --- Has estado muy bien.
 
---- Gracias...
+---Gracias.
 
---- ¿Kiki? --- Sus padres lo miraron. Y ahí fue cuando Juno les explico que me llamaban cariñosamente Kiki, pero ellos fueron muy reacios a llamarme así, me dijeron que me llamarían por mi nombre --- Kiki suena muy extraño... te acabamos de conocer.
+---¿Kiki? ---sus padres lo miraron. Y ahí fue cuando Juno les explico que me llamaban cariñosamente Kiki, pero ellos fueron muy reacios a llamarme así, me dijeron que me llamarían por mi nombre --- Kiki suena muy extraño, te acabamos de conocer.
 
-Enseguida me separe de ellos para buscar a Junsu y poder decirle lo antes posible lo de la cena, que no teníamos mucho tiempo... como mucho, se podía dejar para el día siguiente, pero yo quería que se conocieran ahora que mis padres estaban en Corea. Pero por el camino me halle unas gritonas chicas...
+Enseguida me separe de ellos para buscar a Junsu y poder decirle lo antes posible lo de la cena, que no teníamos mucho tiempo. Como mucho, se podía dejar para dos días después, pero yo quería que se conocieran ahora que mis padres estaban en Corea. Pero por el camino me choqué con M, la hermana pequeña de R.
 
---- ¿M? --- Flipé en la bañera... bueno, en la bañera no porque no había, pero si hubiera habido una, sí que fliparía en una --- ¿Qué haces aquí?
+---¿M? ---me sorprendí cuando la vi y fui hacia ella --- ¿Qué haces aquí?
 
---- ¡¡Sorpresa Kikita!! --- Me abrazo --- Vine con mis padres, no podía dejar pasar esta oportunidad.
+---¡Sorpresa Kikita!! ---me abrazo --- Vine con mis padres, no podía dejar pasar esta oportunidad.
 
---- Me hace muy feliz tenerla aquí --- Dijo R abrazándola.
+---Me hace muy feliz tenerla aquí ---dijo R abrazándola.
 
---- No, a mi más --- Jane también la abrazo.
+---No, a mi más ---Jane también la abrazó.
 
---- Y a mí también --- Elena también la abrazo.
+---Y a mí también ---Elena se sumó a ese abrazo.
 
---- Vamos Kikita...
+---Vamos Kikita.
 
---- Ya que estamos --- Nos abrazamos todas --- A mí también me hace feliz.
+---Ya que estamos ---nos abrazamos todas --- A mí también me hace feliz.
 
-Y vimos a lo lejos a algunos de los SuJu, y las chicas decidieron ir a presentárselos a M, para que pudiera conocer a YeSung al menos. Y yo seguí con mi búsqueda de Junsu, que creo que me perdí, ya que volví a parar donde estaba Hana, su madre, Yoochun... y mis padres.
+Y vimos a lo lejos a algunos de los SuJu y las chicas decidieron ir a presentárselos a M para que pudiera conocer a Yesung al menos. Y yo seguí con mi búsqueda de Junsu, aunque me perdí ya que volví a parar donde estaban Hana, su madre, Yoochun y mis padres. No me gustaba ese grupo.
 
---- ¡Ah, María! --- Mi madre me llamó --- ¿Dónde te has metido?
+---¡Ah, María! ---mi madre me llamó --- ¿Dónde te has metido?
 
---- Busco a alguien... --- Seguía mirando por todos lados.
+---Busco a alguien ---seguía mirando por todos lados.
 
---- Fijo que al Junsu --- Dijo Yoochun entre risas en español.
+---Fijo que a Junsu ---dijo Yoochun entre risas en español.
 
---- Ah... Yoochun --- Dijo de pronto la madre de Hana --- Piénsate mi propuesta.
+---Ah, Yoochun ---dijo de pronto la madre de Hana --- Piensa mi propuesta.
 
---- Mamá --- Hana estaba muy roja.
+---Mamá ---Hana estaba muy roja.
 
---- ¿De qué se trata? --- Pregunte, cosa que hice mal, Hana me miro con odio.
+---¿De qué se trata? ---pregunté, cosa que hice mal ya que Hana me miró con odio.
 
---- Verás, quiero a Yoochun como yerno --- Dijo.
+---Verás hija, quiero a Yoochun como yerno ---dijo sin perder la radiante sonrisa que tenía.
 
---- No sé qué es eso --- Dijo Yoochun en coreano con una sonrisa.
+---No sé qué es eso ---me susurró Yoochun en coreano con una sonrisa.
 
---- Le he dicho que se lo piense --- Rió la mujer.
+---Y le he dicho que se lo piense ---rió la mujer.
 
---- No hace falta que lo sepas, Yoochun --- Dijo Hana roja --- Mamá, ya vale...
+---No hace falta que lo sepas Yoochun ---dijo Hana roja --- Mamá, ya vale.
 
---- ¿Se te ha pasado el enfado, hija? --- Me preguntó mi madre.
+---¿Se te ha pasado el enfado, hija? ---me preguntó mi madre pasando su mano por mi brazo.
 
---- No... --- Los miré --- Fijo que le habéis soltado algún rollo de los míos...
+---No ---los miré --- Fijo que le habéis soltado algún rollo de los míos.
 
---- Pues si --- Asintió Hana en señal de venganza, lo note --- Nos ha contado, que te pasabas horas en el ordenador viendo fotos de Yoochun.
+---Pues si ---asintió Hana en señal de venganza, lo noté --- Nos ha contado que te pasabas horas en el ordenador viendo fotos de Yoochun.
 
-No... Malo... malo... Evite mirar a Yoochun mientras ellos aún seguían hablando y riendo sobre mis paridas en mi habitación. Estaba a punto de volver a irme, cuando vi llegar a Junsu con una cara muy seria, parecía nervioso.
+No. Malo, malo. Evité mirar a Yoochun mientras ellos aún seguían hablando y riendo sobre mis momentos de amor hacia Yoochun en mi casa. Estaba a punto de volver a irme, cuando vi llegar a Junsu con una cara muy seria, parecía nervioso.
 
---- Kiki...
+---Kiki.
 
---- Ah, eh... --- Hana salto de golpe --- Vamos Yoochun, explícale a mi madre como... como... has aprendido español.
+--- Ah, eh ---Hana saltó de golpe --- Vamos Yoochun, explícale a mi madre cómo has aprendido español.
 
---- ¡Si! --- Dijo la mujer animada, mientras tenía sujeto el brazo de Yoochun.
+---¡Si! ---dijo la mujer animada, mientras tenía sujeto el brazo de Yoochun.
 
---- Los españoles son muy cariñosos --- Dijo Yoochun en coreano antes de que desaparecieran.
+---Los españoles son muy cariñosos ---dijo Yoochun en coreano antes de que desaparecieran.
 
-Junsu estaba muy tenso, lo notaba. Mis padres lo miraron por todos lados, de los pies a la cabeza. Yo temblaba por dentro, no sabía cómo iban a reaccionar, aunque había visto la buena aceptación que habían tenido con Yoochun.
+Junsu estaba muy tenso, lo notaba. Mis padres lo miraron por todos lados, de los pies a la cabeza. Yo temblaba por dentro porque no sabía cómo iban a reaccionar, aunque había visto la buena aceptación que habían tenido con Yoochun.
 
---- Mamá, papá... --- Me puse tensa --- Vamos a un lugar privado.
+---Mamá, papá... ---me puse tensa --- Vamos a un lugar privado.
 
---- ¿Qué? --- Dijeron mis padres. El que de Junsu fue un _que_ en coreano.
+---¿Qué? ---dijeron mis padres. El que de Junsu fue un _qué_ en coreano.
 
---- Digo, los tres --- Rectifique y miré a Junsu --- Que vamos a un sitio apartado a hablar de esto.
+---Digo, los tres ---rectifiqué y miré a Junsu para traducir --- Que vamos a un sitio apartado a hablar de esto.
 
---- Mis... padres los quieren conocer --- Dijo Junsu.
+---Mis padres los quieren conocer ---dijo Junsu.
 
---- Hay madre que rápido va esto --- Me eche mano a la cabeza.
+---Hay madre que rápido va esto ---me eche mano a la cabeza.
 
-Mis padres, Junsu y yo nos fuimos a una zona más privada del centro comercial y hablamos. De pronto, por arte de magia, aparecieron los padres de Junsu y yo me convertí en una traductora... aparte de un montón de gelatina que no dejaba de temblar. Y en ese momento, hice las presentaciones formales, Junsu estaba muy tenso, pero lo entendía, yo también lo estaba. Y el caso es que mis padres no se mostraron para nada como se habían comportado con Yoochun. Yo creo que al descubrir que era mi novio, mi padre sacaría su carpeta de preguntas y lo sentaría a su lado, le pondría una lámpara en la cara y hasta le preguntaría el día que empezó a andar.
+Mis padres, Junsu y yo nos fuimos a una zona más privada del centro comercial y hablamos. De pronto y por arte de magia, aparecieron los padres de Junsu y yo me convertí en una traductora, aparte de un montón de gelatina que no dejaba de temblar. Y en ese momento hice las presentaciones formales. Junsu estaba muy tenso, pero lo entendía, yo también lo estaba. Y el caso era que mis padres no se mostraron para nada como se habían comportado con Yoochun. Mi padre, al descubrir que era mi novio, sacaría su carpeta de preguntas y lo sentaría a su lado, le pondría una lámpara en la cara y hasta le preguntaría el día que empezó a andar.
 
-Y algo bueno fue, que no salió de mí, sino de los padres de Junsu, que nos invitó a que fuéramos a su casa a cenar correctamente al día siguiente. Y es que los padres de Junsu eran unas personas muy correctas y formales... no es que mis padres no lo fueran, pero se notaba que pertenecíamos a mundos diferentes. Y por un momento me quedé ausente, pensando en eso, pensando en Junsu y de lo que sería de nosotros en un futuro tal vez no muy lejano... ¿Iría bien? Entonces alguien me cogió de la mano.
+Algo bueno fue que nos invitó a que fuéramos a su casa a cenar correctamente al día siguiente, y me alegré que no saliera de mí, sino de los padres de Junsu. Y es que ellos eran unas personas muy correctas y formales. No es que mis padres no lo fueran, pero se notaba que pertenecíamos a mundos diferentes. Y por un momento me quedé ausente, pensando en eso, pensando en Junsu y de lo que sería de nosotros en un futuro tal vez no muy lejano. ¿Iría bien? Entonces alguien me cogió de la mano.
 
---- María, hija --- Era mi madre --- Nosotros nos vamos al hotel, dile que ya nos vemos mañana a la hora de la cena...
+---María, hija ---era mi madre --- Nosotros nos vamos al hotel, dile que ya nos vemos mañana a la hora de la cena.
 
---- Vale --- Se los traduje y los padres de Junsu se marcharon, dejándonos a los cuatro solos --- Por cierto, Mamá, aquí se cena a las seis...
+---Vale ---lo traduje y los padres de Junsu se marcharon, dejándonos a los cuatro solos --- Por cierto, Mamá, aquí se cena a las seis.
 
---- ¿A las seis? --- Mi padre preguntó y yo asentí --- Pues a las seis.
+---¿A las seis? ---mi padre preguntó y yo asentí --- Pues a las seis.
 
---- Encantado de conoceros --- Dijo Junsu haciendo una reverencia. Yo lo traduje --- Es un placer teneros en Corea...
+---Encantado de conoceros ---dijo Junsu haciendo una reverencia. Yo lo traduje --- Es un placer teneros en Corea.
 
---- Muchas gracias --- Dijo mi madre, lo traduje --- Espero que cuides muy bien de nuestra hija...
+---Muchas gracias ---dijo mi madre, lo traduje --- Espero que cuides muy bien de nuestra hija.
 
---- ... --- Junsu sonrió cuando se lo traduje --- Descuide, la cuidare muy bien --- Y me cogió de la mano.
+---Oh ---Junsu sonrió cuando se lo traduje --- Descuide, la cuidaré muy bien ---y me cogió de la mano.
 
-Traduje eso y mi padre miro nuestra mano. Enseguida nos despedimos de ellos y al fin me quedé sola con Junsu. Lo abracé bien fuerte, tanto, que él se sorprendió y también me abrazo.
+Traduje eso y mi padre miró nuestras manos. Enseguida nos despedimos de ellos y al fin me quedé sola con Junsu. Lo abracé bien fuerte, tanto que él se sorprendió y también me abrazo.
 
---- ¿Qué ocurre? --- Me preguntó.
+---¿Qué ocurre? ---me preguntó.
 
---- Nada... necesitaba abrazarte, simplemente --- Susurré y él me besó en la cabeza.
+---Nada, necesitaba abrazarte, poder sentirte ---susurré y él me besó en la cabeza.
 
---- Parece que les he caído bien --- Dijo mientras nos separábamos.
+---Parece que les he caído bien ---dijo mientras nos separábamos.
 
---- Si, muy bien --- Reí.
+---Sí, muy bien ---reí.
 
---- Tu también le caíste bien a mi madre, sabes --- Suspiró --- Al final fue buena idea llevarte a casa...
+---Tu también le caíste bien a mi madre, sabes ---suspiró más tranquilo --- Al final fue buena idea llevarte a casa.
 
---- Pues si... ese día fue completo...
+---Pues si, ese día fue completo.
 
---- ¡Y que lo digas! --- Rió y se llevó la mano a la cabeza.
+---Y que lo digas ---rió y apoyó la frente con la mía. 
 
-Luego nos juntamos con los demás, que estaban cenando en corro. Me fije que la madre de Hana ya no estaba, ni los padres de Elena, ni los de Jane ni los de R, pero sí que estaba M con nosotras, hablando felizmente con YeSung, bueno, R tenía que estar de intermediaria. Y nosotros nos juntamos con ellos.
+Nos juntamos con los demás, que estaban cenando en corro. Me fijé que la madre de Hana ya no estaba, ni los padres de Elena, ni los de Jane, ni los de R, pero sí que estaba M con nosotras, hablando felizmente con Yesung. Me fijé que R tenía que estar de intermediaria. Nosotros nos juntamos con ellos.
 
---- ¡¡Pollo!! --- Junsu cogió un cacho de pollo que había sobre la mesa --- Joder, estoy de los nervios.
+---¡Pollo! ---Junsu cogió un trozo de pollo que había sobre la mesa --- Joder, estoy de los nervios.
 
---- Ah, Junsu --- Lo cogí del brazo --- A mi padre no le gusta el pollo...
+---Ah, Junsu ---lo cogí del brazo --- A mi padre no le gusta el pollo.
 
---- ......... --- Me miro con la boca abierta.
+Me miro con la boca abierta.
 
---- Es cierto --- Dijo Yoochun --- Kiki eres muy cruel, casi se atraganta...
+---Es cierto ---dijo Yoochun --- Kiki eres muy cruel, casi se atraganta.
 
---- Bueno, se lo merecía --- Lo miré mal.
+---Bueno, se lo merecía --- Lo miré mal.
 
---- Lo hacía con buena intención... --- Sonrió.
+---Lo hacía con buena intención ---sonrió.
 
---- ¿Buena intención? --- Me volví a enfadar y me encare con Yoochun --- Ni de coña, Yoochun. Mi madre sabía perfectamente que... que... --- Y me quedé muda con el dedo alzado enfrente de su cara --- Olvídalo.
+---¿Buena intención? ---me volví a molestar al recordarlo y me encaré con Yoochun --- Ni de coña, Yoochun. Mi madre sabía perfectamente que... que... ---y me quedé muda con el dedo alzado enfrente de su cara, muy sonrojada --- Olvídalo.
 
---- ... --- El suspiró y desvió la mirada.
+Yoochun suspiró y desvió la mirada.
 
---- Hora de explicar que pasa --- Dijo Junsu, todos se habían quedado en silencio mientras nos escuchaban.
+---Hora de explicar que pasa ---dijo Junsu, todos se habían quedado en silencio mientras nos escuchaban.
 
---- No es nada --- Dije yo.
+---No es nada ---dije yo.
 
---- Mejor olvidarlo --- Dijo Yoochun.
+---Mejor olvidarlo ---dijo Yoochun.

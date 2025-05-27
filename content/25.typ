@@ -1,274 +1,271 @@
 = Capítulo 25
 
-Cuando llego el fin de semana, mi nariz ya estaba mejor. Para ser exactos, dijo Jane que ya tenía un color más normal, pero la muy desgraciada se pasaba el rato dándome golpecitos.
+Cuando llegó el fin de semana mi nariz ya estaba mejor. Para ser exactos Jane había dicho que ya tenía un color más normal, pero la muy desgraciada se pasaba el rato queriéndome dar golpes.
 
---- ¡¡Jane!! --- Lloriquee cansada --- Que odio que me toquen la nariz.
+---¡Jane! ---lloriquee cansada --- No me gusta que me den en la nariz, además duele.
 
---- ¡Ah, por eso lo hago! --- Rió divertida.
+---¡Ah, por eso lo hago! ---rió divertida.
 
---- ... --- La miré mal --- Me duele...
+---Eres una mala persona ---la miré mal.
 
---- Bueno, bueno --- Hana se puso en pie y capto nuestra atención --- Hora que de salgas Kiki, y no con Junsu ni a la SM.
+---Bueno, bueno ---Hana se puso en pie y captó nuestra atención --- Hora que de salgas Kiki, y no con Junsu ni a la SM.
 
---- ¿Y a dónde quieres que vaya? --- La miré sorprendida.
+---¿Y a dónde quieres que vaya? ---la miré sorprendida.
 
---- Confía en Hana... --- Se señaló --- Se lo que hago.
+---Confía en Hana ---se señaló --- Se lo que hago.
 
---- No sé qué decir... --- Susurre, pronto me calló una zapatilla en la cabeza.
+---No sé qué decir ---susurré, pero una zapatilla me golpeó la cabeza.
 
-Confiar en Hana era muy peligroso, no sabía que podía esperar de ella. Pronto nos hizo que nos arregláramos y nos pusiéramos guapas... Mientras yo me miraba en el espejo, me escondía con maquillaje un poco más la nariz. De pronto mi móvil sonó.
+Confiar en Hana era muy peligroso ya no sabía qué podía esperar de ella, nos hizo que nos arregláramos y nos pusiéramos guapas. Mientras yo me miraba en el espejo y me escondía con maquillaje un poco más la nariz, mi móvil comenzó a sonar.
 
---- ¿Diga? --- Conteste sin mirar.
+---¿Diga? ---conteste sin mirar la pantalla, con los ojos puestos en el maquillaje de mi nariz.
 
---- Kiki, soy Heechul --- Sonaba serio.
+---Kiki, soy Heechul ---sonaba serio y me sorprendió.
 
---- ¿Estas bien? --- Y me preocupo la forma en la que estaba hablando.
+---¿Estas bien? ---me preocupó la forma en la que estaba hablando.
 
---- Yo sí... --- Suspiro --- Escúchame Kiki, no salgas de casa...
+---Yo sí ---suspiró --- Escúchame Kiki, no salgas de casa.
 
---- ¿Qué? --- Me quedé un poco en shock --- ¿Que ha pasado, Heechul?
+---¿Qué? ---me quedé un poco en shock --- ¿Que ha pasado, Heechul?
 
---- Mira, resumidamente... --- Dijo --- Un grupo de fans te vieron en casa de Yoochun, vieron algo malo y ahora no eres la más popular...
+---Mira, te lo voy a resumir ---dijo con rapidez --- Un grupo de fans te vieron en casa de Yoochun y ahora no eres la más popular.
 
---- Pero... Heechul --- Recordé malos momentos y quise llorar --- Yo... no hice nada malo...
+---Pero Heechul ---recordé malos momentos y quise llorar --- No hice nada malo.
 
---- Kiki no salgas de casa --- Advirtió por última vez --- Por favor... --- Y colgó.
+---Kiki no salgas de casa ---advirtió por última vez --- Por favor... ---colgó la llamada.
 
-Mi cara era un poema, realmente podía verlo porque aún me estaba mirando al espejo. La pintura negra que envolvían mis ojos se estaba corriendo a causa de mis lágrimas, que empezaron a caer sin que yo me diera cuenta hasta que mire.
+Mi cara era un poema, realmente podía verlo porque aún me estaba mirando al espejo. La pintura negra que envolvían mis ojos se estaba corriendo a causa de las lágrimas que comenzaron a inundar mis ojos. Un par de ellas cayeron por mis mejillas y me llevé la mano al pecho notando el corazón latir rápido.
 
---- ¡Kiki Hana dice que...! --- R entro y se quedó parada al verme por el espejo --- ¿Estas bien? ¿Te has hecho daño? --- Miro mi mano --- ¿Con quién has hablado...?
+---¡Kiki, Hana dice que...! ---R entró y se quedó parada al verme por el espejo --- ¿Estas bien? ¿Te has hecho daño? ---miró mi que en mi mano tenía el teléfono --- ¿Con quién has hablado...?
 
-No dije nada, me di la vuelta y la abrace, estallando a llorar como una niña. De pronto escuché pasos y las demás estaban a mi alrededor preguntándome por que lloraba... y yo no podía contestar, solo tenía en mente las palabras que Heechul el escandaloso, me había dicho muy serio. Me seque las lágrimas con las mangas de la camiseta negra que llevaba y me separe de ella.
+No dije nada, solo me giré y la abracé, terminando por hipar entre lágrimas. Escuché pasos y las demás estaban a mi alrededor preguntándome por qué lloraba y yo no podía contestar. Solo tenía en mente las palabras que Heechul me había dicho muy serio. Me seque las lágrimas con las mangas de la camiseta que llevaba y me separe de ella.
 
---- ¿Quién te ha llamado? --- Volvió a preguntar R con preocupación.
+---¿Quién te ha llamado? ---volvió a preguntar R con preocupación.
 
---- Heechul --- Solloce y me incline en el lavabo para lavar mi cara.
+---Heechul ---sollocé y me incliné en el lavabo para lavar mi cara.
 
---- ¿Que te ha dicho? --- preguntó Elena --- Mira que nos estas preocupando mucho...
+---¿Que te ha dicho? ---preguntó Elena.
 
---- Es cierto Kikita... --- susurró Jane con un puchero el cual no vi, pero supe que estaba ahí.
+---Pues... ---me di la vuelta y me sequé la cara con la toalla --- Me ha pedido que no salga de casa. Algo vieron las Cassiopeia en casa de Yoochun y yo soy la que se lleva el marrón.
 
---- Bien... --- Me di la vuelta y me seque la cara con la toalla --- Me ha pedido que no salga de casa... Algo vieron las Cassiopeia en casa de Yoochun que no les gusto... y yo soy la que se lleva el marrón.
+---¿Qué hiciste Kiki? ---Hana habló por todas, que se sorprendieron por lo que dije. 
 
---- ... --- Las cuatro se quedaron en silencio y se miraron. Hana tomo la palabra al fin --- ¿Qué hiciste, Kiki?
+---Nada, no salí de la casa en ningún momento. Me quedé en cama porque estaba mareada y con dolor de nariz ---intentaba acordarme de algo raro que hubiera hecho --- Salí de su casa cuando era de noche, no había nadie y no parecía una chica saliendo de casa de Yoochun. Yo no... ---más lágrimas cayeron.
 
---- Nada... yo no salí de la casa en ningún momento. Me quedé en cama, estaba mareada y con dolor de nariz... --- Intentaba acordarme de algo --- Salí de su casa cuando era de noche, no había nadie y yo no parecía una chica saliendo de casa de Yoochun... Yo... no... --- Mas lagrimas cayeron --- ... hice nada...
+---Ya ---Hana me abrazó y llamaron al timbre --- Tranquila.
 
---- Ya... --- Hana me abrazo y llamaron al timbre --- Tranquila...
+---Voy a ver... ---Elena salió de mi habitación.
 
---- Voy a ver... --- Elena salió de mi habitación.
+Nos quedamos en silencio mientras yo me intentaba tranquilizar. De pronto escuchamos un grito que fue ahogado por algo. Jane salió a ver qué pasaba y nosotras nos quedamos extrañadas. Elena entró a mi dormitorio con gesto serio y enfadada.
 
-Nos quedamos en silencio mientras yo me intentaba tranquilizar. De pronto escuchamos un grito que fue ahogado por algo. Jane salió a ver qué pasaba y nosotras nos quedamos expectantes. De pronto se asomó Elena, con cara muy enfadada.
+---Kiki, sal ---me dijo --- Por favor.
 
---- Kiki, sal --- Me dijo --- Por favor...
+Salimos de la habitación y me encontré a Heechul con una gran sonrisa, con una botella de vino en la mano izquierda y dos copas en la derecha. Hangneng, que estaba detrás, sonreía. Al igual que Siwon, Kangin y Yesung.
 
-Extrañada, salimos de la habitación y me encontré con Heechul con una gran sonrisa, con una botella de vino en la mano izquierda y dos copas en la derecha. Hangneng, que estaba detrás, sonreía. Al igual que Siwon, Kangin y YeSung.
+---¡Sorpresa! ---gritó Heechul alzando los brazos.
 
---- ¡Sorpresa! --- Grito Heechul alzando los brazos.
+Yo me quedé muda. Totalmente muda. Solo tenía ojos para Heechul y su radiante sonrisa. Di unos pasos hasta su dirección y le solté un bofetón. Él como acto reflejo se llevó la mano derecha a su cara y las copas cayeron al suelo haciendo un gran estruendo al romperse contra el suelo. Me miró perplejo.
 
-Yo me quedé muda. Totalmente muda. Muda, sorda... y solo tenía ojos para Heechul y su radiante sonrisa. Di unos pasos hasta su dirección y le solté un bofetón. Él como acto reflejo se llevó la mano derecha a su cara y las copas cayeron al suelo haciendo un gran estruendo al estrellarse contra el suelo. Me miro perplejo.
+---Eres un idiota ---conseguí decir y me marché de allí.
 
---- Eres un idiota --- Conseguí decir. Y cuando pude hablar, Hana y Elena se encararon a él, ya que yo me marche de allí.
+---María ---el único que me llamaba así era Siwon. Vino detrás de mí --- Espera.
 
---- María --- El único que me llamaba así era Siwon. Vino detrásde mí --- Espera...
+---Qué ---me giré y lo miré muy seria, él se paró y dió un paso atrás.
 
---- Que --- Me gire y lo miré muy seria, él se paró y dio un paso atrás.
+---¿Por qué le has pegado? ---más seguro se acercó a mí --- No lo ha hecho con mala intención.
 
---- ¿Por qué le has pegado? --- Más seguro, se acercó a mí --- No lo ha hecho con mala intención...
+---Intenta recordar por qué, antes del estreno de SM, me tiré un mes sin pisar la compañía ---dije muy seria, alzando un dedo --- ¿Puedes recordar?
 
---- Intenta recordar por que, antes del estreno de SM me tiré un mes sin pisar la compañía --- Dije muy seria, alzando un dedo --- ¿Puedes recordar?
+---Sí ---asintió apretando los labios.
 
---- ... --- Asintió en silencio.
+---Pues la broma no me ha gustado nada ---relajé el cuerpo y los hombros, suspiré --- No ha traído buenos recuerdos a mi cabeza. Me ha dolido.
 
---- Pues la broma no me ha gustado nada --- Destense los hombros y suspire --- No ha traído buenos recuerdos a mi cabeza... Me ha dolido...
+---Lo siento mucho ---colocó su mano sobre mi hombro --- No nos acordamos, él insistió mucho en decir eso, aunque Hannie y yo no estábamos muy de acuerdo.
 
---- Lo siento mucho... --- Coloco su mano sobre mi hombro --- No nos acordamos... el insistió mucho en decir eso, aunque Hannie y yo no estábamos muy de acuerdo.
+---Kiki... ---Heechul se acercó a nosotros --- Lo siento mucho.
 
---- Kiki... --- Heechul se acercó a nosotros --- Lo siento mucho.
+---¿No se te podría haber ocurrido otra cosa? ---resoplé y lo miré. Me acerque a él --- Tu sabes muy bien lo mal que lo pase en aquel tiempo y se te ocurre esa idea Heechul, ¿tu cabeza no riega bien o qué?
 
---- ... --- Resople y lo miré --- ¿No se te podría haber ocurrido otra cosa? --- Me acerque a él --- Tu sabes muy bien lo mal que lo pase en aquel tiempo... y se te ocurre esa idea... Heechul, ¿tu cabeza no riega bien o qué?
+---Lo siento mucho...
 
---- Va a ser que no --- escuché de fondo a Kangin.
+Salió del piso aún con la botella de vino en la mano, cerrando la puerta a su espalda. Hangneng salió tras él y los demás se quedaron extrañados por la actuación de Heechul.
 
---- Lo siento mucho...
+---Se lo merece ---bufó Hana enfadada --- Con eso no se juega.
 
-Se giró, cogió la botella de vino y salió de la casa sin decir nada y cerrando la puerta a su espalda. Hangneng salió tras él y los demás se quedaron extrañados por la actuación de Heechul.
+---¿Gritaste enfadada al verlo? ---le preguntó R a Elena.
 
---- Se lo merece --- Bufo Hana enfadada --- Con eso no se juega...
+---Sí --- Asintió --- Kangin me tapo la boca creyendo que sería una grata sorpresa.
 
---- ¿Gritaste enfadada al verlo? --- Le preguntó R a Elena.
+---De grata nada ---dijo Jane.
 
---- Si --- Asintió --- Kangin me tapo la boca, creyendo que sería una grata sorpresa.
+---Lo siento mucho, de verdad María ---Siwon me volvió a mirar --- Si quieres nos vamos.
 
---- De grata nada --- Dijo Jane.
+---No hace falta ---susurró Jane.
 
---- Lo siento mucho, de verdad María --- Siwon me volvió a mirar --- Si quieres nos vamos...
+---Sí mejor ---dije y escuché un quejido por parte de Jane --- Se me han quitado las ganas de salir.
 
---- No hace falta --- susurró Jane.
+Me encerré en mi habitación y apagué el teléfono.
 
---- Si, mejor --- Dije y la rubia me miro con un puchero --- Se me han quitado las ganas de salir.
+Se me habían quitado las ganas hasta de hablar con Junsu. Pasada una hora llamaron a mi puerta diciéndome que Junsu quería hablar conmigo, pero yo me negaba. Hasta que no fue la décima vez que me llamó, amenazando que vendría a casa si no contestaba, no abrí la puerta.
 
-Me encerré en mi habitación y apague el teléfono. Se me habían quitado las ganas hasta de hablar con Junsu. Pasada una hora, llamaron a mi puerta diciéndome que Junsu quería hablar conmigo, pero yo me negaba. Hasta que no fue la décima vez que me llamo, diciendo que vendría a casa si no contestaba, no abrí la puerta.
+---¡Kiki! ---me puse el teléfono en la oreja, pero con las mismas lo separé ya que comenzó a gritar --- ¿Qué demonios te pasa, por qué está tu teléfono apagado, por qué no quieres hablar conmigo, por qué...?
 
---- ¡¡Kiki!! --- Me puse el teléfono en la oreja, pero con las mismas lo separe, comenzó a gritar --- ¿Qué demonios te pasa, por qué está tu teléfono apagado, por qué no quieres hablar conmigo, por qué...?
+---Tranquilo ---dije con calma --- Estoy un poco desganada.
 
---- Tranquilo... --- Dije con calma --- Estoy un poco desganada.
+---Lo noto ---se puso serio --- ¿Que ha pasado? Las chicas no han querido contármelo.
 
---- Lo noto --- Se puso serio --- ¿Que ha pasado? Las chicas no han querido contármelo...
+---Pues... ---se lo conté todo aunque cuando terminé me arrepentí un poco de contarle toda la verdad, se enfadó muchísimo --- Junsu, cálmate.
 
---- Pues... --- Y se lo conté todo, aunque cuando termine, me arrepentí un poco de contarle toda la verdad, se enfadó muchísimo --- Junsu, cálmate...
+---¿Que me calme? ---gritó y escuché voces que se quejaban de los gritos de Junsu --- ¡Ese Heechul se las verá conmigo! ¿A caso es idiota? ¿Cómo se le ocurre hacer algo así?
 
---- ¿Que me calme? --- Grito y escuché voces que se quejaban de los gritos de Junsu --- ¡¡Ese Heechul se las verá conmigo!! ¿A caso es idiota? ¿Cómo se le ocurre hacer algo así?
+---No seas cruel ---intenté hacer que se relajara --- Ya le he gritado yo, creo que está muy arrepentido de lo que ha hecho.
 
---- No seas cruel... --- Lo calme --- Ya le he gritado yo... creo que está muy arrepentido de lo que ha hecho...
+---Pues espera que lo vea yo, se arrepentirá de haberle gastado esa broma a la novia de Kim Junsu. Con lo que quiero no se juega. ---comenzó a decir cosas incoherentes --- Luego me dice el a mí que soy un peligro para ti, si el solo te causa problemas...
 
---- Pues espera que lo vea yo... se arrepentirá de haberle gastado esa broma a la novia de Kim Junsu... no, no, no... Con lo que quiero no se juega... --- Comenzó a decir cosas incoherentes --- Luego me dice el a mí que soy un peligro para ti... si el solo te causa problemas...
+---Junsu...
 
---- Junsu...
+---Junsu, cállate o te pongo un tapón ---escuché la voz de Changmin al otro lado del teléfono --- ¿Con quién narices hablas?
 
---- “Junsu, cállate o te pongo un tapón” --- escuché la voz de Changmin al otro lado del teléfono --- “¿Con quién narices hablas?” --- Preguntó. Junsu contestó --- Hablo con Kiki, que le han gastado una broma pesada --- Dijo muy enfadado --- Así que no me toques las narices, Changmin... ¿Kiki?
+---Hablo con Kiki, que le han gastado una broma pesada ---dijo Junsu muy enfadado --- Así que no me toques las narices, Changmin... ¿Kiki, estás ahí?
 
---- Si...
+---Si...
 
---- “Quita...” --- Se escuchó un forcejeo, quejas de Junsu y suplicas de Changmin. Al final escuché el suspiro victorioso del menor --- Bueno... ¿Qué ha pasado?
+---Quita... ---se escuchó un forcejeo y quejas de Junsu. Al final escuché el suspiro victorioso de Changmin al otro lado de la línea --- Bueno, ¿qué ha pasado?
 
---- Eh... No es nada...
+---Tampoco es para tanto.
 
---- Ya claro... Junsu no me habla así porque no ha pasado nada --- Dijo serio --- Y tampoco grita por amor al arte... bueno, a veces sí, pero no es el caso.
+---Ya claro. Junsu no me habla así porque no ha pasado nada ---dijo serio.
 
---- ... --- Sonreí --- ¿Que estáis haciendo?
+---¿Que estáis haciendo? ---sonreí tratando de relajarme.
 
---- Se supone que descansar... pero nadie hace nada --- Se quedó en silencio --- Oye, no me cambies de tema... “no te lo va a decir” --- Dijo Junsu de fondo --- ¿Escuchas algo, Kiki?
+---Se supone que descansar pero nadie hace nada ---se quedó en silencio --- Oye, no me cambies de tema --se escuchaba a Junsu de fondo hablando algo --- ¿Escuchas algo, Kiki?
 
---- ... --- Me reí, sinceramente tenía que reírme --- Bueno... ha pasado esto... --- Y se lo conté. La verdad es que también se enfadó, pero no tanto como Junsu --- Y nada más...
+---No ---me reí, sinceramente tenía que reírme --- Bueno, te lo voy a decir ---se lo conté. La verdad es que también se enfadó, pero no tanto como Junsu.
 
---- Me parece mal por parte de Heechul, pero tampoco creía que te pondrías así... supongo que por eso lo hizo --- Dijo pensativo.
+---Me parece mal por parte de Heechul, pero creo que él pensó que no te lo tomarías de esa manera ---dijo pensativo.
 
---- Puede ser... ahora que lo miro más fríamente, puede ser eso --- Suspire --- Gracias por ser tan razonable Changmin.
+---Puede ser, ahora que lo miro más fríamente, puede ser eso ---suspiré cansada, mirando por la ventana --- Gracias por ser tan razonable Changmin.
 
---- No hay que darlas --- Rió --- ¿Sabes Jun---Chan? --- Su nombre lo dijo con rabia entre risas --- Me ha dado las gracias... porque soy mejor que tu...
+---No hay que darlas ---escuché como se echó a reí --- ¿Sabes Junchan? ---su nombre lo dijo con rabia entre risas --- Me ha dado las gracias porque soy mejor que tú...
 
---- ¡¡Quita!! --- Le quito el teléfono y me hablo --- Kiki... no hagas caso a Changmin...
+---¡Quita! ---le quitó el teléfono y me habló --- Kiki, no hagas caso a Changmin.
 
---- A ti te cae muy mal Heechul --- Le dije --- Pero ahora quiero relajarme... ¿Nos veremos mañana?
+---A ti te cae muy mal Heechul ---le dije --- Pero ahora quiero relajarme, ¿nos veremos mañana?
 
---- No --- Me dijo y me quedé algo impactada --- Lo siento, tenemos una entrevista con una revista y una sesión de fotos...
+---No creo ---me dijo y me sorprendí --- Lo siento, tenemos una entrevista con una revista y una sesión de fotos.
 
---- Vaya... --- Me quedé callada --- Pues ya me llamas...
+---Vaya ---escondí la cabeza entre mis rodillas --- Entonces me llamarás mañana.
 
---- Claro --- Rió --- Y tú no sufras más, que yo te... ... Changmin, lárgate, ¿quieres? --- escuché unas risas y el cerrar de una puerta --- Te quiero...
+---Claro ---escuché su risa y yo sonreí --- Y tú no sufras más, que yo te... Changmin, lárgate ---escuché unas risas y el cerrar de una puerta --- Te quiero.
 
---- ... --- Me sonrojé --- Yo también.
+---Yo también te quiero ---me sonrojé.
 
 Salí de la habitación más relajada y disfrute de una noche entre risas con las chicas. Una noche divertida llena de juegos, olvidando la broma pesada de Heechul.
 
-El sábado amaneció y mientras yo tomaba leche caliente,
-encendí la tele y vi las noticias matutinas. No había muchas cosas que me pudieran interesar, excepto un reportaje del estreno de “SM Entertainment High School”. Sinceramente me gustó mucho verlo por la tele, además de ver la buena acogida que había tenido en el país a pesar de que éramos extranjeras. También hablaron sobre las anti fan, así que eso me dejo un poco chafada, pero no lo podía evitar. Y entonces también explicaron la gran audiencia que estaba teniendo en su segundo y tercer episodios emitidos el jueves y viernes de esa misma semana.
+El sábado amaneció y mientras yo tomaba un café caliente, encendí la tele y vi las noticias matutinas. No había muchas cosas que me pudieran interesar, excepto un reportaje del estreno de "SM Entertainment High School". Sinceramente me gustó mucho verlo por la tele, además de ver la buena acogida que había tenido en el país a pesar de que éramos extranjeras. También hablaron sobre las respuestas negativas que habían sacado, así que eso me dejo un poco chafada, pero no lo podía evitar. Y entonces también explicaron la gran audiencia que estaba teniendo en su segundo y tercer episodios emitidos el jueves y viernes de esa misma semana.
 
---- ¿Que ves, Kiki? --- Elena bebía café.
+---¿Que ves, Kiki? ---Elena bebía café.
 
---- Pues la noticia del drama --- Señale la tele --- Están hablando muy bien sobre el... estoy muy feliz.
+---Pues la noticia del drama ---señale la tele --- Están hablando muy bien, estoy muy feliz.
 
---- Me alegro --- Nos abrazamos.
+---Me alegro ---se sentó a mi lado y me dió con suavidad en el brazo con el codo.
 
---- Pues menos mal que tenemos algunos episodios grabados --- Dijo Hana de fondo --- Y que Lee Sooman ha sido comprensivo...
+---Pues menos mal que tenemos muchos episodios grabados ---dijo Hana de fondo --- Y que Lee Sooman ha sido comprensivo.
 
---- La verdad es que si... --- Temblé de miedo --- Nunca sé por dónde saldrá ese hombre...
+---La verdad es que si ---temblé de miedo --- Nunca sé por dónde saldrá ese hombre.
 
---- Kiki, la nariz ya la tienes mucho mejor --- Dijo Elena --- Yo ya creo que hoy podrás retomar la filmación... Hemos adelantado muy poco del episodio //seis...
+---Kiki, la nariz ya la tienes mucho mejor ---dijo Elena --- Ya creo que hoy podrás retomar la filmación. Hemos adelantado episodios sin ti, pero ya se hace imposible.
 
---- ¿Seis? --- Pregunte y asintieron --- Guay, tengo que repasar el guion para saber que parte es.
+---Lo imagino ---subí las piernas al sofá y me abracé las rodillas --- Tengo que ponerme con el guión para ponerme al día.
 
---- No creo que te agrade --- Dijo de pronto Hana.
+---No creo que te agrade por donde vamos ---dijo de pronto Hana.
 
-No se habló más sobre eso hasta que llegamos a la SM. Tuve una pequeña reunión con Lee Sooman y volví al rodaje. Y claro que el episodio seis no me iba a gustar. Olvide por completo de que iba ese capítulo... y es que estaba demasiado rato con Yoochun. Llegamos al estudio y vimos a Se7en hablar tranquilamente con Jae, el resto estaban desperdigados por todo el estudio. Y me extrañe, ¿no tenían una entrevista?
+No se habló más sobre eso. Sin demora nos arreglamos y marchamos en taxi hasta la SM. Al llegar tuve una pequeña reunión con Lee Sooman y volví al rodaje. Y claro que lo que llegaba a continuación no me iba a gustar. Olvidé por completo de que iba esa parte, y es que estaba demasiado rato con Yoochun. Llegamos al estudio y a Jae hablar tranquilamente con otro de los actores que salían de extra, el resto estaban desperdigados por todo el estudio. Y me extrañé, ¿no tenían una entrevista o algo así?
 
---- Hola --- Jae y Se7en se acercaron a nosotras --- ¿Ya estas mejor, Kiki?
+---Hola ---Jae se acercó a mí sonriente al verme entrar --- ¿Ya estas mejor, Kiki?
 
---- Si, mucho mejor --- Asentí sonriente --- Ya no se nota...
+---Sí, mucho mejor ---asentí sonriente --- Ya no se nota nada.
 
---- Me alegro --- Asintió el mayor --- Te echábamos de menos por aquí...
+---Me alegro ---respiró relajado --- Te echábamos de menos por aquí. Junsu estaba insoportable.
 
---- Junsu estaba insoportable --- Asintió Jae.
+---¿Vosotros no teníais una entrevista? ---le pregunté.
 
---- ¿Vosotros no teníais una entrevista? --- Le pregunte a Jae.
+---Ah, sí, pero es más tarde ---movió la mano con dejadez --- Así que podemos grabar un rato.
 
---- Ah, sí, pero es a las once... --- Movió la mano con dejadez --- Así que podemos grabar un rato.
+Empezamos con el rodaje en la cafetería. Todo iba bien, perfecto, pero cuando más me equivocaba era cuando hablaba con Yoochun. Una de las veces miré a Junsu, el cual me miraba serio desde una esquina mientras hablaba con Jane.
 
-Y empezamos con el rodaje en la cafetería, luego en clase... Y es que todo iba bien, perfecto, pero cuando más me equivocaba era cuando hablaba con Yoochun. Una de las veces miré a Junsu, el cual me miraba serio desde una esquina mientras hablaba con Jane.
+---Ahora vengo ---me disculpé --- Tengo que ir al baño.
 
---- Ahora vengo --- Me disculpe --- Tengo que ir al baño...
+Me puse la mano en la frente y fui directa al cuarto de baño, me eche agua por la nuca ya que no podía mojarme la cara por el maquillaje y jadee un poco por todo lo que se me avecinaba. Alguien entro al baño, alce la cabeza y de la sorpresa, me resbale por el agua y caí al suelo de culo.
 
-Me puse la mano en la frente y fui directa al cuarto de baño, me eche agua por la nuca, ya que no podía mojarme la cara por el maquillaje y jadee un poco por todo lo que se me avecinaba. Alguien entro al baño, alce la cabeza y de la sorpresa, me resbale y caí al suelo.
+---¿Estas bien? ---Changmin extendió su mano.
 
---- ¿Estas bien? --- Changmin extendió su mano.
+---Si ---la agarré y me ayudó a incorporarme --- ¿Qué haces aquí dentro?
 
---- Si... --- La agarre y me ayudo a incorporarme --- ¿Qué haces aquí dentro?
+---Quiero hablar contigo ---miró en todos los aseos y se cercioró de que estábamos solos --- Sobre Yoochun.
 
---- Quiero hablar contigo --- Miro en todos los aseos y se cercioro de que estábamos solos --- Sobre Yoochun.
+---¿Yoochun? ---me puse nerviosa --- ¿Que ocurre con Yoochun? ¿Está bien?
 
---- ¿Yoochun? --- Me puse nerviosa --- ¿Que ocurre con Yoochun? ¿Está bien?
+---Kiki --- Me miro y yo al instante me quedé en silencio --- Por favor, aclárate.
 
---- Kiki --- Me miro y yo al instante me calle --- Por favor, aclárate.
+---¿Qué? ---¿Me estaba diciendo que me aclarara? Suspiré con fuerza.
 
---- ¿Qué? --- ¿Me estaba diciendo que me aclarara? Suspire.
+---Sé que no me tengo que meter, que es tu vida, pero yo lo veo en el día a día con los chicos ---dijo él más serio de lo normal --- Y no te digo que dejes a Junsu ni mucho menos, solo que no des esperanzas a Yoochun.
 
---- Sé que no me tengo que meter, que es tu vida... pero yo lo veo en el día a día de los chicos --- Dijo él más serio de lo normal --- Y no te digo que dejes a Junsu, ni mucho menos... solo que no des esperanzas a Yoochun.
+---¿Que paranoia os estáis montando todos? ---bufé molesta --- Hace dos semanas Boa me decía lo mismo. ¡Yo no le doy esperanzas a nadie! Escúchame, es normal que me ponga nerviosa delante de Yoochun ---lo señale con el dedo y le di en el hombro --- Siempre lo he admirado desde que os conocí, no soy de piedra ante eso. Changmin, a quien quiero es a Junsu, no a Yoochun.
 
---- ¿Que paranoia os estáis montando todos? --- Bufe --- Hace dos semanas Boa me decía lo mismo. ¡¡Yo no le doy esperanzas a nadie!! Escúchame, es normal que me ponga nerviosa delante de Yoochun --- Lo señale con el dedo y le di en el hombro --- Siempre lo he admirado... desde que os conocí, no soy de piedra ante eso... Además, pasaron ciertas cosas en el estreno por culpa de mis padres, por lo que no puedo concentrarme bien... Changmin, quiero a Junsu... no a Yoochun.
+Me quise ir sin querer escuchar su respuesta, pero me agarró del brazo y me sacó del cuarto de baño, nos paramos en la puerta del estudio y nos asomamos por una ventana que había en la puerta.
 
-Me quise ir sin querer escuchar su respuesta, pero me agarro del brazo y me saco del cuarto de baño, nos paramos en la puerta del estudio y nos asomamos por la ventanilla.
+---Mira ---me dijo --- ¿Ves a Junsu?
 
---- Mira --- Me dijo --- ¿Ves a Junsu?
+---Claro, lo veo como siempre ---le dije --- No te ralles, por favor.
 
---- Claro, lo veo como siempre --- Le dije --- No te rayes, por favor...
+---Kiki ---volvió a captar mi atención --- Está bien todo lo que me has dicho, muy bien, pero quieras o no...
 
---- Kiki --- volvió a captar mi atención ---está bien todo lo que me has dicho, muy bien, pero quieras o no...
+---Ya ---le tapé la boca y lo miré seria --- No quiero escuchar nada mas Changmin. Ni una palabra sobre el tema. Ya basta.
 
---- Ya --- Le tape la boca y lo miré seria --- No quiero escuchar nada mas Changmin. Ni una palabra sobre el tema... Ya basta.
+---Como quieras.
 
---- Como quieras...
+---Gracias.
 
---- Gracias.
+Entré de nuevo al estudio y él camino más despacio detrás de mí. Me dirigí a Junsu y lo miré a la cara por un momento. Jane, que estaba a su lado, se marchó sin decir nada.
 
-Entre de nuevo al estudio y él camino más despacio detrás de mí. Me dirigí a Junsu y lo miré a la cara por un momento. Jane, que estaba a su lado, se marchó sin decir nada.
+---¿Ocurre algo? ---me preguntó extrañado.
 
---- ¿Ocurre algo? --- Me preguntó extrañado.
+---Junsu... ---bajé la voz para que solo me escuchara él --- ¿Por qué me dijiste que no nos veríamos hoy?
 
---- Junsu... --- Puse un puchero --- ¿Por qué me dijiste que no nos veríamos hoy?
+---Ah... ---me colocó la mano en el hombro y con la otra intentó tocar mi nariz, pero no le dejé --- Creí que aun tendrías mal la nariz, y como después tenemos la entrevista...
 
---- Ah, eh... --- Me coloco la mano en el hombro y con la otra intento tocar mi nariz, pero no le deje --- Creí que aun tendrías mal la nariz, y como a las once tenemos la entrevista...
+---Ya... ---agaché la cabeza.
 
---- Ya... --- Agache la cabeza.
+---¿Estás bien? ---intentó abrazarme, pero no le dejé --- ¿Kiki?
 
---- ¿Estas bien? --- Intento abrazarme, pero no le deje --- ¿Kiki?
+---Sí, estoy bien ---lo miré con una sonrisa --- Mañana me gustaría que fuéramos al parque de atracciones tu y yo solos.
 
---- Sí, estoy bien --- Lo miré con una sonrisa --- Mañana me gustaría que fuéramos al parque de atracciones tu y yo solos...
+---Eso no es posible ---me dijo serio --- Tú y yo no podremos ir de paseo fuera de la SM.
 
---- No creo que sea posible --- Me dijo serio --- Creo que tú y yo no podremos ir de paseo fuera de la SM...
+---Ya, supongo ---me encogí de hombros.
 
---- Ya, supongo --- Me encogí de hombros...
+---¡Kiki! ---Yoochun capto mi atención --- Vamos, no podemos perder tiempo.
 
---- ¡¡Kiki!! --- Yoochun capto mi atención --- Vamos, no podemos perder tiempo.
+---Junsu ---me acerqué a su oído --- Confía en mí.
 
---- Junsu --- Baje la voz --- Cree en mi...
+---¿Qué?
 
---- ¿Qué?
+Sonreí y seguimos con el rodaje. Creía que iba a ser difícil grabar una escena en la que llovía, pero los técnicos lo tenían todo preparado, lluvia artificial. Cuando terminamos de rodar las escenas importantes que yo había dejado atrás, nos felicitaron por lo bien que había salido, ya que no hicimos casi tomas falsas. A mi me dijeron que había simulado muy bien las lágrimas en algunas escenas. Tan solo había necesitado pensar en la conversación que había tenido con Changmin para que salieran solas.
 
-Sonreí y seguimos con el rodaje. Iba a ser un poco difícil grabar la escena de la lluvia, o al menos eso era lo que pensaba, pero los técnicos lo tenían todo preparado: lluvia artificial. Cuando terminamos de rodar ese capítulo entero, me felicitaron por mi actuación, bueno, no solo a mí, sino a todos, pero me dijeron que había simulado muy bien las lágrimas... Si dijera que solo me basto pensar en la conversación que había tenido con Changmin hacia poco...
+Los DBSK enseguida se marcharon, al igual que los demás a hacer sus actividades principales. Yo fui a mi despacho y las chicas se quedaron merodeando  por ahí sin saber que iban a hacer. Cuando llegué, me encontré con Lee Sooman que llevaba una carpeta verde en la mano y me la enseñaba.
 
-Los DBSK enseguida se marcharon, al igual que Boa, Se7en y los SuJu. Yo fui a mi despacho y las chicas se quedaron merodeando  por ahí sin saber que iban a hacer. Cuando llegue, me encontré con Lee Sooman que llevaba una carpeta verde en la mano, y me la enseñaba.
+---Es una carta de la Rhythm Zone ---me señaló --- En la que me redactan la conversación que tuvieron contigo.
 
---- Es una carta de la Rhythm Zone --- Me señalo --- En la que me redactan la conversación que tuvieron contigo... todo...
+---Vaya ---me sorprendí --- ¿Qué opina?
 
---- Vaya --- Me sorprendí --- ¿Que opina?
+---¿Tohoshinki? ---se puso serio --- Espero que sepas lo que está haciendo. Dentro de la carpeta está planteada la gira. Me gustaría tener una reunión con Yunho y contigo a las ocho, ¿de acuerdo?
 
---- ¿Tohoshinki? --- Se puso serio --- Espero que sepa lo que está haciendo... Dentro de la carpeta está planteada la gira... Me gustaría tener una reunión con Yunho y contigo a las ocho, ¿de acuerdo?
+---Claro señor ---asentí.
 
---- Claro señor --- Asentí.
+---Y firma ya los papeles, no tenemos toda la vida ---se marchó diciendo cosas sin sentido en voz baja.
 
---- Y firma ya los papeles... no tenemos toda la vida --- Se marchó diciendo cosas sin sentido en voz baja.
+Con una sonrisa de tonta con suerte, entré al despacho y comencé a leer detenidamente mientras firmaba todo lo que tenía que firmar. La gira no me gustaba del todo, pero era lo que había. Inglaterra, Alemania, Francia, Italia y España. No especificaban nada más. Habría que esperar y realmente lo esperaba con muchas ganas.
 
-Con una sonrisa de tonta con suerte, entre al despacho y comencé a leer detenidamente mientras firmaba todo lo que tenía que firmar. La gira no me gustaba del todo, pero era lo que había. Inglaterra, Alemania, Francia, Italia, Países Bajos y España. No especificaban nada más. Habría que esperar... y realmente lo esperaba con muchas ganas.
-
-Cuando terminé de firmar todos los dichosos papeles, que no eran pocos, se los entregue a Lee Sooman y todo bien. 
+Cuando terminé de leer todos los dichosos papeles, que no eran pocos, se los entregué a Lee Sooman y me quité un peso de encima.

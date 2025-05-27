@@ -150,7 +150,7 @@ Asentí y nos fuimos a la SM con el murmullo de fondo de la radio y Harang. Dejo
 
 ---¿Por qué tienes dos coches? ---abrí los ojos sorprendida, riendo.
 
----Bueno, dependiendo del momento viene bien usar uno u otro ---se encogió de hombros riendo --- Ah, mira, si es Jae ---señalo el Audi que acababa de parar a su lado --- Voy a casa a dejar a Harang, si Jae está aquí será porque nos necesitan ---se quedó pensativo --- ¿Y tú a qué habías ido a la clínica?
+---Bueno, dependiendo del momento viene bien usar uno u otro ---se encogió de hombros riendo --- Ah, mira, si es Jae ---señaló el Audi que acababa de parar a su lado --- Voy a casa a dejar a Harang, si Jae está aquí será porque nos necesitan ---se quedó pensativo --- ¿Y tú a qué habías ido a la clínica?
 
 ---Ah que lo sabías ---Suspiré sonriente --- ¿Recuerdas lo que os conté?
 

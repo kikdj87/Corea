@@ -86,7 +86,7 @@ Saludamos educadamente y me presenté a las chicas que no conocía, a decir verd
 
 ---Mira que eres torpe ---rió una de las chicas que estaba con Jane.
 
----De aquí a que se haga la cena habrá que hacer algo... ---dijo YeSung sentado en el suelo, con las manos en los bolsillos --- Que si no me duermo...
+---De aquí a que se haga la cena habrá que hacer algo... ---dijo Yesung sentado en el suelo, con las manos en los bolsillos --- Que si no me duermo...
 
 ---¡Hagamos un juego! ---dijo de pronto Jane, alzando un puño.
 
@@ -234,7 +234,7 @@ Cuando los Super Junior se marcharon y las SNSD también, nosotros entramos de n
 
 ---No es justo ---Junsu hincho los carrillos --- Y yo aquí barriendo.
 
----Aah, no, no Junsu ---Yoochun lo señalo --- Vamos, a limpiar.
+---Aah, no, no Junsu ---Yoochun lo señaló --- Vamos, a limpiar.
 
 Y todos limpiaron entre risas mientras Yunho y yo veíamos como limpiaban, si es que me dejaba, ya que no dejaba de tocar mi costado con su dedo y eso me causaba cosquillas. Enseguida, Hana, Jae y Changmin salieron de la habitación, y nosotras nos marchamos.
 
@@ -250,7 +250,7 @@ Al igual que habíamos llegado, Junsu nos llevó en el coche junto con Juno, per
 
 ---Es la hora perfecta ---los tres bajamos del coche.
 
-Me agarre a la camiseta de Junsu por la espalda y caminamos por el conocido camino que vi cuando vine a dejar a Juno, entramos en la famosa casa, 22C. Sentía que mi corazón se iba a salir del pecho y las manos me sudaban muchísimo, solo esperaba no tener que dar la mano a nadie mientras estuviera allí. Y solo pensaba en qué pensarían sus padres de mí, de si me iban a reconocer o no de la anterior vez que estuve allí.
+Me agarré a la camiseta de Junsu por la espalda y caminamos por el conocido camino que vi cuando vine a dejar a Juno, entramos en la famosa casa, 22C. Sentía que mi corazón se iba a salir del pecho y las manos me sudaban muchísimo, solo esperaba no tener que dar la mano a nadie mientras estuviera allí. Y solo pensaba en qué pensarían sus padres de mí, de si me iban a reconocer o no de la anterior vez que estuve allí.
 
 ---Eh, un momento ---Junsu me miro --- ¿Te presento como Kiki o como María?
 
@@ -400,7 +400,7 @@ Junsu se quedó en estado de shock. Le di varios golpes, pero no reaccionaba, ha
 
 ---Junsu... ---cerré durante unos segundos los ojos y los volví a abrir para encontrarme con su mirada --- Te quiero.
 
-Acortamos el escaso espacio que nos separaba y nos besamos. El primer beso fue tan dulce que me supo a poco, así que lo agarre de la nuca para que no se separara de mi boca. Él llevó una de sus manos hasta mi rostro y nos besamos con mucha pasión. Sus manos se deslizaron por mi cara hasta llegar a mi cuello, pasando por mis hombros hasta bajar por mis brazos y saltar a mi cintura. Comenzó a quitar mi camiseta. Me estremecí y me separe de él.
+Acortamos el escaso espacio que nos separaba y nos besamos. El primer beso fue tan dulce que me supo a poco, así que lo agarré de la nuca para que no se separara de mi boca. Él llevó una de sus manos hasta mi rostro y nos besamos con mucha pasión. Sus manos se deslizaron por mi cara hasta llegar a mi cuello, pasando por mis hombros hasta bajar por mis brazos y saltar a mi cintura. Comenzó a quitar mi camiseta. Me estremecí y me separe de él.
 
 ---Junsu... ---susurre.
 

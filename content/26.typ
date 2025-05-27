@@ -80,7 +80,7 @@ Fui a pedir lo que ellos me habían pedido y, mientras estaba en la cola, escuch
 
 --- Si, que pasa con esos... --- La otra parecía indiferente.
 
---- Me parece que esos tres son de ese grupo --- Los señalo con chispitas en los ojos --- Al menos el más delgadito lo conozco.
+--- Me parece que esos tres son de ese grupo --- Los señaló con chispitas en los ojos --- Al menos el más delgadito lo conozco.
 
 --- ¿Y qué hacen aquí? --- Le preguntó.
 
@@ -108,7 +108,7 @@ El rodaje allí termino en los días previstos y nosotros solo nos centramos en 
 
 --- Kiki --- Se sentó a mi lado --- ¿Aun sigues enfadada conmigo?
 
---- ... --- Lo mire, en cierto modo, me había olvidado del enfado con Heechul. Sonreí --- No --- Agarre su mano y lo miré a la cara --- Siento aquel bofetón...
+--- ... --- Lo mire, en cierto modo, me había olvidado del enfado con Heechul. Sonreí --- No --- agarré su mano y lo miré a la cara --- Siento aquel bofetón...
 
 --- No, realmente siento yo gastarte bromas que no son necesarias --- Heechul apretó mi mano contra la suya y sonrió agradecido --- Me alegra que seamos de nuevo amigos...
 
@@ -150,7 +150,7 @@ El rodaje allí termino en los días previstos y nosotros solo nos centramos en 
 
 --- Basta --- Heechul dio un paso al frente y yo alce la cabeza --- Ella no tiene la culpa, no las pagues con ella.
 
-Sin decir nada, Yoochun se marchó de allí y Heechul se acercó a mí, me rodeo por los hombros e intento tranquilizarme con palabras de ánimo, pero no lo consiguió, realmente yo estaba muy nerviosa por lo ocurrido... ¿y me lo habían estado escondiendo? ¿Por cuánto tiempo lo iban a esconder?
+Sin decir nada, Yoochun se marchó de allí y Heechul se acercó a mí, me rodeo por los hombros e intentó tranquilizarme con palabras de ánimo, pero no lo consiguió, realmente yo estaba muy nerviosa por lo ocurrido... ¿y me lo habían estado escondiendo? ¿Por cuánto tiempo lo iban a esconder?
 
 Ni siquiera pude ir a ver a mis padres, enseguida nos fuimos a Corea, no podía dejar a Elena sola. Cuando se lo conté a Hana y a R, me dijeron que ya lo sabían y me quedé realmente mal de ser la única que no sabía nada.
 

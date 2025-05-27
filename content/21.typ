@@ -4,7 +4,7 @@ Me desperté cuando un fino rayo de sol me dio en la cara.
 
 Me moví, me gire y sentí que había alguien a mi lado. Abrí los ojos, estaba acostada en una cama tapada por una colcha de plumas y totalmente desnuda. miré a mi lado y me encontré a Junsu dormido, miré bajo la sabana y me lo encontré en la misma situación que yo. Me sonrojé y quise gritar, pero me contuve.
 
-Sinceramente la cama esa era minúscula y estaba rodeada de otras camas, pero se estaba tan a gusto así, que abrace a mi pequeño Junsu y lo bese con un dulce beso en los labios. Se estremeció y me rodeó el cuerpo. Reí nerviosa sintiendo cada parte de su piel contra la mía.
+Sinceramente la cama esa era minúscula y estaba rodeada de otras camas, pero se estaba tan a gusto así, que abracé a mi pequeño Junsu y lo besé con un dulce beso en los labios. Se estremeció y me rodeó el cuerpo. Reí nerviosa sintiendo cada parte de su piel contra la mía.
 
 ---Junsu, buenos días ---le susurre en el oído --- Hora de despertarse.
 
@@ -20,7 +20,7 @@ Era cierto, yo no recordaba haber venido hasta la cama. Me sonrojé al hacerme a
 
 ---Porque... ---el abrió un ojo y se estremeció. Me apretó tanto contra él, que sentí algo más que sus manos en mi cadera --- Porque estabas tan preciosa mientras dormías sobre mi pecho que temía perderte si cerraba los ojos.
 
-Eso podía ser la cursilada más grande que había escuchado en mucho tiempo, pero era la más bonita que me habían dicho. Me sentí tan bien, que lo bese con suavidad. De pronto dos móviles sonando al mismo tiempo rompieron el encanto. Nos separamos y nos incorporamos en la cama. Nos miramos al completo, los teléfonos estaban en el salón y ambos íbamos desnudos.
+Eso podía ser la cursilada más grande que había escuchado en mucho tiempo, pero era la más bonita que me habían dicho. Me sentí tan bien, que lo besé con suavidad. De pronto dos móviles sonando al mismo tiempo rompieron el encanto. Nos separamos y nos incorporamos en la cama. Nos miramos al completo, los teléfonos estaban en el salón y ambos íbamos desnudos.
 
 ---Que pesados... ---Junsu salió de la cama tal cual.
 

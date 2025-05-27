@@ -1,531 +1,515 @@
 = Capítulo 23
 
-El terminar de la velada fue genial, nos fuimos relacionando con muchos artistas que nos felicitaban por la buena actuación y la buena acogida que el drama había tenido con el público. Y enseguida nos despedimos de todos los chicos, después de sus respectivas fotos para M, y nos fuimos en la limusina que nos trajo, las seis, a casa, para “intentar dormir”, pero como bien sabía, al llegar a casa y ponernos cómodas, todas se sentaron en los sofás y yo me fui con ellas a cotillear.
+El final de la velada fue genial, nos fuimos relacionando con muchos artistas que nos felicitaban por la buena actuación y la buena acogida que el drama había tenido con el público. Y enseguida nos despedimos de todos los chicos, después de sus respectivas fotos para M, y nos fuimos en la limusina que nos trajo. Las seis íbamos a casa para intentar dormir, pero como muy bien sabía, al llegar y ponernos cómodas, todas se habían sentado en los sofás para empezar a cotillear de todo lo que había pasado esa noche.
 
---- Pues M y YeSung se llevan muy bien --- Dijo de pronto R, haciendo que su hermana se sonrojase --- Me he enterado de toda la conversación--- Normal --- Rió la menor. 
+---Pues M y Yesung se han llevado muy bien --- Dijo de pronto R, haciendo que su hermana se sonrojase --- Me he enterado de toda la conversación.
 
---- Pero no me has dejado hablar con Changmin --- R puso un puchero --- Eres cruel...
+---Normal ---M se echó a reír sonrojada.
 
---- Te chinchas --- Le saco la lengua y todas reímos.
+---Pero no me has dejado hablar con Changmin ---R puso un puchero --- Eres cruel.
 
---- Lo mejor de la noche ha sido la madre de Hana --- Señalo Elena entre risas --- Que se ha empeñado que Yoochun sea su yerno.
+---Te chinchas ---le saco la lengua y todas reímos.
 
---- Mejor eso que no que diga de ser su novio --- Y todas explotamos en risas.
+---Lo mejor de la noche ha sido la madre de Hana ---señaló Elena entre risas --- Que se ha empeñado que Yoochun sea su yerno.
 
---- ¡¡Yunho me ha dicho que voy guapa!! --- Grito Jane emocionada.
+---Mejor eso, que no que le diga de ser su novio ---y todas explotamos en risas.
 
---- Ya lo has dicho infinidad de veces --- Dijo R.
+---¡Yunho me ha dicho que voy guapa! ---gritó Jane emocionada.
 
---- ¡Pero no sabéis lo mejor! --- Dijo sonrojada y con una sonrisa muy tierna. Todas la miramos esperando a que nos lo contara --- Que estaba muy cortado en el coche porque iba muy guapa --- La íbamos a cortar, pero volvió a hablar alzando la mano --- Y me ha dado un beso en la mejilla... --- Y perdimos a Jane, ya que, con sus manos en dicho sitio, se echó sobre M emocionada.
+---Ya lo has dicho infinidad de veces ---dijo R.
 
---- Vaya, vaya con Yunho --- Hana soltó una risotada.
+---¡Pero no sabéis lo mejor! ---dijo sonrojada y con una sonrisa muy tierna. Todas la miramos esperando a que nos lo contara --- Que estaba muy cortado en el coche porque iba muy guapa ---la íbamos a cortar, pero volvió a hablar alzando la mano --- Y me ha dado un beso en la mejilla ---y perdimos a Jane, ya que, con sus manos en dicho sitio, se echó sobre M emocionada.
 
---- ¿Y Sungmin? --- preguntó M --- ¿Ya nada?
+---Vaya, vaya con Yunho ---Hana soltó una risotada.
 
---- ... --- Jane puso un puchero --- Bueno, Sungmin... --- Se quedó pensativa --- No sé, no he tenido mucha relación con él, solo un poco en el drama... pero es Yunho el que se ha acercado más a mí y yo... pues claro... Jejeje...
+---Kiki ---Elena se puso seria y todas las miradas fueron para mí --- ¿Qué ha pasado con Yoochun esta noche?
 
---- Ya, ya --- Asentimos todas divertidas por la escena.
+---Eso, os habéis quedado los dos un poco... ---dijo R sin terminar.
 
---- Kiki... --- Elena se puso seria y todas las miradas para mí --- ¿Qué ha pasado con Yoochun esta noche?
+---Hana ---la miré --- Te has pasado tú también un poco ---dije muy seria.
 
---- Eso, os habéis quedado los dos un poco... --- Dijo R sin terminar.
+---Lo sé, lo siento, pero es que estaba molesta por lo de mi madre y tú ahí metiendo cizaña ---suspiró.
 
---- Hana --- La miré --- Te has pasado tú también un poco --- Dije muy seria.
+---Pues veréis, mis padres... ---les conté lo que mis padres le habían dicho a Yoochun y lo que Hana había dicho también --- Y eso es lo que ha pasado.
 
---- Lo sé, lo siento, pero es que estaba picada por lo de mi madre... y tú metiendo cizaña --- Suspiró.
+---No sé qué decir ---dijo Elena.
 
---- Pues, veréis, mis padres... --- Y les conté lo que mis padres le habían dicho a Yoochun y lo que Hana había dicho también --- Y eso es lo que ha pasado...
+---No hace falta que se diga nada ---dije yo --- Es mejor dejar el tema zanjado. Buenas noches.
 
---- No sé qué decir... --- Dijo Elena.
+Me puse en pie y me marche a mi habitación muy pensativa. Aquella noche había sido muy larga y lo peor de todo había sido lo de Yoochun, que me había mirado con una cara, que creía que se descompondría en un momento. Y es que él sabía perfectamente mis sentimientos antes de que empezara a salir con Junsu, pero a veces llegaba un momento en el que ni yo misma sabía lo que quería. Algo tenía Yoochun que hacía que olvidara el mundo a mi alrededor y solo me centrara en él.
 
---- No hace falta que se diga nada --- Dije yo --- Es mejor dejar el tema zanjado... Buenas noches.
+Me eché sobre la cama y medité largos minutos sobre todo. hasta que mi móvil, con el sonido desesperado que me había puesto Heechul, comenzó a sonar. Descolgué sin ver quién era.
 
-Me puse en pie y me marche a mi habitación muy pensativa. Aquella noche había sido muy larga... y lo peor de todo había sido lo de Yoochun... me había mirado con una cara, que creía que se descompondría en un momento... y es que él sabía perfectamente mis sentimientos antes de que empezara a salir con Junsu, pero a veces llegaba un momento en el que ni yo misma, sabía lo que quería... algo tenía Yoochun que hacía que olvidara el mundo a mi alrededor y solo me centrara en él.
+---María ---escuché a través del otro lado --- Soy Lee Sooman ---me llevé las manos a la cabeza y me maldije, había olvidado por completo el ir a hablar con él y darle una respuesta, me mordí la lengua y no supe qué decir --- ¿Por qué no has venido a hablar conmigo?
 
-Me eché sobre la cama y medité largos minutos sobre todo... hasta que mi móvil, con el sonido desesperado que me había puesto Heechul, comenzó a sonar.
+---Lo siento, se me ha olvidado ---agaché la cabeza.
 
---- María --- Dijeron a través del otro lado --- Soy Lee Sooman --- Me llevé las manos a la cabeza y me maldije, había olvidado por completo el ir a hablar con él y darle una respuesta, me mordí la lengua y no supe qué decir --- ¿Por qué no has venido a hablar conmigo?
+---Estabas demasiado ocupada con Junsu ---me dijo.
 
---- Lo siento... yo... se me ha olvidado --- Agaché la cabeza.
+---Por favor, señor, no me diga más esas cosas ---dije frunciendo el ceño --- Junsu no tiene nada que ver, en realidad me quedé hablando con mis padres...
 
---- Estabas demasiado ocupada con Junsu, ¿verdad? --- Me dijo.
+---María ---me cortó --- No fui el único que te vió con él a solas.
 
---- Por favor, señor, no me diga más esas cosas --- Dije frunciendo el ceño --- Junsu no tiene nada que ver, en realidad me quedé hablando con mis padres...
+---¿Qué insinúa?
 
---- María --- Me cortó --- No fui el único que te vi...
+---He tenido que pagar mucho dinero para que la prensa no saque a la luz fotos de vosotros dos de esta noche, ¿lo sabías? ---me dijo muy serio.
 
---- ¿Qué insinúa?
+---No señor, no lo sabía ---estaba a punto de echarme a llorar.
 
---- He tenido que pagar mucho dinero para que la prensa no saque a la luz fotos de vosotros... de esta noche, ¿lo sabías? --- Me dijo muy serio.
+---¿Has decidido hacer algo con respecto a tu oferta? ---me dijo de una manera un tanto extraña, casi obligándome a aceptar.
 
---- No señor... no lo sabía... --- Estaba a punto de echarme a llorar.
+---Sí, he tomado una decisión ---dije rotundamente --- Aceptaré la propuesta de la Rhythm Zone, pero mañana quiero hablar personalmente con sus directivos y a solas.
 
---- ¿Has decidido hacer algo con respecto a tu oferta? --- Me dijo de una manera un tanto extraña... casi obligándome a aceptar.
+---Muy bien, como quieras ---me dijo satisfecho --- Organizaré una cena y...
 
---- Sí, he tomado una decisión --- Dije rotundamente --- Aceptaré la propuesta de la Rhythm Zone... pero mañana quiero hablar personalmente con sus directivos... y a solas.
+---No señor, tiene que ser por la mañana, una reunión formal en mi despacho ---le dije. En realidad, ni yo misma me reconocía.
 
---- Muy bien, como quieras --- Me dijo satisfecho --- Organizaré una cena y...
+---De acuerdo ---rió muy poco satisfecho --- Mañana por la mañana, a las diez en tu despacho.
 
---- No señor, tiene que ser por la mañana... una reunión formal en mi despacho --- Le dije. En realidad, ni yo misma me reconocía.
+---Adiós ---colgué enfadada antes de que él dijera algo más. Realmente me sentía muy frustrada.
 
---- De acuerdo --- Rió muy poco satisfecho --- Mañana por la mañana, a las diez en tu despacho.
+A la mañana siguiente, aunque fuera sábado y no tuviéramos trabajo en la empresa, me desperté bien temprano para mi cita con los de la Rhythm Zone. Y como no me vi a Hana en la cocina tomándose un café, no sé cómo conseguía levantarse tan temprano sin tener obligaciones.
 
---- Adiós --- Colgué enfadada antes de que él dijera algo más.
+---Buenos días ---le dije mientras cogía un dulce --- ¿Cómo has dormido?
 
-Realmente, me sentía muy frustrada. A la mañana siguiente, aunque fuera sábado, no teníamos trabajo en la empresa y me desperté bien temprano para mi cita con los de la Rhythm Zone, y como no, me vi a Hana en la cocina tomándose un café, de verdad, no sé cómo conseguía levantarse tan temprano sin tener obligaciones...
+---Genial ---sonrió --- ¿Y tú? ---yo asentí también --- ¿Segura? Mira que te fuiste algo enfadada.
 
---- Buenos días --- Le dije mientras cogía un dulce --- ¿Cómo has dormido?
+---Estoy bien Hana, no ha sido para tanto ---reí tontamente y ella rió conmigo.
 
---- Genial --- Sonrió --- ¿Y tú? --- Yo asentí --- ¿Segura? --- Me preguntó --- Mira que te fuiste algo enfadada...
+---¿Y a dónde vas tan temprano? ---me dijo mientras terminaba su desayuno --- ¿Algo urgente, importante?
 
---- Estoy bien Hana, no sufras --- Reí tontamente y ella rió conmigo.
+---Ambas cosas ---suspire agotada --- Ya os lo diré cuando venga. Tengo que mentalizarme para la cena que tengo esta noche en casa de Junsu.
 
---- ¿Y a dónde vas tan temprano? --- Dijo --- Algo urgente... importante.
+---¿Cena? ---se sorprendió --- ¿Con tus padres? ---asentí --- ¡Tía, que guay!
 
---- Ambas cosas --- Suspire --- Ya os lo diré cuando venga... de todas formas, quisiera hacer un dulce para esta noche, que tengo la cena con los padres de Junsu...
+---Ya, pero sé que acabaré con dolor de cabeza por traducir y por el estrés ---negué entre risas y suspiré cansada --- Bueno, voy a terminar.
 
---- ¿Cena? --- Se sorprendió --- ¿Con tus padres? --- Asentí --- ¡¡Tía, que guay!! --- Me abrazo --- Pues no dudes en preguntarme cualquier duda con la cocina, ¿de acuerdo?
+Terminé de arreglarme, de desayunar y de todo, y me fui a coger el metro para ir a la SM, como de costumbre pero note algo extraño que las otras veces no había visto. La gente se me quedaba mirando mientras yo iba caminando, cuchicheaban y me señalaban.
 
---- Vale, muchas gracias... como voy a ir a comprar los ingredientes...
+---Oye, perdona ---una chica vestida de uniforme se acercó a mí --- ¿Podría darme su autógrafo?
 
---- Llámame, ¿vale? --- Sonrió --- Si tienes alguna duda, llámame.
+---¿En serio? ---la miré sorprendida. Me sorprendió tanto que me pidiera un autógrafo que me costó reaccionar un poco mientras mantenía un papel con un bolígrafo estirado hacia mi. Decidí firmarlo --- ¿Cómo te llamas?
 
---- Gracias --- La abrace --- Bueno, voy a terminar...
+--- Kim Gaeul ---me dijo con una agradable sonrisa.
 
-Termine de arreglarme, de desayunar y de todo, y me fui a coger el metro para ir a la SM, como de costumbre... pero, note algo extraño que las otras veces.
+Llegué a la dichosa SM aún alucinando por lo ocurrido y subí por el ascensor hasta donde estaba mi despacho. Había llegado quince minutos temprano, pero para mi sorpresa, ya estaban ahí los directivos de la Rhythm Zone.
 
---- Oye, perdona... --- Una chica vestida de uniforme se acercó a mí --- ¿Podría darme su autógrafo?
+---Buenos días ---dijeron en japonés.
 
---- ¡¡¡...!!! --- La miré sorprendida. Uno, me sorprendió que hubiera gente en el metro a esa hora. Dos, me sorprendió más que hubiera una colegiala. Tres, me sorprendió que me pidiera mi autógrafo. Total, que decidí firmarlo --- ¿Cómo te llamas?
+---Buenos días ---dije yo. La verdad es que yo entendía y sabía lo justo de japonés, pero sí que sabía inglés y ellos también. Me resolvieron la vida --- Pasen, por favor ---les indiqué que pasaran y se sentaran.
 
---- Kim GaEul --- Me dijo con una agradable sonrisa.
+---El señor Lee Sooman nos llamó anoche y nos lo contó, ¿qué tiene que decirnos? ---preguntó el que siempre hablaba.
 
---- ¿Tienes clase hoy? --- Le pregunte una vez que se lo había firmado.
+---Tomen asiento, por favor ---se sentaron, al igual que yo --- Como sabrán por el señor Lee Sooman, he aceptado vuestra propuesta para trabajar para ustedes ---asintieron --- Pero antes quiero saber las condiciones de trabajo.
 
---- No, pero soy delegada de clase --- Asintió con una sonrisa --- Y tengo que ayudar al profesor con las listas y esas cosas...
+---Oh, descuide, señorita María ---me dijo otro hombre --- Mi nombre es Matsura. Pensábamos explicarle todo en cuanto usted aceptara.
 
---- Vaya... --- Había llegado a mi parada --- Mucha suerte con todo.
+---Muy bien, les escucho señores ---me incliné y apoyé mis manos entrelazadas sobre la mesa del despacho.
 
---- ¡Muchas gracias! --- Se despidió con efusividad y me sonrojé.
+---Sabe ya que son para los grupos Exile y Tohoshinki, ¿verdad? ---asentí seria --- Pues habíamos pensado en tener un agente para los dos grupos.
 
-Llegue a la dichosa SM, subí por el ascensor hasta donde tenía mi despacho, yo había llegado quince minutos temprano, pero es que, para mi sorpresa, ya estaban ahí los directivos de la Rhythm Zone.
+---Matsura ---interrumpió el que siempre hablaba, en total eran tres hombres --- No le proponga esa idea, ella no sabe como manejarse.
 
---- Buenos días --- Dijeron en japonés.
+---Lee Sooman dijo que no la pusiéramos con Tohoshinki --- Dijo el tercero --- Pero nosotros discrepamos a su idea ---me sorprendí --- Usted tiene más relación y conoce de cerca a Tohoshinki, más que Exile.
 
---- Buenos días --- Dije yo. La verdad es que yo entendía y sabía lo justo de japonés, pero sí que sabía inglés, y ellos también. Me resolvieron la vida --- Pasen, por favor --- Les indique que pasaran y se sentaran.
+---Y qué me proponen ustedes ---les dije.
 
---- El señor Lee Sooman nos llamó anoche y nos lo contó... ¿qué tiene que decirnos? --- preguntó el que siempre hablaba.
+---Ir con Tohoshinki ---dijo el tercero.
 
---- Tomen asiento, por favor --- Se sentaron, al igual que yo --- Como sabrán por el señor Lee Sooman, he aceptado vuestra propuesta para trabajar para ustedes --- Asintieron --- Y yo quiero saber las condiciones de trabajo.
+---Yo opino que tendría que ir con los dos ---dijo Matsura.
 
---- Oh, descuide, señorita María --- Me dijo otro hombre --- Mi nombre es Matsura Jun, pensábamos explicarle todo en cuanto usted aceptara...
+---Tendría que ir con Exile ---dijo el que siempre hablaba --- Ya que Lee Sooman nos lo aconsejo.
 
---- Muy bien, les escucho, señores... --- Me incline y apoye mis manos entrelazadas sobre mi mesa de despacho.
+---Muy bien ---me acomode en mi silla y los miré a los tres --- ¿Cuándo seria ir a Europa?
 
---- Sabe ya que son para los grupos Exile y Tohoshinki, ¿verdad? --- Asentí seria --- Pues habíamos pensado en tener uno para cada uno...
+---Tal vez en cuatro, cinco meses, estamos viendo la agenda ---dijo el tercero --- Tenemos que respetar que acaba de estrenar un drama y eso conlleva muchas fiestas y presentaciones para usted y los chicos.
 
---- Matsura --- Dijo el que siempre hablaba, en total eran tres hombres --- No le proponga esa idea, ella apenas es novata.
+---De acuerdo ---asentí --- Dado que soy yo la que os interesa para el puesto escogería su propuesta --- Y señale al tercer hombre.
 
---- Lee Sooman --- Dijo el tercero --- Dijo que no la pusiéramos con Tohoshinki, pero nosotros discrepamos a su idea --- Me sorprendí --- Ya que usted tiene más relación y conoce más de cerca a Tohoshinki que Exile.
+---¿Kawamura? ---el que siempre hablaba se sorprendió --- Señorita María, no sé si usted debería hacer...
 
---- Y que piensan ustedes que es mejor --- Les dije.
+---No sé qué tiene en mente el señor Sooman ---les dije --- Pero como bien dijisteis, conozco cómo va el mercado musical en Europa. Además, a quien mejor conozco es a Tohoshinki por trabajar con ellos en numerosas ocasiones.
 
---- Ir con Tohoshinki --- Dijo el tercero.
+---Es un buen razonamiento ---asintió Kawamura --- Podemos buscar otro agente para Exile.
 
---- Yo opino que tendría que ir con los dos --- Dijo Matsura.
+---O que ella sea de ambos ---insistió Matsura.
 
---- Y yo opino, que tendría que ir con Exile --- Dijo el que siempre hablaba --- Ya que Lee Sooman nos lo aconsejo.
+---Señor, por favor ---lo miré --- Apenas sé cómo se lleva esto y podría hacerlo mejor con un solo grupo.
 
---- Muy bien... --- Me acomode en mi silla y los miré a los tres --- ¿Cuándo seria ir a Europa?
+---Si es tan amable de leer esto ---me entrego unos papeles --- No tenga prisa en rellenarlos y entregarlos, solo danos un número de teléfono y nos pondremos en contacto con usted.
 
---- En cuatro, cinco meses como mucho --- Dijo el tercero --- Tenemos que respetar que acaba de estrenar un drama y eso conlleva muchas fiestas y presentaciones para usted y los chicos de Tohoshinki.
+---De acuerdo ---les di mi número de teléfono --- Pues muchas gracias por la información.
 
---- De acuerdo --- Asentí --- Dado que soy yo la que os interesa para el puesto... escogería su propuesta --- Y señale al tercer hombre.
+---A usted por atendernos y aceptar nuestra propuesta.
 
---- ¿Kawamura? --- El que siempre hablaba se sorprendió --- Señorita María, no sé si usted debería hacer...
+Les estreche la mano a los tres y los despedí desde mi despacho. Me miré el reloj, eran las diez y cuarto. A pesar de que había pasado rápida, aquella reunión me había llevado media hora. Suspiré y salí de allí cerrando con llave. Cuando llegué al entrada para volver a casa me encontré con Yunho.
 
---- No sé qué tiene en mente el señor Sooman --- Les dije --- Pero como bien dijisteis conozco Europa y su posible gusto musical, estilos y demás cosas... Y a quien mejor conozco es a Tohoshinki por trabajar con ellos en numerosas ocasiones...
+---¡Ah, Kiki! ---se acercó a mí --- ¿Qué haces aquí hoy?
 
---- Es un buen razonamiento --- Asintió Kawamura --- Podemos buscar otro agente para Exile...
+---Tenia una reunión ---lo miré dubitativa, no sabía si contarle o no lo de la gira europea como Tohoshinki. Opté por no decírselo yo --- ¿Y tú?
 
---- O que ella sea de ambos --- Insistió Matsura.
+---Dos reuniones ---alzó los dedos --- Una con Lee Sooman de no tengo ni idea de qué, y la otra para la fecha de lanzamiento del nuevo video y de la nueva versión de Mirotic.
 
---- Señor, por favor --- Lo miré --- A penas sé cómo se lleva esto, y podría hacerlo mejor con un solo grupo.
+---¡Vaya! ---me alegré --- Pues nada, que todo vaya bien, ya me contaras, ¿no?
 
---- Si es tan amable de leer esto --- Me entrego unos papeles --- No tenga prisa en rellenarlos y entregarlos, solo danos un número de teléfono y nos pondremos en contacto con usted.
+---Sí --- Asintió.
 
---- De acuerdo --- Les di mi número --- Pues muchas gracias por la información.
+---Ah, eh Yunho ---capte su atención y me miró extrañado --- Quiero hablar contigo de algo serio.
 
---- A usted por atendernos y aceptar nuestra propuesta...
+---Vale ---me miro serio y se miró el reloj --- Tengo quince minutos, ¿suficiente?
 
-Les estreche la mano a los tres y los despedí desde mi despacho. Me miré el reloj, las diez y cuarto. A pesar de que había pasado rápida, aquella reunión me había llevado media hora. Suspire y salí de allí, cerrando con llave. Cuando llegue al entrada para irme, me encontré con Yunho.
+---Si.
 
---- ¡Ah, Kiki! --- Se acercó a mí --- ¿Qué haces aquí hoy?
+De nuevo a mi despacho. Allí nos sentamos el uno en frente del otro y me miro sorprendido, preocupado y extrañado a que lo llevara allí para hablar de algo. Y ese algo era Jane, aunque él no lo sabía.
 
---- Tenia una reunión --- Lo miré dubitativa, no sabía si contarle o no lo de la gira europea como Tohoshinki. Opte por no decírselo yo --- ¿Y tú?
+---Me he enterado de algo, y me ha dado rabia ---me quedé pensando en lo que dje --- Ok, no lo tomes así, es simplemente que...
 
---- Dos reuniones --- Alzó los dedos --- Una con Lee Sooman de no tengo ni idea de que --- Rió divertido y yo reí también --- Y la otra para la fecha de lanzamiento del nuevo video y de la nueva versión de Mirotic.
+---¿Kiki? Me estás haciendo un lío con todo lo que has dicho.
 
---- ¡Vaya! --- Me alegre --- Pues nada, que todo vaya bien, ya me contaras, ¿no?
+---Ya, lo sé ---asentí y sacudí la cabeza --- Así que empezaré de nuevo. Yunho, ¿qué piensas de Jane?
 
---- Si --- Asintió.
+--- Jane... Ah, hmm... yo... ---se pasó la mano por la barbilla, aparentando estar pensando algo interesante. Me miro de soslayo --- Qué quieres que te responda...
 
---- Ah, eh... Yunho --- Capte su atención y me miro extrañado --- Quiero hablar contigo de algo serio...
+---¿Que quiero? ---me sorprendí --- Yunho, no quiero que me respondas lo que yo quiera, quisiera que fueras tú el que me dijera lo que quieres.
 
---- ... --- Me miro serio y se miró el reloj --- Tengo quince minutos, ¿suficiente?
+---Bueno, ¿cómo te has enterado?
 
---- Si...
+---Ah... ---me di con la mesa en la cabeza y lo miré --- Me lo dijo Hana, que se lo dijo Yoochun.
 
-De nuevo a mi despacho. Allí nos sentamos el uno en frente del otro y me miro sorprendido, preocupado y extrañado a que lo llevara allí para hablar de algo... y ese algo era Jane.
+---Ese bocazas... ---cerró el puño con fuerza.
 
---- Me he enterado, y es algo que me da rabia... --- Alce la cabeza --- Ok, no lo tomes así, es simplemente que... nada --- Me mordí la lengua.
+---Yunho ---me miro --- Bueno, puede ser una cursilada la verdad, pero quiero que sepas que me puedes contar lo que quieras, que somos amigos.
 
---- ¿Kiki? Me estás haciendo un lío con todo lo que has dicho.
+---Muchas gracias Kiki ---se miró el reloj y se puso en pie --- Te voy a decir algo. Jane es una chica muy extrovertida y es algo que me gusta de ella, siempre está sonriendo y aunque algo vaya mal, siempre tiene una sonrisa ---me sorprendí a su descripción --- Pero no quiero nada con ella para no hacerle daño. Yo no quiero pasarlo tan mal como Junsu ---se llevó la mano a la boca.
 
---- Ya, lo sé... --- Asentí --- Así que, empezare de nuevo --- Tome aire y lo expulse --- Yunho, ¿qué piensas de Jane?
+---Supongo... ---no pude decir nada más. Sabía que cada uno, por su parte, lo estaba pasando mal.
 
---- Jane... Ah... hmm... yo... --- Se pasó la mano por la barbilla, aparentando estar pensando algo interesante. Me miro de reojo --- Que quieres que te responda...
+---Kiki ---me agarró de la mano, me puso en pie y me abrazo --- Muchas gracias.
 
---- ¿Que quiero? --- Me sorprendí --- Yunho, no quiero que me respondas lo que yo quiera, la verdad sea dicha, quisiera que fueras tú el que me dijera algo...
+---De nada Yunnie ---lo abracé también --- Nos vemos, que vaya bien la reunión.
 
---- Bueno... ¿cómo te has enterado?
+---Hasta luego.
 
---- ... --- Me di con la cabeza en la mesa y lo miré --- Me lo dijo Hana que se lo dijo Yoochun.
+Se marchó y yo me desplome en la silla. Junsu lo pasaba mal ¿y por qué no me decía nada? Aunque lo entendía, yo tampoco le decía nada de lo que me decía Lee Sooman. Y eso estaba mal, sinceramente, por ambas partes. Después de estar un buen rato mirando a la nada por la ventana, mi móvil sonó.
 
---- Ese bocazas --- Cerro el puño con fuerza.
+---¿Diga? ---conteste desganada.
 
---- Yunho --- Me miro --- Bueno, puede ser una cursilada, la verdad, pero quiero que sepas que me puedes contar lo que quieras... que somos amigos...
+---¿María, hija? ---era mi madre.
 
---- ... --- Suspiro --- Muchas gracias Kiki --- Se miró el reloj y se puso en pie --- Te voy a decir algo... Jane es una chica muy extrovertida, cosa que me gusta de ella, siempre está sonriendo y aunque algo vaya mal, siempre tiene una sonrisa... --- Me sorprendí a su descripción --- Pero no quiero nada con ella para no hacerle daño... yo... no quiero pasarlo tan mal como Junsu... --- Y se llevó la mano a la boca.
+---¡Ah, hola mamá! ---sonreí cambiando mi modo de hablar --- ¿Qué tal?
 
---- ... --- Yo no dije nada, sabía que cada uno, por su parte, lo estaba pasando mal --- Supongo...
+---Muy bien hija, pero quería preguntarte algo, ¿Llevo para la cena algún dulce o algo?
 
---- Kiki --- Me agarro de la mano, me puso en pie y me abrazo --- Muchas gracias...
+---¡Ah! No, no te preocupes ---dije con rapidez --- Vosotros tomad un pequeño lunch ahora y a esperar a las seis para la cena.
 
---- De nada Yunnie --- Lo abrace también --- Nos vemos...
+---Ah si, vale, por eso no te preocupes, ¿estas ocupada con trabajo ahora? ---me preguntó.
 
---- Hasta luego...
+---No, ¿por?
 
-Se marchó y yo me desplome en la silla. Junsu lo pasaba mal... ¿y por qué no me decía nada? Aunque lo entendía, yo tampoco le decía nada de lo que me decía Lee Sooman. Y eso estaba mal, sinceramente, por ambas partes. Después de estar un buen rato mirando a la nada por la ventana, mi móvil sonó.
+--- Por pasar el día juntos.
 
---- ¿Diga? --- Conteste desganada.
+---Claro que sí mamá, enseguida estoy en vuestro hotel.
 
---- ¿María, hija? --- Era mi madre.
+Llamé y avisé a las chicas de que estaría liada con mis padres y, cuál fue mi sorpresa, que ellas me dijeron lo mismo, así que sin más demora me fui a pasar la mañana con mis padres. Fuimos a ver los templos, la ciudad en su esplendor, los barrios pobres y las zonas más ricas, almorzamos algo muy típico de allí y nos echamos muchísimas fotos. A las cuatro los dejé en el hotel y yo me fui al piso, donde me encontré sola. Puse la música de la minicadena y me metí a la ducha; estaba muy nerviosa, tanto que no sabía si la comida realmente me sentaría bien.
 
---- ¡Ah, hola Mamá! --- Sonreí --- ¿Qué tal?
+Me estiré el pelo y, justo cuando terminé, alguien llamó a la puerta de mi casa. Extrañada fui a ver quién era. Y sonreí al ver a Junsu.
 
---- Muy bien hija, pero quería preguntarte algo... --- Se quedó pensativa --- ¿Llevo para la cena algún dulce o algo?
+---¿Puedo subir? ---me preguntó.
 
---- ¡Ah! No, no te preocupes --- Dije con rapidez --- Vosotros no comáis a las dos, porque a las seis vamos allí a cenar, ¿vale?
+--- Si, estoy sola.
 
---- A si, vale, por eso no te preocupes... ¿estas ocupada con trabajo ahora? --- Me preguntó.
+Le abrí la puerta y cuando subió a mi piso le abracé. Nos quedamos así un buen rato y luego le besé. De pronto saco de la nada una bolsa.
 
---- No, ¿por?
+---Esto es para ti ---me dijo con una sonrisa.
 
---- Por pasar el día juntos...
+---¿Para mí? ---lo cogí extrañada --- No hacía falta que...
 
---- ... --- Sonreí --- Claro que si Mamá, enseguida estoy en vuestro hotel.
+--- Tu míralo y ábrelo, por favor ---se sentó en el sofá mientras yo miraba la bolsa --- Kiki, ábrelo.
 
-Llamé y avisé a las chicas de que estaría liada con mis padres y, cuál fue mi sorpresa, que ellas me dijeron más o menos lo mismo, así que sin más demora me fui a pasar la mañana con mis padres. Fuimos a ver los templos, la ciudad en su esplendor, los barrios pobres y las zonas más ricas, almorzamos algo muy típico de allí que no llevara pollo y nos echamos muchísimas fotos. A las cuatro, los deje en el hotel y yo me fui al piso, donde me encontré sola. Puse la música de la minicadena y me metí a la ducha; estaba muy nerviosa, tanto, que no sabía si la comida realmente me sentaría fatal.
+---Está bien, está bien ---me senté a su lado y abrí la bolsa. Dentro me encontré una caja muy pequeña, así que me asombré de que la bolsa fuera tan grande. Saqué la caja y dejé la bolsa a un lado. La miré y luego miré a Junsu --- Espero que no sea algo caro.
 
-Me estiré el pelo y, justo cuando termine, alguien llamo a la puerta de mi casa. Extrañada, fui a ver quién era... Y sonreí al verlo.
+---¿Qué importa el valor económico? ---resopló --- Realmente eso es lo que menos importa, solo mira el lado sentimental de las cosas, por favor.
 
---- ¿Puedo subir? --- Me preguntó.
+---Vale... ---puse un puchero y abrí la caja. Los pendientes que había ahí dentro eran realmente preciosos, pero el collar lo era aún más. Era de plata vieja y las piedras que tenían brillaba a colorines por la luz de mi comedor --- Junsu, es precioso.
 
---- Si... estoy sola...
+---Era de mi abuela ---dijo de golpe.
 
-Le abrí la puerta y, cuando subió a mi piso, le abrace. Nos quedamos así un buen rato y luego le bese. De pronto saco de la nada una bolsa.
+---¿Qué? ---lo miré horrorizada --- Junsu, no puedo aceptarlo.
 
---- Esto es para ti... --- Me dijo con una sonrisa.
+---Que es broma tonta ---rió y yo me enfadé --- Es un regalo que te hago yo porque me apetece.
 
---- ¿Para mí? --- Lo cogí extrañada --- No hacía falta que...
+---Pero...
 
---- Si supieras de quien es... --- Sonrió aún más --- No terminarías la frase.
+---¡Ah! Nada de pero ---cogió la caja y me puso el collar en el cuello acariciando mi piel, besando mi mejilla después de abrocharlo --- Te queda muy bien.
 
---- De quién es --- Insistí.
+---Muchas gracias ---toqué el collar y agache la cabeza. Realmente no merecía tantos detalles ni nada, con solo tenerlo a él me era suficiente. Lo abracé --- Te quiero Junsu.
 
---- Tu míralo y ábrelo, por favor... --- Se sentó en el sofá mientras yo miraba la bolsa --- Kiki... ábrelo.
+---Yo también te quiero, mi Kikita ---sonrió y acarició mi mejilla --- Por cierto, dijiste que a tu padre no le gusta el pavo, ¿verdad?
 
---- Está bien, está bien --- Me senté a su lado y abrí la bolsa. Dentro me encontré una caja muy, muy pequeña así que me asombre de que la bolsa fuera tan grande. Saque la caja y deje la bolsa a un lado. La miré y luego miré a Junsu --- Espero que no sea algo caro...
+---El pollo, el pavo, el pato y todo lo que tenga plumas, ¿por?
 
---- ... --- Resoplo --- ¿Que importa el valor económico? Realmente miras mucho el lado económico y poco el lado sentimental de las cosas...
+---Ah... ---se quedó pensativo y preocupado --- ¿Le tiene alergia o algo?
 
---- ... --- Puse un puchero y abrí la caja. Los pendientes que había ahí dentro eran realmente preciosos, pero el collar lo era aún más. Era de plata vieja y brillaba a colorines por la luz de mi comedor --- Junsu, es precioso...
+---¡Ah no! Es solo un capricho suyo ---dije entre risas.
 
---- Era de mi abuela --- Dijo de sopetón.
+---Es decir, que si no se dice lo que lleva se lo come, ¿no? ---preguntó dubitativo.
 
---- ¿Qué? --- Lo miré horrorizada --- Junsu, no puedo aceptarlo...
+---La cosa es no mencionar nada de pollo ---me eché a reí --- Aunque no sé si será así con tus padres y mas con el problema del idioma.
 
---- Que es broma tonta --- Rió y yo me enfade --- Es un regalo que te hago yo... porque me apetece.
+---Esa es otra ---frunció el entrecejo --- Estarás hablando mucho en español.
 
---- Pero...
+---Junsu, les tengo que traducir ---alcé una ceja divertida --- Lo que tienes que hacer tú es aprender español si quieres hablar con mis padres y mi familia.
 
---- ¡Ah! Nada de “pero” --- Cogió la caja y me puso el collar en el cuello --- Te queda muy bien, Kiki...
+---¡Ah! ---alzó un dedo y se quedó callado --- Si, si...
 
---- Muchas gracias... --- Toque el collar y agache la cabeza. Realmente no merecía tantos detalles ni nada, con solo tenerlo a él me era suficiente. Lo abrace --- Te quiero Junsu.
+De pronto se inclinó hacia mí, cayendo sobre el sofá, y comenzó a besarme mientras me hacía cosquillas. Y nos tiramos así hasta que el móvil de él comenzó a sonar.
 
---- Yo también te quiero, mi Kikita --- Sonrió y acaricio mi mejilla --- Por cierto... dijiste que a tu padre no le gusta el pavo, ¿verdad?
+---Mierda... ---se incorporó --- ¿Diga? ---me miró con un puchero mientras me acariciaba la cara, el cuello y bajaba por el hombro. No supe de qué hablaba por teléfono, no despegaba su vista de mis ojos y no dejaba de acariciar mi cuerpo con la yema de sus dedos de una manera muy especial. Realmente me estaba tentando a que no fuéramos a la cena esa noche, pero era algo muy importante para ambos --- De acuerdo ---escuché cuando dejo de acariciarme y volví a la realidad --- En un rato estaremos allí. Hasta luego Mamá ---colgó y me miro intensamente.
 
---- El pollo, el pavo, el pato y todo lo que tenga plumas --- Dije --- ¿Por?
+---¿Por qué me miras así? ---comencé a ponerme nerviosa.
 
---- Ah... eh... --- Miro a otro lado --- ¿Le tiene alergia o algo?
+Y sin decir nada, me agarró de la mano y me llevó hasta mi habitación. Me pareció escucharle decir que los sofás eran muy incómodos. Me echó sobre la cama y comenzó a besarme dulcemente mientras recorría sus manos por mis cuerpo. Lo agarré de las mejillas y luego paseé mis manos por su espalda. Aquello ya surgía solo, ya nos salía del alma, ya no tenía nada que me aprisionara el pecho para no poder hacerlo. O eso creía.
 
---- ¡Ah no! Es solo un capricho suyo --- Dije entre risas.
+---¿Kiki? ---escuché la voz de Elena y eché a un lado a Junsu, quien se puso también muy nervioso. Escuchamos más voces --- ¿Kiki, estás en casa?
 
---- Es decir, que si no se dice lo que lleva, se lo come, ¿no? ---preguntó dubitativo.
+---¡Sii! ---grité y Junsu me dio una patada suave mirándome mal, bajé la voz --- ¿Qué haces? No puedo decirles que no estoy aquí.
 
---- La cosa es no mencionar nada de pollo --- Reí --- Aunque no sé si será así con tus padres, mas con el problema del idioma...
+---Si, y yo también estoy aquí ---susurró con un puchero --- Medio en bolas y con el rollo cortado.
 
---- Esa es otra --- Frunció el entrecejo --- Nada de hablar en español...
+---Eso es lo de menos, babo ---reí y le di un beso --- Vístete y todo solucionado.
 
---- Junsu, yo les tengo que traducir --- Me extrañe --- Pero lo que tienes que hacer tu, majo, es aprender español si quieres hablar con mis padres y mi familia...
+---Ya, ya... ---Salió de la cama murmurando y cogió los pantalones, comenzando a vestirse.
 
---- ¡Ah...! --- Alzó un dedo y se quedó callado --- Si, si...
+Yo comencé a ponerme la ropa con más pereza que él, pero de pronto la puerta del dormitorio se abrió.
 
-De pronto se lanzó hacia mí, cayendo sobre el sofá y comenzó a besarme mientras me hacía cosquillas. Y nos tiramos asíhasta que el móvil de él comenzó a sonar.
+---¿Qué haces aquí Kiki? ---Elena fue la que entró. Silencio. Junsu estaba de espaldas y rápidamente se terminó de subir los pantalones --- Lo... lo siento mucho.
 
---- Mierda... --- Se incorporó --- ¿Diga? --- Me miro con un puchero mientras me acariciaba la cara, el cuello, el hombro... Y no supe de que hablaba por teléfono, no despegaba su vista de mis ojos y no dejaba de acariciar mi cuerpo con la yema de su dedo de una manera muy especial. Realmente me estaba tentando a que no fuéramos a la cena esa noche, pero era algo muy importante para ambos --- De acuerdo --- escuché cuando dejo de acariciarme y volví a la realidad --- En un rato estaremos allí, ya sabes, nada de decir pollo, pavo o lo que sea ave, ¿vale? ... ... va, hasta luego Mamá --- Colgó y me miro intensamente.
+---Mierda... ---Junsu se colocó la camiseta rápido, dejando ver una cara muy seria --- No pasa nada Elena.
 
---- ¿P---por qué me... miras así? --- Comencé a ponerme nerviosa.
+---No sé qué... pensar ---dio un paso atrás.
 
-Y sin decir nada, me agarro de la mano y me llevo hasta mi habitación. Me pareció que decía que los sofás eran muy incómodos. Me echo sobre la cama y comenzó a besarme dulcemente mientras recorría sus manos por mis costados. Lo agarre de las mejillas y luego pasee mis manos por su espalda. Aquello ya surgía solo, ya nos salía del alma... ya no tenía nada que me aprisionara el pecho para no poder hacerlo... o eso creía, vamos.
+---Junsu ---le di con un cojín en la espalda para que cambiara la cara --- No pasa nada, Elena ---y ella comenzó a reír con ganas.
 
---- ¿Kiki? --- escuché la voz de Elena y eche a un lado a Junsu, quien se puso también muy nervioso. Escuchamos más voces --- ¿Kiki, estas en casa?
+---Os he cortado el rollo ---y con su estruendosa risa se apoyó en el marco de la puerta, atrayendo a las otras cuatro que deambulaban por ahí.
 
---- ¡¡¡Sii!!! --- Grite y Junsu me dio una patada --- ¿Qué haces? --- Dije flojo --- Estoy aquí...
+---¿Qué pasa? ---cuando Hana se asomó, Junsu le dio la espalda a la puerta, con los brazos cruzados me miraba con cara de odio --- ¡Hay, madre, os hemos arruinado la fiesta!
 
---- Si, y yo también --- susurró con un puchero --- Y medio en bolas... y con el rollo cortado.
+Y todas en la puerta riéndose, pero me cansé de la broma y comencé a tirar cojines hacia la puerta. Escuché algo de Elena que hizo que Junsu diera un respingo y yo apretara los puños.
 
---- Eso es lo de menos, babo --- Reí --- Vístete y todo solucionado.
+---¡Le he visto el culo! ---Lo había dicho en español, pero cuando escuchó su nombre Junsu me miró con interrogación.
 
---- Ya, ya... --- Se puso los pantalones con un puchero.
+---Ha dicho algo de mí, ¿verdad? ---asentí --- Anda, ponte guapa, tenemos que irnos.
 
---- ¿Qué haces aquí Kiki? --- Elena irrumpió de pronto en mi habitación --- Omo... --- Silencio, Junsu estaba de espaldas y rápidamente se terminó de subir los pantalones --- Lo... lo siento mucho.
+---Espérame fuera ---le dije aguantando una risa.
 
---- ... --- Junsu se giró y se colocó la camiseta, dejando ver una cara muy seria --- No pasa nada Elena... estas perdonada...
+---¿Qué? ---abrió mucho los ojos --- Ni loco, yo te espero aquí ---se sentó en la cama --- Yo ahora solo no salgo fuera.
 
---- N---no sé qué... pensar --- Dio un paso atrás.
+---Pero que precioso eres ---me lancé a sus brazos y lo besé en la mejilla --- Pues nada quédate ahí, yo voy a cambiarme.
 
---- Junsu --- Le di con un cojín --- No sufras Elena... --- Y ella comenzó a reír.
+Me miró de reojo y se sonrojó mucho. Empecé a quitarme lo poco que llevaba puesto muy nerviosa, sabiendo que los ojos de Junsu no los tenía clavados en la nuca precisamente. Me tapé el pecho con la camiseta y lo miré, el volteó con rapidez la cabeza.
 
---- Os he cortado el rollo --- Y con su estruendosa risa se apoyó en el marco de la puerta y atrajo a las otras cuatro que deambulaban por ahí.
+---Kim Junsu... ---dije en señal de amenaza --- Tenemos prisa.
 
---- ¿Qué pasa? --- Cuando Hana se asomó, Junsu se dio la vuelta y se cruzó de brazos, me miro de reojo. Estaba muy sonrojado --- ¡¡Hay, madre, os hemos arruinado la fiesta!!
+---Si, si ---dijo con voz suave.
 
-Y todas en la puerta riéndose. Yo, me canse de la bromita y comencé a tirar cojines hacia la puerta. escuché algo de Elena que hizo que Junsu diera un respingo y yo apretara los puños.
+---Muy bien ---justo fue soltar la camiseta y dejar que cayera al suelo que sentí sus manos recorrer mi espalda desnuda. Me puse tensa --- ¿Que haces?
 
---- ¡¡Le he visto el culo!! --- Junsu me miro con interrogación, ya que lo había dicho en español.
+---Acariciar tu piel ---me susurró en el oído y pegó su cuerpo al mío, me estremecí al sentirlo.
 
---- Ha dicho algo de mí, ¿verdad? --- Asentí --- Anda, ponte guapa... y lo que te he comprado.
+---¿A ti no te habían cortado el rollo? ---tragué saliva lentamente.
 
---- Espérame fuera --- Le dije.
+---Si, pero solo con verte... ---besó mi hombro y llevó sus manos a acariciar mi vientre.
 
---- ¿Qué? --- Abrió mucho los ojos --- Ni loco... yo te espero aquí --- Y se sentó en la cama --- Yo ahora solo no salgo fuera.
+---Junsu... que están las chicas ---solté un jadeo cada vez más nerviosa. No parecía el mismo Junsu de siempre --- ¿Que te ocurre?
 
---- Pero que precioso eres --- Me lance a sus brazos y lo bese en la mejilla --- Pues nada, quédate ahí, yo voy a cambiarme...
+---Lo siento... ---paró lo miré de reojo. Se sentó sobre la cama mientras me miraba --- No puedo evitarlo.
 
-Me miro de reojo y se sonrojó mucho. Empecé a quitarme lo que llevaba muy nerviosa, sabiendo que los ojos de Junsu no los tenía clavados en la nuca precisamente. Me tape el pecho con la camiseta y lo mire, el volteo con rapidez la cabeza.
+---No te preocupes ---sonreí y me giré enseñándole dos camisetas --- ¿Lila o azul?
 
---- Kim Junsu... --- Dije en señal de amenaza --- Tenemos prisa...
+---Ah... ---abrió mucho los ojos, la boca y señaló al centro mientras se colocaba un cojín sobre el regazo, tragó saliva y habló entrecortado --- Lila...
 
---- Si, si --- Dijo con voz suave.
+---Gracias...
 
---- Muy bien --- Y justo fue soltar la camiseta y dejar que caiga al suelo, cuando sentí sus manos recorrer mi espalda, que en ese momento estaba sin nada. Me puse tensa --- ¿Que... que haces? --- Le pregunte.
+Me volví a girar y al fin terminé de vestirme sin más incidentes. Tardamos un poco hasta que Junsu se calmó y salimos de la habitación, donde vimos a las chicas sentadas por los sofás viendo la televisión.
 
---- Acariciar tu espalda --- Me susurró en el oído.
+--- ¿Vais a salir por ahí? ---las miré, vi que Elena estaba algo sonrojada y no despegaba la vista del televisor.
 
---- ¿A ti no te habían cortado el rollo? --- Trague lentamente.
+---¿Sabes quién me ha llamado? ---Hana salto de pronto y yo negué --- Sanghun. Quiere quedar esta noche, me ha dicho que quiere felicitarme por el estreno del drama.
 
---- Si, pero solo con verte... --- Beso mi hombro.
+---Vaya, que bien, ¿no? ---me alegré mucho.
 
---- Junsu... que están las chicas --- Y yo estaba cada vez más nerviosa. Muy nerviosa. No parecía el mismo Junsu de siempre --- ¿Que te ocurre?
+---Pues si, vamos a irnos nosotras ---me dijo sonriente --- Así le enseñamos a M las zonas de fiesta.
 
---- ... --- Y paro, lo miré de reojo --- Lo siento --- Se sentó sobre la cama mientras me miraba --- No puedo evitarlo, entiéndeme...
+---¿Pero ira algún SuJu? ---preguntó M.
 
---- No te preocupes --- Sonreí y me gire enseñándole dos camisetas --- ¿Lila o azul?
+---Nop ---negó tan tranquila Jane --- Solo el rollo de Hana y Elena.
 
---- ... --- Abrió mucho los ojos, la boca y señalo al centro, donde iba yo tan pancha, aunque realmente muy nerviosa, enseñándolo todo --- Lila...
+---No lo digas así, Jane ---Elena se puso más roja si aún podía --- Suena muy raro.
 
---- Gracias...
+---Es lo que es ---Hana se encogió de hombros --- ¿Junsu?
 
-Me volví a girar y al fin termine de vestirme sin más incidentes. Salimos de la habitación donde vimos a las chicas sentadas por los sofás viendo la televisión.
+---Ah... ---el nombrado se encogió detrás de mí, no dejaba de darme tirones en la camiseta para que nos diéramos prisa. Miro a Hana por encima de mi hombro--- ¿Si?
 
---- ¿Vais a quedar o algo? --- Las mire, vi que Elena estaba algo sonrojada y no despegaba la vista del televisor.
+---¿Qué haces ahí escondido? ---dijo ella.
 
---- ¿Sabes quién me ha llamado? --- Hana salto de pronto y yo negué --- ¡¡Sanghun!! Quiere quedar esta noche, me ha dicho que quiere felicitarme por el estreno del drama.
+---Tenemos prisa Kiki ---me arrastró hasta la puerta --- Hasta otro día, chicas.
 
---- Vaya, que bien, ¿no? --- Me alegre.
+Sin darme tiempo a decir nada más, cogí mi bolso y salimos de allí. Yo empecé a reírme en acto reflejo, a lo que Junsu puso un puchero.
 
---- Pues si... vamos a irnos nosotras --- Me dijo sonriente --- Así le enseñamos a M las zonas de fiesta.
+---Eres muy adorable, Junsu ---le di un toque en la nariz --- Vamos, que tenemos que recoger a mis padres al hotel.
 
---- ¿Pero ira algún SuJu? --- preguntó M.
+---¡Ah! ---se sobresaltó --- Eso no me lo has dicho, señorita.
 
---- Nop --- Negó tan pancha Jane --- Solo el rollo de Hana y Elena.
+---Lo siento ---me miré el reloj --- Y ahora vamos con la hora muy justa.
 
---- No lo digas así, Jane --- Elena se puso más roja si aún cabía --- Suena muy raro.
+Mientras me reía de Junsu, que aún seguía rojo, llegamos al hotel. llamé a mis padres que no tardaron en bajar. Nada más verlos, a Junsu le cambió por completo la cara. Se puso serio y puede que simulara algo de tranquilidad. Se montaron en el coche y fuimos rumbo a casa de Junsu.
 
---- Es lo que es --- Hana se encogió de hombros --- ¿Junsu?
+---María, te ha crecido mucho el pelo ---me dijo mi madre mientras lo acariciaba desde el asiento de atrás --- Y lo tienes más sano, menos mal que se te pasó de la cabeza eso de teñírtelo de colores.
 
---- ... --- El nombrado se encogió detrás de mí, no dejaba de darme tirones en la camiseta para que nos diéramos prisa. Miro a Hana por encima de mi hombro--- ¿Si?
+---Ah, pues mira que pensaba ponérmelo rosa entero ---me eché a reír girando el cuerpo para mirarla --- Vi en una bailarina que lo tiene así de largo y rosa, que se queda muy bien.
 
---- ¿Qué haces ahí escondido? --- Dijo ella.
+---No será cierto, ¿no? ---mis padres me miraron serios.
 
---- Tenemos prisa Kiki --- Me arrastro hasta la puerta --- Hasta otro día, chicas...
+---Que no, que es broma ---reí divertida --- Ya me lo dejaré tal cual está.
 
-Sin darme tiempo a decir nada, cogí mi bolso y salimos de allí. Yo empecé a reírme en acto reflejo, a lo que Junsu puso un puchero.
+---¿Y ha visto...? ---vi en el rostro de mi madre la interrogación de no acordarse de su nombre mientras le señalaba.
 
---- Eres muy adorable, Junsu --- Le di un toque en la nariz --- Vamos, que tenemos que recoger a mis padres al hotel.
+---Junsu ---él me miro.
 
---- ¡Ah! --- Se sobresaltó --- Eso no me lo has dicho, señorita...
+---Eso, ¿ha visto _Junsu_ tus fotos antiguas? ---me preguntó a lo que yo negué --- Pues enséñaselas, a ver qué opina de tu pelo.
 
---- Lo siento --- Me miré el reloj --- Y ahora vamos con la hora muy justa...
+---Seguro que le gusta porque soy yo ---le saqué la lengua y miré a Junsu --- Oye ---capté su atención dándole suave en el brazo, hablando coreano --- ¿Qué opinas si me ves con el pelo corto y rosa?
 
-Mientras me reía de Junsu por su actuación cuando habíamos salido de la habitación, ya que no se despegó de mi espalda ni un momento ni levanto cabeza, llegamos al hotel. llamé a mis padres, que no tardaron en bajar... y a Junsu, como era de esperar, le cambio por completo la cara.
+---¿Rosa? ---me miró sorprendido y se quedó pensativo --- ¿Hablabais de eso? ---me preguntó y yo asentí esperando respuesta --- Pues no se, ¿lo has llevado así?
 
---- María, te ha crecido mucho el pelo --- Me dijo mi madre mientras lo acariciaba --- Y lo tienes ahora más sano... menos mal que se te paso de la cabeza eso de teñírtelo de colores...
+---Te ha dicho que no, ¿verdad? ---dijo mi madre.
 
---- Ah, pues mira que pensaba ponérmelo rosa entero --- Sonreí --- Vi en una bailarina que lo tiene así de largo y rosa, que se queda muy bien...
+---No ha dicho nada aun ---me volví a ella y de nuevo a Junsu --- Dime, tu solo dime.
 
---- ... --- Mis padres me miraron serios --- No será cierto, ¿no?
+---No sé, Kiki ---se quedó pensando --- Tendría que verte y sinceramente no te imagino así ---y rió.
 
---- Que no, que es broma --- Reí divertida --- Ya me lo dejare largo...
+---Ok, ok ---alcé las manos, me puse bien y le hablé a mi madre --- Ya le enseñaré las fotos ---miré a Junsu  diciendo lo mismo para que él lo entendiera.
 
---- ¿Y ha visto...?
+Llegamos a su casa y comencé a ponerme más nerviosa, me fijé que Junsu también estaba nervioso, ya que intentaba relajarse mientras me cogía con fuerza de la mano. Llegué a un punto en el que no sabía si me llegaba la sangre ahí o no. Entramos en la casa y un olor me golpeo en la cara, un olor muy bueno. Juno acababa de terminar de poner la mesa nada más entrar nosotros así que me miró y sonrió.
 
---- Junsu --- El me miro.
+---Hola Kiki ---luego saludo a mis padres con cordialidad --- ¿Todo bien?
 
---- Eso, ¿ha visto tus fotos? --- Me preguntó mi madre. Yo negué --- Pues enséñaselas, a ver qué opina de tu pelo...
+---Por ahora ---resoplé --- Oye, ¿tú vas a salir con Sanghun?
 
---- Seguro que le gusta porque soy yo --- Le saque la lengua y mire a Junsu --- Su --- Capte su atención --- ¿Qué opinas si me ves con el pelo corto y rosa?
+---Me han llamado ---asintió --- Así que saldré un rato para dejaros tranquilos.
 
---- ¿Rosa? --- Me miro sorprendido y se quedó pensativo --- ¿Hablabais de eso? --- Me preguntó y yo asentí esperando respuesta --- Pues... no se... ¿lo has llevado así?
+---A ver si te echas novia, hyung ---susurró Junsu entre risitas.
 
---- Te ha dicho que no, ¿verdad? --- Dijo mi madre.
+---Bueno, no tengo prisa dongsaeng ---le guiño un ojo --- Tu hyung sabe lo que hace.
 
---- No ha dicho nada aun --- Me volví a ella y de nuevo a Junsu --- Dime... tu solo dime...
+---Ya... ---Junsu arrugó la nariz y fue a la cocina, quejándose cuando Juno le dió un suave golpe en la espalda.
 
---- No se Kiki --- Se quedó pensando --- Tendría que verte, sinceramente, no te imagino así --- Y rió.
+---Ya que Junsu no lo dice ---miró a mis padres --- Kiki diles que se pueden sentar en el sofá mientras tanto, ¿quieren algo de beber? ---señaló el sofá.
 
---- Ok, ok --- Alce las manos y me puse bien --- Ya le enseñare las fotos... --- miré a Junsu --- Ya te enseñare las fotos...
+---Ah ---me giré a mis padres y les hablé en español --- Él es Juno, el hermano mellizo de Junsu, dice que os podéis sentar en el sofá y si queréis algo de beber.
 
-Llegamos a su casa y a mí me comían los nervios... y a él también, que intentaba relajarse mientras me cogía con fuerza de la mano. Llegue a un punto en el que no sabía si me llegaba la sangre ahí o no. Entramos en la casa y un olor me golpeo en la cara, además, un olor muy buena. Juno acababa de terminar de poner la mesa nada más que entramos nosotros, me miro y sonrió.
+---Gracias ---dijo mi madre mientras ambos iban hacia el sofá --- Esperaremos a la cena.
 
---- Hola Kiki --- Y luego saludo a mis padres. Me miro --- ¿Todo bien?
+---Dicen que no les apetece nada ---le dije a Juno --- Pueden esperar a la cena, gracias.
 
---- Por ahora --- Resople --- Oye, ¿tú vas a salir con Sanghun?
+Nos pusimos a cenar tranquilamente. La madre de Junsu hizo pescado, ternera y arroz, mas complementos de verduras, sopas y más cosas. Había muchísima comida repartida en pequeños platos, era lo que más me gustaba de la gastronomía coreana. Después de que terminara la cena Juno se marchó, ya que Sanghun vino a por él, pese a que su madre fue un poco reacia a que se fuera.
 
---- Me han llamado --- Asintió --- Así que saldré un rato para dejaros a los seis solos.
+Entre mi madre y la de Junsu se pusieron a recoger la mesa, había problemas con el idioma, pero la limpieza era universal y mi madre lo hablaba bien. Yo apenas era incapaz de moverme así que nos pusimos a charlar de infinidades de cosas. Hablamos de nosotros, de nuestro país, de nuestra casa, de nuestras costumbres y de aún más cosas que yo le pudiera decir la única vez que vine.
 
---- A ver si te echas novia, hyung --- susurró Junsu entre risitas.
+La cosa fue tan extraña que ni yo misma podía explicarlo con palabras, tan solo servía de traductora a todas las cosas que ellos tenían que decirse, que eran muchas, y ya está. Si quería desaparecer un segundo con Junsu para que me enseñara su habitación lo tenía complicado. Y antes de que llegara media noche decidieron que ya era una hora prudencial de marcharse, mis padres volvían a la mañana siguiente a España. Nos despedimos en la puerta de los padres de Junsu y dejamos a los míos en el hotel. Allí aproveché para despedirme de ellos, ya que al día siguiente yo tenía mucho trabajo con la grabación. Me dijeron cosas muy bonitas que hacía un año y medio no me hubiera esperado de ellos.
 
---- Bueno, no tengo prisa dongsen---ah --- Le guiño un ojo --- Tu hyung sabe manejar las cosas...
+---Me alegra que todo te vaya tan bien ---me dijo mi padre --- Al final no era tan malo todo lo que hacías antes de llegar aquí.
 
---- Ya... --- Le dio un suave golpe en la espalda y se marchó a la cocina.
+---Te ha servido para aprender y eso es lo bueno ---me señaló mi madre y luego se volvió a Junsu --- Y tú, ten mucho cuidado la próxima vez.
 
---- Ya que Junsu no lo dice --- Miro a mis padres --- Kiki, dile que se pueden sentar en el sofá mientras tanto, ¿quieren algo de beber? --- Señalo el sofá.
+---Mamá... ---sorprendida se lo traduje a Junsu --- ¿A qué te refieres, mamá?
 
---- ... --- Los miré --- Él es Juno, el hermano mellizo de Junsu, quien nos invita a sentarnos al sofá y si queréis algo de beber...
+---Al accidente que ha comentado su madre ---se lo volví a traducir --- Me ha dejado muy preocupada.
 
---- Gracias --- Dijo mi madre mientras ambos iban hacia el sofá --- No hija, esperaremos a la cena.
+---No se preocupe ---dijo una vez que se lo traduje --- De todas formas no me importa, mientras ella este bien haré lo que sea ---me cogió de la mano y me sonrojé.
 
---- Dicen que no les apetece nada --- Le dije a Juno --- Pueden esperar a la cena.
+---Ah... ---lo traduje cuando me compuse y mi madre sonrió complacida, mi padre solamente suspiró. Lo miré preocupada --- Sinceramente él ha arriesgado muchísimas cosas por mí.
 
-Nos pusimos a cenar tranquilamente. La madre de Junsu hizo pescado, carne y arroz, mas complementos de verduras, sopas y demás cosas. Había muchísima comida, era cierto lo que veía en algunos dramas en la hora de la comida, tienen infinidad de platos. Después de que terminara la cena, Juno se marchó, ya que Sanghun vino a por él, pese a que su madre fue un poco reacia a que se fuera.
+---No te discuto eso hija ---dijo mi padre serio --- Solamente te prevengo de la realidad. El golpe es más flojo si estás más cerca del suelo.
 
-Después de que mi madre ayudara a quitar la mesa a la madre de Junsu, yo era apenas incapaz de moverme, nos pusimos a charlar de infinidades de cosas. Hablamos de nosotros, de nuestro país, de nuestra casa, de nuestras costumbres... de aún más cosas que yo le pudiera decir la vez que vine.
+---Papá ---fruncí el ceño. Daba gracias a que Junsu no entendiera eso --- Creo que soy lo suficiente mayor como para saberlo o darme cuenta.
 
-La cosa fue tan extraña que ni yo misma podía explicarlo con palabras, tan solo servía de traductora a todas las cosas que ellos tenían que decirse, que eran muchas, y ya está. Si quería desaparecer un segundo con Junsu, para que me enseñara su habitación lo tenía muy imposible. Y antes de que llegara media noche, decidieron que ya era una hora prudencial de que se marcharan, mis padres volvían a la mañana siguiente a España. Los dejamos en el hotel, me despedí de ellos, ya que yo estaría muy entretenida grabando el drama que no podía despedirme de ellos en el aeropuerto. Y me dijeron cosas muy bonitas, que hacía un año y medio no me hubiera esperado de ellos.
+---Si, tienes razón ---mi madre calmó a mi padre --- Hija, solo sé feliz. Si eso te hace feliz, a nosotros también. Pero si tengo un nieto, quiero poder conocerlo.
 
---- Me alegra que todo te vaya tan bien --- Me dijo mi padre --- Al final no era tan malo todo lo que hacías...
+---Madre mía mamá ---comencé a toser y me puse nerviosa, Junsu lo notó y se alarmó --- Bueno, sin prisas, antes habrá una boda.
 
---- ¿Te ha servido para aprender? --- Me señaló mi madre y luego se volvió a Junsu --- Y tú... --- Suspiro --- Ten mucho cuidado la próxima vez...
+---Espero ---señaló mi padre.
 
---- ... --- Sorprendida se lo traduje --- ¿A qué te refieres, mamá?
+---Bueno, os lo haría saber de todas formas. Iremos a España antes de nada ---sonreí aún mantenía la mano de Junsu agarrada, aunque la solté para abrazar a mis padres para despedirme --- Muchas gracias por todo.
 
---- Al accidente ese que ha comentado su madre --- Se lo volví a traducir --- Me ha dejado muy preocupada.
+Lloré un poco y enseguida se subieron al hotel. Me desplomé en el coche de Junsu secándome la cara, él me miró con un puchero, ya sabía por dónde iban sus quejas.
 
---- No se preocupe --- Dijo una vez que se lo traduje --- De todas formas, no me importa, mientras ella este bien... --- Me cogió de la mano y me sonrojé.
+---No han dicho nada malo ---le mentí un poco.
 
---- Ah... --- Se lo traduje cuando me compuse y mi madre sonrió complacida, mi padre solamente suspiró. Lo miré --- ¿Qué? Sinceramente él ha arriesgado muchísimas cosas por mí... más que yo por él.
+---Vuestra expresión decía lo contrario --- Me miró de reojo --- ¿Va todo bien?
 
---- No te discuto eso hija --- Dijo mi padre serio --- Solamente te prevengo de la realidad. El golpe es más flojo si estás más cerca del suelo...
+---Si ---me volteé para mirarlo dulcemente y lo cogí de la mano --- Junsu, ¿te he dicho alguna vez que te quiero?
 
---- Papá --- Fruncí el ceño. Daba gracias a que Junsu no entendiera eso --- Creo que soy lo suficiente mayo como para saberlo o darme cuenta.
+---No lo sé ---sonrió y se acercó hasta mí, besando dulcemente mis labios --- Yo también te quiero.
 
---- Si tienes razón --- Mi madre calmó a mi padre --- Hija, solo sé feliz. Si eso te hace feliz, a nosotros también... Pero si tengo un nieto, quiero verlo...
+Estiré mi mano hasta acariciar su mejilla, entrelacé mis dedos sobre su suave y corto pelo, agarrando suave su nuca y acercándolo hacia mí con pasión. Solo nos separamos para coger un poco de aire.
 
---- ... --- Comencé a toser y me puse nerviosa, Junsu lo notó y se alarmó --- Bueno, sin prisas... antes habrá una boda.
+---Tengo algo que le he cogido prestado a alguien... ---me susurró a escasos centímetros de mi boca --- ¿Te apetece que vayamos?
 
---- Espero... --- Susurró mi padre.
+---Ahora mismo me opongo a pocas cosas mientras tu estés conmigo ---dije sin ser lógica.
 
---- Bueno... yo... os lo haría saber, de todas formas, iremos a España antes de nada --- Sonreí sin soltar la mano de Junsu en ningún momento, solo para abrazarles --- Muchas gracias por todo.
+Tuve que contenerme mucho de camino al lugar que él me llevaba. Junsu pasaba la mano por mi muslo, despacio iba subiendo poco a poco y yo intentaba relajarme mientras acariciaba su mano, ralentizando la subida. Realmente estaba nerviosa. Aunque sabía a lo que iba, lo hacía con mi consentimiento. Aparcamos frente a una casa preciosa. Era de piedra gris claro y estaba en un barrio bastante caro. Nos fijamos que había unas chicas frente a la puerta.
 
-Lloré un poco y enseguida se subieron al hotel y yo me desplomé en el coche de Junsu. Me miró con un puchero y sabía ya por dónde iban sus quejas.
+---Según escuché se irán enseguida ---susurró Junsu.
 
---- No han dicho nada malo --- Le mentí un poco.
+---¿Qué? ---me sorprendí mucho --- ¿Quiénes son?
 
---- Vuestra expresión decía lo contrario --- Me miró de reojo --- ¿Va todo bien?
+---Cassiopeia ---me dijo encogiéndose de hombros, enlazando los dedos con los míos --- Yoochun dijo que vienen a menudo.
 
---- ¡¡Si!! --- Me volteé para mirarlo dulcemente y lo cogí de la mano --- Junsu, ¿te he dicho alguna vez que te quiero?
+---¿Yoochun? ---fruncí el ceño de la sorpresa.
 
---- No de esa manera --- Se acercó hasta mí y besó dulcemente mis labios --- Yo... también te quiero.
+---Es la casa de Yoochun ---señaló Junsu.
 
-Estiré mi mano hasta acariciar su mejilla y entrelazar mis dedos sobre su suave y corto pelo, cogiendo de la nuca y acercándolo hacia mí con pasión. Solo nos separamos para coger un poco de aire.
+Abrí mucho los ojos y la miré. Cierto, ahora que lo decía yo había visto fotos de su casa y de sus mudanzas, sabía muchas cosas de ella y ahora yo estaba allí, con Junsu.
 
---- Tengo algo... que le he cogido prestado a alguien... --- Me susurró a escasos centímetros de mi boca --- ¿Te apetece que vayamos?
+---¿Y por qué aquí? ---pregunté volviéndolo a mirar.
 
---- Ahora mismo... me opongo a pocas cosas mientras tu estés conmigo --- Dije sin ser partícipe de una razón lógica.
+---Es el mejor sitio para tener privacidad ---razonó --- Yoochun casi nunca viene y no tenemos quienes nos interrumpan.
 
-Tuve que contenerme mucho de camino a aquel lugar al que él me llevaba. Mi pierna izquierda había cobrado vida, mis dedos se crujían cuando los aplastaba con la mano llena de nervios, mi pecho subía y bajaba a un ritmo vertiginoso gracias a mi respiración. Realmente estaba nerviosa... aunque sabía a lo que iba, e iba con mi gran consentimiento. Aparcamos frente a una casa preciosa. Era de piedra y estaba en un barrio bastante caro. Nos fijamos que había unas chicas en la puerta.
+---¿Y si él viniera? ---mi expresión no cambiaba --- ¿Y si decide venir de pronto?
 
---- Según escuché, se irán enseguida --- Susurró Junsu.
+---Bueno, Kiki, es Yoochun no pasa nada ---se quedó pensando --- Aunque me enfadaría si él te ve el culo ---dijo calmando las risas.
 
---- ¿Qué? --- Me sorprendí mucho --- ¿Quiénes son?
+---No le veo la gracia, Kim Junsu ---lo señalé --- Vamos a otro sitio... ---miré de reojo la casa.
 
---- Cassiopeia --- Me dijo encogiéndose de hombros --- Yoochun dijo que vienen a menudo.
+---Kiki, que de verdad que no pasa nada. Yoochun no vendrá ---me dio unas palmadas en la mano y miró a las chicas, que se marchaban felices mientras hablaban entre ellas --- Estaremos completamente solos.
 
---- ¿Yoochun? --- Fruncí el ceño de la sorpresa.
+Para ser sincera conmigo misma tenía más curiosidad de poder entrar en esa casa, que las ansias de estar a solas con Junsu. El fuego y la pasión de mi cuerpo se habían esfumado por una razón que quise anular de mi mente sin siquiera imaginarla. Aparcó bien el coche y entramos dentro de la casa. No tenía palabras para describirla por dentro. Era preciosa, para nada como me había imaginado, tenía tanto estilo de él ahí encerrado.
 
---- Es... la casa de Yoochun --- Señaló Junsu.
+Suspiré con cierto aire de melancolía que Junsu ignoró por completo. Con una gran sonrisa me agarró de la mano y me llevó hasta la habitación principal. Me detuve por un momento en la puerta, pero él me agarró fuerte de la mano e insistió para que pasara. Era tan bonita, no tenía más palabras. Me llené los pulmones con su aroma.
 
-Abrí mucho los ojos y la miré. Cierto, ahora que lo decía, yo había visto fotos de su casa y de sus mudanzas, sabía muchas cosas de ella y, ahora yo estaba allí, con Junsu.
+---La de veces que ese ha traído chicas aquí ---se pegó a mí y me abrazó --- Kiki, ¿estás temblando?
 
---- ¿Y por qué aquí? --- Pregunté volviéndolo a mirar.
+---No, no ---me solté y me di la vuelta. Suspiré profundamente --- No sé cuáles eran tus pensamientos a la hora de venir aquí, pero yo no puedo hacer nada.
 
---- Es el mejor sitio --- Razonó --- No sé, Yoochun nunca viene y siempre está vacía.
+---¿Por qué? No te entiendo ---me agarró de la mano y me volteó.
 
---- ¿Y si viniera? --- Mi expresión no cambiaba --- ¿Y si decide venir de pronto?
-
---- Bueno, Kiki... es Yoochun, no pasa nada --- Se quedó pensando --- Aunque me enfadaría si él te ve el culo... --- Dijo calmando las risas.
-
---- No le veo la gracia, Kim Junsu --- Lo señalé --- Vamos a otro sitio... --- Miré de reojo la casa.
-
---- Kiki, que de verdad que no pasa nada... Yoochun no vendrá --- Me agarró de la mano y miró a las chicas, que se marchaban felices mientras hablaban entre ellas --- Estaremos completamente solos.
-
-Para ser sincera conmigo misma, me tiraba más el hecho de poder entrar en esa casa, que el estar a solas con Junsu. El fuego y la pasión de mi cuerpo se habían esfumado por una extraña razón que quise anular de mi mente sin siquiera imaginarla. Aparcó bien el coche y, sin agarrarnos, entramos dentro de la casa. Y no tenía palabras para describirla por dentro. Era preciosa, para nada como me había imaginado, tenía tanto estilo de él ahí encerrado...
-
-Suspiré con cierto aire de melancolía que Junsu ignoró por completo. Con una gran sonrisa me agarró de la mano y me llevó hasta la habitación principal, la de Yoochun. Me detuve por un momento en la puerta, pero él me agarró fuerte de la mano e insistió para que pasara. Era tan bonita... no tenía más palabras. Me llené los pulmones con su aroma.
-
---- La de veces que ese ha traído chicas aquí --- Se pegó a mí y me abrazó --- Kiki... ¿estás temblando?
-
---- No, no --- Me solté y me di la vuelta. Suspiré profundamente --- No sé cuáles eran tus pensamientos a la hora de venir aquí, pero yo no puedo hacer nada.
-
---- ¿Por qué? No te entiendo --- Me agarró de la mano y me volteó.
-
---- No hay mucho que entender --- Le di un beso mientras miraba por encima de su hombro una foto que Yoochun tenía con el grupo sobre la mesita de noche --- Junsu, vayamos mejor al comedor...
+---Simplemente no puedo ---le di un beso mientras miraba por encima de su hombro una foto que Yoochun tenía con el grupo sobre la mesita de noche --- Junsu, vayamos mejor al comedor.
 
 Lo arrastré y él se dejó llevar en silencio. Me senté sobre el cómodo sofá color gris oscuro y él se sentó a mi lado, aún expectante a mi reacción.
 
---- ¿Quieres ver alguna película? --- Me preguntó.
+---¿Quieres ver alguna película? ---me preguntó.
 
---- No --- Lo miré a los ojos, pero es que, por mucho que quisiera y lo intentara, no veía a Junsu frente a mis ojos, y eso me estaba matando. El estar ahí, el que esa olor me quemara la nariz, el pensar que había traído a muchas chicas a esa cama... --- ¿Entonces?
+---No --- Lo miré a los ojos, por mucho que quisiera y lo intentara, no veía a Junsu frente a mis ojos y eso me estaba matando. El estar ahí, el que esa olor me quemara la nariz, el pensar que había traído a muchas chicas a esa cama era lo que tenía dentro de la cabeza --- ¿Entonces?
 
---- ... --- Lo abracé y me quedé apoyada sobre él --- Lo siento Junsu... mejor no digas nada ahora.
+---Lo siento Junsu ---lo abracé y me quedé apoyada sobre él --- Mejor no digas nada ahora.
 
-Se quedó en un extraño silencio el comedor. Acarició mi cabeza con suavidad y la besó dos o tres veces. Y enseguida caí rendida mientras escuchaba el latir de su corazón y me movía acompasada al movimiento de su respiración. No sabía qué hora era, pero me desperté muy sobresaltada. Al mirar a mi alrededor no identifiqué esa habitación como la mía, ni la de Junsu en el piso de los chicos... Y me acordé de que estaba en la casa de Yoochun, en su cama...
+Se quedó un extraño silencio en el comedor. Acarició mi cabeza con suavidad y la besó dos o tres veces. Y enseguida me quedé mientras escuchaba el latir de su corazón y me movía acompasada al movimiento de su respiración.
 
-Salí de allí con rapidez y vi a Junsu dormido, acobijado bajo una gruesa manta de plumas color negra. Me fijé en que llevaba una enorme camiseta que olía a Yoochun y que tan solo llevaba las bragas debajo. Mi instinto fue llevarme mano al pecho y sonrojarme, pero sabía que Junsu me había visto con anterioridad desnuda, así que enseguida me calmé.
+No sabía qué hora era, pero me desperté muy sobresaltada. Al mirar a mi alrededor no identifiqué esa habitación como la mía ni la de Junsu en el piso de los chicos. Y me acordé de que estaba en la casa de Yoochun, por lo que estaba en su cama.
 
-Me asomé a la ventana sin encender la luz y sin querer hacer mucho ruido, pero el tiro me salió por la culata, me tropecé con algo duro en el pie y me hice mucho daño. Miré a Junsu, que seguía dormido. Al abrir la ventana, vi que aún era de noche, también vi un bonito balcón y un cesto para un perro... Harang. Y me di cuenta de que hacía frío. Me sobé los brazos con intención de calentarme, pero tenía frío en las piernas, así que intercambiaba el frote de mi pie con una pierna sucesivamente.
+Salí de allí con rapidez y vi a Junsu dormido, acobijado bajo una gruesa manta de plumas color negro. Me fijé en que llevaba una enorme camiseta que olía a Yoochun y que tan solo llevaba las bragas debajo. Mi instinto fue llevarme mano al pecho y sonrojarme. Junsu me había puesto cómoda para dormir, así que enseguida me calmé.
 
-No sabía que me había ocurrido... nada coherente pasaba por mi cabeza en ese momento. Miré las estrellas y resoplé. Ni siquiera se me había pasado por la cabeza el hecho de llamar a las chicas o despedirme de M, estaba tan ensimismada en lo que me estaba ocurriendo que hasta olvidé que al día siguiente era lunes y tanto Junsu como yo teníamos trabajo. Y vi llegar un coche negro, que se paró en la puerta, alguien se bajó de él, llevaba un abrigo de capucha puesto, así que no supe quién era hasta que Harang se dejó ver...
+Me asomé a la ventana sin encender la luz y sin querer hacer mucho ruido, pero la jugada me salió mal, me tropecé con algo duro en el pie y me hice mucho daño. Miré a Junsu por si lo había despertado pero seguía dormido. Al abrir la ventana vi que aún era de noche, también vi un bonito balcón y un cesto para un perro. Y me di cuenta de que hacía frío. Me acaricié los brazos con intención de calentarme, pero tenía frío en las piernas, así que intercambiaba el frote de mi pie con una pierna sucesivamente.
+
+No quería pensar en lo que me había pasado esa noche, nada coherente pasaba por mi cabeza en ese momento. Miré las estrellas y resoplé. Ni siquiera se me había pasado por la cabeza el hecho de llamar a las chicas o despedirme de M, estaba tan ensimismada en lo que me estaba ocurriendo que hasta olvidé que al día siguiente era lunes, y tanto Junsu como yo teníamos trabajo. Vi llegar un coche negro que se paró en la puerta, alguien se bajó de él, llevaba un abrigo de capucha puesto, así que no supe quién era hasta que Harang se dejó ver.
