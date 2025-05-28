@@ -1,42 +1,94 @@
 = Capítulo 29
 
-Y el tiempo pasaba... y no solo pasaba eso, sino que algunas se iban olvidando de cosas que habían hecho y dejado de cumplir. Elena volvió a tener ciertos problemas con algunas fans Cassiopeia y Elf, aunque alguna también quiso ensañarse contra Jane, pero enseguida se calmó la cosa, ya que amenacé con volver a cortar el grifo del drama. El problema que esa vez no se mostraron tan simpáticas como la primera vez.
+Y el tiempo pasaba.
 
-Las “líderes” de los dos clubes de fans se reunieron conmigo en una cafetería para hablar. Habían insistido en ir a la SM, pero yo no quería follones, así que dije que fuera en una cafetería poco transitada, más que nada porque hacía poco que las chicas y yo habíamos tenido que empezar a ir con guardaespaldas y demás cosas, ya que algunas fans nos seguían, anti fans hacían de las suyas y los periodistas algunas veces nos acosaban.
+Tenía que agradecer que las fans empezaran a comportarse con los episodios que iban saliendo. No solo empezaron a comportarse mejor, sino que las chicas comenzaban a tener sus propios fans. Por ende yo también, por muy poco que me gustara. Había llegado ese momento en el que teníamos que ir con una furgoneta y guardaespaldas a todos lados porque era bastante incómodo moverse ya por la ciudad. Habíamos dejado de ser personas anónimas.
 
-Los chicos nos decían que nos acostumbraríamos, pero sinceramente no entendía como ellos podían ir a veces tan tranquilos por las calles con tanta loca suelta. Y ahí estaba yo, viendo como había empezado a nevar en Seúl y tomándome un chocolate caliente con las dos portavoces. La reunión fue de lo más tranquila, las chicas se disculpaban a boca abierta por todo lo que estaba pasando, que ellas no podían controlar a todas las fans y que de verdad ellas querían el bien para los dos grupos. Sabían que aquello era un simple drama y estaban convencidas de que ninguno de los chicos mantenía una relación seria con ninguna chica. Hasta insinuaron que sería imposible de que alguno saliera con nosotras por ser extranjeras, lo dijeron tan camuflado que tuve que pensarlo mucho hasta caer en cuenta lo que habían dicho.
+---Por un lado me gusta esta sensación ---meditó una tarde lluviosa Jane --- Por otro lado me da algo de miedo lo que pueda pasar en un futuro.
 
-Entonces me dieron ganas de decir que yo estaba saliendo con Junsu, pero si habían olvidado por completo el horrible incidente y no suponían nada de lo mío con el Junsu, yo estaba más que feliz por eso. El caso es que estaban intentando por todos los medios calmar a las fans ofendidas, pero que yo debía de entender que no a todas les hace gracia ver como unas extranjeras se habían metido así, de buenas a primeras con los chicos en ese drama. Y de verdad yo lo entendía, pero les dije claramente que ellas también eran extremistas y cerradas, no podían ser tan racistas solo porque ellas eran extranjeras. Al fin y al cabo solo eran actrices, y tanto ellos como ellas actuaban.
+---La cosa es que somos famosas fuera de Corea, en todo el mundo ---añadió R.
 
-Las dos estuvieron de acuerdo conmigo y, enseguida concluyó esa misteriosa reunión. Y meditando, a pesar de ese grupo pequeño de anti fans, el drama iba súper bien. Elena y Hana empezaron a rodar otro drama. La primera era con un papel principal en una serie de la KBS, centrado en la vida de una extranjera en Seúl y su triunfo como bailarina. Y Hana había firmado para rodar una película como “amiga” de la protagonista, vamos que ninguna de las dos se podía quejar.
+Y era cierto. El boom que había tenido el drama había hecho que las invitaran individualmente a diversos programas de entretenimiento. Solas o acompañadas, de vez en cuando un programa nos invitaba para hablar del reciente éxito que habíamos tenido y de la trayectoria que nos esperaba.
 
-Pero R y Jane se sentían algo chafadas, porque habían terminado de rodar mi drama y veían que después de las galas y premios, volvían a España, y ninguna de las dos querían. Yo ya le propuse, antes de hablar con Jane, a Lee Sooman, que la rubia entrara al grupo de las SNSD como una nueva integrante. Jane había demostrado tener gran habilidad para el canto y el baile, pero Lee Sooman se lo pensó mucho, ya que tuvo la experiencia de “Only13” con Super Junior y Henry. Aunque me dijo que lo estudiaría y que empezaría a pensarlo, ya que tampoco sonaba nada mal.
+Yo tenía claro que no quería dedicarme a la actuación, aquello había sido de puro rebote, pero para las otras cuatro habían sido unas puertas que se habían abierto de par en par.
 
-Y R... ¿qué hacía con ella? Cada vez se llevaba mejor con Changmin, pero nadie ofrecía un trabajo para ella en la televisión o la radio, y ella estaba muy desanimada al ver que tenía que separarse del más alto del grupo, y no quería. Aunque él no se había declarado abiertamente, pasaban muchas horas juntos hablando de a saber que hablaban ellos, y yo me sentía algo triste... Pero todo comienzo tiene su final, ya sea trágico o realmente feliz. Y el tiempo corría, y no a favor de todos.
+Elena y Hana empezaron a rodar otro drama. La primera era con un papel principal en una serie de la KBS, centrado en la vida de una extranjera en Seúl y su triunfo como bailarina. Y Hana había firmado para rodar una película como la amiga de la protagonista. Ninguna de las dos se podía quejar.
 
-El invierno estaba siendo realmente crudo. Los DBSK habían sacado la nueva versión de su disco Mirotic con cuatro canciones nuevas y un videoclip, a parte de una nueva versión de una de las canciones. A ellos sí que les iba bien, iban a muchas galas y ganaron muchísimos premios. Después de un año y siete meses, la acogida en Corea fue muy buena... pero el pequeño abandono que dejaron en Japón se notó, y las fans comenzaron a reclamar que querían más cosas de ellos allí en Japón.
+Pero R y Jane se sentían algo tristes al respecto. El rodaje del drama ya habían terminado y, aunque iban a galas y a programas, no habían firmado con ninguna cadena de televisión para trabajar en ningún sitio. Y lo que más me dolía de todo aquello era ver la relación que tenían ellas dos con Changmin y Yunho. No era oficial como la mía, pero si que se notaba que existía algo especial entre ellos.
 
-Y eso me enfadó, ya que ellos eran coreanos, los japoneses podían aguantarse y escuchar su música en el idioma de los chicos, pero Junsu ya me explicó que el mercado de la música en Japón era muy importante como para desperdiciarlo por no querer cantar en japonés ni allí. Así que yo me di un punto en la boca y me aguantaba como una tonta cuando ellos tenían que marcharse a Japón.
+---Tampoco puedes ser tú la responsable de ellos ---me dijo un día Junsu hablando por teléfono. Con tanta gala, trabajo y programas por separado teníamos poco tiempo para vernos --- Ambos son conscientes de los problemas.
 
-Y llegó la navidad. Y con la navidad llegó una carpeta de la Rhythm Zone explicándome que habían contratado ciertos estadios en las ciudades concretadas y que todo iba bien. La publicidad de los chicos allí, por sorpresa mía, había sido bien acogida en todos los países. En todos menos en España. Mi país se había mostrado más frío en ese tema, ya que un idioma asiático no era a lo que estaban acostumbrados, así que les propuse en cantar todas las canciones en inglés. Y lo meditaron, y bastante, tanto que pasada una semana se me había olvidado y me respondieron de que si, que harían las versiones en inglés y que los chicos tenían que empezar a ensayar para grabar las canciones.
+---Ya, pero me duele ver a R y a Jane tan tristes ---suspiré mientras me abrazaba las piernas en la cama, estaba apoyada en la pared al lado de la ventana, viendo como nieva --- Junsu, ¿sabes qué?
 
-Me dijeron que me iban a dar más noticias de la gira Europea a principios de Marzo, ya que ya me habían dado una fecha en concreto para comenzar la gira... y era en Mayo. Solo quedaban cinco meses... y esta vez, los cinco meses eran de verdad. Yo estaba muy nerviosa.
+---Dime ---me dijo con la boca llena, me eché a reír.
 
-La emisión de mi drama había finalizado con mucho éxito. Nos dieron muchos premios en varias galas, nos habíamos ganado el cariño del público ya sin más narices, ya se habían acostumbrado a vernos en la pantalla, a que saliéramos en las revistas de moda y de música, a que se rumorearan cosas que no eran... Como por ejemplo, una vez mientras navegaba por internet en un foro, leí que Yoochun y Elena estaban saliendo juntos porque en una gala, ambos habían estado hablando mucho...
+---Se acerca tu cumpleaños ---murmuré y escuché su risa --- ¿Qué quieres que te regale?
 
-Y recuerdo ese día. Yoochun picaba a mi amiga porque sabía español, y ella no podía hablar libremente de lo guapo que le parecía Donghae cuando iba de traje de chaqueta porque el incordio de Yoochun le decía cada dos por tres: “recuerda que se español”... al final ella acabó de los nervios y a la otra punta de los asiento. Era tan divertido picar a Elena, que Yoochun solo se acercaba a ella para hacerlo... y él que se reía como un niño pequeño.
+Se quedó un momento en silencio. Parecía meditar mi pregunta, pero le escuché tragar algo de líquido y suspiré. Carraspeó para captar mi atención.
 
-El día de navidad, hicimos una cena de empresa en el restaurante de los abuelos de Yoochun, que reservaron solo para nosotros en particular. E íbamos muchos famosos y trabajadores, con la ganancia que sumó mi drama, era lo menos que podía hacer Lee Sooman para nosotros. Y lo mejor de esa cena era que estábamos solo nosotros, en confianza y familia. No había cámaras ni periodistas... Y yo pude ser más que feliz con Junsu sin que nadie me molestara, ahí cada uno iba a su bola y bebía lo que le daba la gana...
+---Quiero que tú seas mi regalo ---terminó por murmurar y me sonrojé muchísimo.
 
-El único día tranquilo que tuvimos de las fiestas, fue en noche vieja, que nos reunimos los diez en mi casa para despedir el año. Ese día echaban una gala grabada en diferido, ya que DBSK salía cantando y ellos estaban viéndola con nosotros. Se estaba tan a gusto con todos allí... éramos una pequeña familia, donde los oficiales solo éramos Junsu y yo... Y yo sola me reí de mi broma. Esa noche, fue, de lo más normal...
+---Dile a tu hermano que este año lo pasará solo ---ambos empezamos a reír.
 
-Y antes de año nuevo fue la gala del “Gayo Daejun” que fue todo un éxito. Las chicas y yo preferimos ver la gala desde casa, ya que sería como si estuviéramos en primera fila. Todos estuvieron genial, tanto como los nuevos grupos que habían salido al mercado: 2PM, 2AM y algunos otros más; y los grupos ya más veteranos, como Super Junior (que no fueron todos), DBSK, Big Bang, Rain o la mismísima Boa, que se presentó para el performance.
+Cada vez que hablaba con Junsu los problemas se me iban. Era consciente que el problema de Jane y R me iba a perseguir durante mucho tiempo, pero tampoco estaba en mis manos su trabajo. Había dejado de lado el trabajo de dramas y películas para centrarme en dirigir algunos equipos técnicos y la preparación de la agenda europea para Tohoshinki. Así que tampoco podía mantenerlas trabajando conmigo.
 
-Y la sorpresa fue lo que hicieron los chicos al final de su actuación... eso de quitarse la camisa cuando terminaron de cantar Mirotic y enseñar toda la espalda provocaron muchas risas entre nosotras y gritos entre las fans, fue un muy buen espectáculo. Luego de eso, vino año nuevo, que fue una buena celebración a lo tranquilo. Obviamente nosotras echábamos de menos a nuestras familias, pero hablando por correo y teléfono pudimos quitarnos esa morriña que teníamos.
+Y llegó el cumpleaños de Junsu. Los diez quedamos en mi casa para cenar juntos. Debíamos admitir que cuando nos juntábamos éramos un grupo muy peculiar. Los únicos que no tenían nada serio eran Elena y Yoochun, que como distracción, se habían hecho buenos amigos, dispuestos a fastidiar al resto con bromas. Aunque tanto Changmin como Yunho no habían oficializado nada, a veces alguno de ellos desaparecían con R y con Jane.
 
-Después de todas las fiestas llegó Enero y los chicos se tuvieron que marchar a Japón. Yo estuve muy contenta de su progreso musicalmente, estaba destrozada por estar mucho tiempo separada de Junsu, pero era lo que había. Ahora estaban promocionando una película de ballet en la que ellos cantaban la canción principal de la película, Bolero. Y después de eso volverían a Corea... si, volverían, pero solo para el dichoso concierto que tenían planeado por toda Corea para promocionar Mirotic... su vida era estresante, pero la mía no era menos.
+---Esto no puede ser, se suponía que no lo habíais formalizado ---Yoochun se cruzó de brazos viendo las manos enlazadas de Hana y Jaejoong a su lado.
 
-Una mañana de principios de Enero, tuve una reunión en la TN Entertainment con Tony Ann, conocido como Seunho, para hablar a cerca de Dead End, mi “mejor” novela policíaca... o de mafias, como a mí me gustaba llamarla. Esa mañana hacía mucho frío, estaba nevando y yo iba muy bien abrigada. Él mismo me recibió en la puerta.
+---Qué mas da esa etiqueta de novio ---Hana se inclinó hacia delante alzando un dedo. Iba algo perjudicada por el alcohol. Más bien todos iban perjudicados --- No hace falta para ser feliz con alguien.
+
+---Cierto ---Jaejoong asintió.
+
+---Pues yo no lo veo así ---Junsu tenía una mueca de disgusto mientras movía su lata de cerveza de un lado a otro --- A mi me gusta poner nombre a lo que es.
+
+---Es que eres un ñoño, eso pasa ---Dijo Yunho entre carcajadas.
+
+---A mi me gusta este ñoño ---pinché la mejilla de Junsu, quien se relajó sonriendo mientras me miraba.
+
+Todos rieron divertidos ante el cambio de Junsu.
+
+Cuando se hizo una hora prudente, como yo fui la única que no había bebido alcohol, llevé a Junsu hasta el piso compartido para poder pasar una noche los dos solos. Llegué a la conclusión que aquello iba a ser muchísimo más fácil que sacar a todos los borrachos de mi casa. Cuando llegamos a su casa la actitud de Junsu cambió de estar muy borracho a estar muy... cariñoso.
+
+---¿Tú no estabas mal? ---dije entre risas mientras me besaba por el cuello nada más atravesar la puerta de la casa.
+
+---Me gusta fingir que voy borracho ---murmuró llevándome hacia el dormitorio.
+
+---Eres un sinvergüenza ---me eché a reír agarrando su cara con ambas manos, separándole de mi cuello --- Me haces conducir sabiendo lo poco que me gusta.
+
+---Te prometo que lo compensaré ---bajó las manos hasta mi trasero y me alzó en peso, mirando mi rostro desde abajo esbozó una sonrisa --- Pero ahora voy a reclamar mi regalo de cumpleaños.
+
+Había perdido la cuenta de las veces que Junsu y yo habíamos hecho el amor. Ya fuese de forma furtiva en mi despacho, en su piso o en el mío cuando pillábamos un momento a solas. Y cada vez que nos fundíamos de aquella manera sentía como si fuera la primera vez que lo sentía.
+
+Y después del cumpleaños de Junsu vino una época mala para nosotros dos. 
+
+Los DBSK habían sacado la nueva versión de su disco Mirotic con cuatro canciones nuevas y el famoso videoclip. A ellos sí que les estaba yendo bien, iban a muchas galas y ganaron muchísimos premios. Y el éxito no solo estaba en Corea, sino que se estaban centrando también en sacar las versiones en Japón con la visión puesta en la gira mundial que se estaba preparando. Aunque yo principalmente me encargaba de llevar la europea.
+
+Y llegó la navidad. Y con la navidad llegó una carpeta de la Rhythm Zone explicándome que habían contratado ciertos estadios en las ciudades concretadas y que todo iba bien. La acogida que habían tenido los chicos con el lanzamiento de las fechas de los conciertos habían sido mejores de lo que yo me esperaba. Me dediqué a investigar en redes sociales españolas para ver el alcance y la emoción se palpaba en el ambiente. 
+
+La gira estaba programada para comenzar en mayo después de terminar con el tour por Asia, empezando por Japón, por supuesto. Así que desde marzo iba a ver aún menos a Junsu y estaba muy triste por ello, pero por otro lado estaba muy nerviosa por la programación de la gira que se me echaba encima. Quedaban tan solo cinco meses para ella.
+
+La emisión de mi drama había finalizado con mucho éxito. Nos dieron algunos premios en varias galas. Algunos premios eran para los actores y otros para los técnicos que habían dirigido el proyecto. Me sentía hinchada de felicidad al ver que nos habíamos ganado el cariño del público. Y lo que más me gustaba ver cuando investigaba cosas sobre el drama eran todos los rumores que corrían.
+
+Uno de ellos era una relación entre Elena y Yoochun. Ellos se divertían ante aquel rumor y les gustaba alimentarlos cada vez que coincidían en alguna gala.
+
+El día de navidad, hicimos una cena de empresa en el restaurante de la madre de Yoochun, que reservaron solo para nosotros en particular. No habíamos ido toda la empresa, aquella costumbre no era muy normal en Corea, por lo que nos juntamos los DBSK, Super Junior, nosotras cinco, Kim Dongsea y Boa. Y como estábamos completamente solos en el restaurante, pude disfrutar de Junsu todo lo que quise.
+
+Antes de año nuevo fueron las galas llamadas _"Gayo Daejeon"_ y fueron todo un éxito. Eran tres cadenas de televisión las que se disputaban por ver quienes eran las mejores haciendo las galas. Nos habían invitado a participar a la gala de la SBS, pero las chicas y yo preferimos ver la gala desde casa, ya que sería como si estuviéramos en primera fila. Todos estuvieron genial, tanto DBSK como los nuevos grupos que habían debutado, que me despertaban mucha curiosidad.
+
+Y la sorpresa fue lo que hicieron los chicos al final de su actuación de Mirotic, ya que se quitaron la camisa enseñando su espalda, causando muchos gritos entre nosotras en casa. Debía admitir que me sentí muy orgullosa de verles actuar de aquella manera tan espectacular. El corazón me latió con fuerza recordando la forma en la que a veces arañaba la espalda de Junsu cuando estaba desnuda.
+
+El único día tranquilo que tuvimos de tantas fiestas fue en noche vieja, que nos reunimos los diez de nuevo en mi casa para despedir el año.
+
+---Kiki, un día es un día ---Jaejoong me colocó una copa frente a mí llena de champan --- Tenemos que brindar.
+
+---Pero es que no me gusta ---me quejé con un puchero mirando a Junsu en señal de auxilio, pero él se mantenía sonriente --- Esto ya lo teníais pensado, ¿verdad? Emborrachar a la pobre Kiki, que poca vergüenza tenéis.
+
+Y consiguieron que bebiera tan solo para el brindis. Volví a ser la única en todo el piso lo suficientemente sobria como para llevarlos a todos a sus respectivas camas. Éramos una pequeña familia, estaba orgullosa de lo que había salido por culpa de mi aventura y el que Yoochun me rompiera mi primer portátil.
+
+Después de todas las fiestas llegó el verdadero enero y los chicos se tuvieron que marchar a Japón. Yo estuve muy contenta de su progreso musical aunque estaba destrozada por estar mucho tiempo separada de Junsu. Acababan de estrenar una nueva canción para la promoción de una película de ballet y la verdad es que el tema estaba siendo muy popular. Y después de eso volverían a Corea. Sí, volverían, pero solo para el dichoso concierto de la gira que harían en Seúl durante dos días seguidos. Me sentía frustrada.
+
+Una mañana de mediados de Enero tuve una reunión en la TN Entertainment con Tony Ann, conocido como Seunho, para hablar a cerca de Dead End, mi “mejor” novela policíaca... o de mafias, como a mí me gustaba llamarla. Esa mañana hacía mucho frío, estaba nevando y yo iba muy bien abrigada. Él mismo me recibió en la puerta.
 
 --- Casi no se te ve la cara, María --- Me dijo mientras me estrechaba la mano después de que yo me quitara un guante.
 

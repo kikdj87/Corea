@@ -1,155 +1,179 @@
 = Capítulo 28
 
-Silencio en el comedor. Sentía que todos me miraban desde sus lugares, y no quise mirar a nadie más que a Junsu, que su cara estaba transpuesta. Pero era cierto, yo no quería romper la armonía que ellos habían creado a lo largo de muchos años... Yo no era nadie.
+Silencio en el comedor.
 
---- Bueno... eh... Kiki --- Jae me agarró del brazo --- No es para llegar a ese extremo.
+Sentía que todos me miraban desde sus lugares y no quise mirar a nadie más que a Junsu, que su cara estaba transpuesta. Pero era cierto, yo no quería romper la armonía que ellos habían creado a lo largo de tantos años. Yo no era nadie.
 
---- ... --- Mi mirada se volcó en Changmin, quien seguía leyendo el libro pasando de todo. Y miré a Yunho, que se había puesto en pie y se acercaba a nosotros. Puso su mano sobre mi hombro y miró a Junsu.
+---Bueno Kiki ---Jae me agarró del brazo --- No es para llegar a ese extremo.
 
---- Kiki, tranquila --- Me dijo --- Pero Junsu... ella ha razonado... no puedes pelearte con ninguno por esas pequeñeces...
+Mi mirada se volcó en Changmin que seguía con la mirada fija en el libro pero con el ceño fruncido. Y miré a Yunho, que se había puesto en pie y se acercaba a nosotros. Puso su mano sobre mi hombro y miró a Junsu.
 
---- Disculpad... --- Se marchó sin decir nada más.
+---Kiki, tranquila ---me dijo --- Pero Junsu, hay algo en lo que ella tiene razón, no puedes pelearte con ninguno por esas pequeñeces.
 
---- ... --- Sollocé y giré la cabeza al lado contrario donde estaba Yunho. Yoochun se marchó del comedor tras Junsu y seguía el silencio ahí. Yo comencé a sentirme incómoda --- Quiero ir a casa, Yunho.
+---Disculpad... ---Junsu se marchó sin decir nada más.
 
---- Ahora no... Espera --- No me soltaba del hombro --- No quiero que esto se quedé así... siéntate mejor.
+Sollocé y giré la cabeza al lado contrario donde estaba Yunho. Yoochun se marchó del comedor tras Junsu y seguía el silencio ahí. 
 
-Me senté al lado de Jae y apreté con fuerza las manos sobre mis rodillas. Miré de reojo a Changmin, que seguía mirando el libro, pero con una mirada aún más tensa que antes. Ojalá supiera lo que le pasaba a él por la cabeza... suspiré y Jae captó mi atención.
+---Quiero ir a casa, Yunho ---dije muy incómoda.
 
---- A veces, el camino más corto no suele ser el más fácil... ¿lo sabías? --- Me dijo mientras me miraba.
+---No te vas a ir dejando la situación así ---no me soltaba del hombro --- Siéntate mejor.
 
---- Ya me estoy dando cuenta --- Agaché la cabeza.
+Me senté al lado de Jae y apreté con fuerza las manos sobre mis rodillas. Miré de reojo a Changmin, que seguía mirando el libro, pero con una mirada aún más tensa que antes. Ojalá supiera lo que le pasaba a él por la cabeza. Suspiré y Jae captó mi atención.
 
---- Junsu le estaba pidiendo perdón a Yoochun... Tú crees que dejarlo es lo mejor, pero tal vez para él no lo sea.
+---A veces el camino más corto no suele ser el más fácil, ¿lo sabías? ---me dijo mientras me miraba.
 
---- Pero Junsu a veces es extremista --- Dijo Yunho --- Tiene que pensar que nosotros somos una unidad... somos cinco personas en uno --- Alzó un dedo --- No puede dejar que sus pasiones lo dominen de esa manera. No siempre esa es la mejor salida.
+---Ya me estoy dando cuenta ---agaché la cabeza.
 
---- Es su novia --- Dijo Jae --- ¿Qué va a hacer? La defenderá... como harías tú o cualquiera de nosotros...
+---Junsu le estaba pidiendo perdón a Yoochun. Tú crees que dejarlo es lo mejor pero tal vez para él no lo sea.
 
---- Que se lo hubiera pensado antes...
+---Pero Junsu a veces es extremista ---dijo Yunho --- Tiene que pensar que nosotros somos una unidad, somos cinco personas en uno ---alzó un dedo --- No puede dejar que sus pasiones lo dominen de esa manera. No siempre esa es la mejor salida.
 
---- Changmin, no seas borde --- Dijo Yunho y yo me encogí. Sabía a la perfección que él no aprobaba mi relación por Junsu --- Kiki, no le hagas caso.
+---Es su novia ---Jae me señaló --- ¿Qué va a hacer? La defenderá como harías tú o cualquiera de nosotros en su situación.
 
---- Kiki --- Yoochun entró al comedor --- Junsu dice que vayas...
+---Que se lo hubiera pensado antes.
 
---- La que he liado en un momento --- Me reí para suavizar la cosa pero no fue a mejor. Yoochun me condujo hasta la habitación y ahí lo vi, sentado en la cama. Me quedé sola con él --- Junsu...
+---Changmin no seas borde ---dijo Yunho y yo me encogí. Sabía a la perfección que él no estaba de acuerdo como ambos estábamos manejando la relación --- Kiki, no le hagas caso.
 
---- Ven --- Me miró y yo me senté a su lado. Me agarró de la mano --- No creí que te molestaría...
+---Kiki ---Yoochun entró al comedor --- Junsu dice que vayas.
 
---- Lo siento... últimamente he sentido mucha presión --- Dije junto a un suspiro --- No quería llegar a este punto, la verdad...
+En silencio fui al dormitorio dejando atrás a los otros cuatro. Me asomé por la puerta y me quedé parada en medio, viendo como Junsu estaba sentado sobre una de las camas, tenía los brazos apoyados sobre las piernas y la cabeza agachada.
 
---- Supongo --- Sonrió y me miró --- No me dejarás, ¿verdad?
+---Junsu...
 
---- No te dejaré --- Le dije sorprendida a su reacción.
+---Ven ---alzó la cabeza y yo me senté a su lado. Me agarró de la mano con mucha suavidad y enlazó los dedos con los míos de una forma tan dulce que sentí un fuerte escalofrío --- No creí que te molestaría.
 
---- Perfecto... porque no volverá a pasar --- Me abrazó con fuerza y me dio un beso en la mejilla --- Ahora vamos fuera... parece que Yunho tiene que decirnos algo importante...
+---Casi lo he dicho sin pensar, han pasado tantas cosas que he colapsado ---dije junto a un suspiro --- No quería llegar a este punto, la verdad.
 
---- Ah... si --- Asentí aún anonadada por cómo había actuado Junsu.
+---Supongo ---esbozó una sonrisa y se llevó mi mano a su boca, la besó --- No me dejarás, ¿verdad?
 
-Nos reunimos en el salón como si nada hubiera pasado. Jae, Junsu y yo en un sofá; Changmin y Yoochun en otro; y Yunho en un sillón. Empezó hablando el líder sobre la gira Europea, hasta que Jae preguntó qué pintaba yo en todo esto.
+---No te dejaré ---dije secándome las lágrimas con la mano libre.
 
---- Ella es nuestro agente a partir de ahora --- Dijo Yunho mientras me señalaba --- La Rhythm Zone la contrató para llevarnos por Europa.
+---Perfecto, porque no volverá a pasar ---me abrazó y me acomodó contra su pecho.
 
---- ¡¡Eso es genial!! --- Junsu me agarró de la mano.
+Sentía los latidos fuertes y rápidos de su corazón y dejé que se acompasaran con los míos. Cerré un momento los ojos mientras rodeaba su cintura con mis brazos. Él me besó varias veces en la cabeza.
 
---- O no --- Dijo Changmin. Todo lo miramos --- Mira Kiki, yo no tengo nada en tu contra, de verdad... pero Junsu tiene que estar al cien por cien en todo este asunto.
+---Vamos fuera, parece que Yunho tiene que decirnos algo importante.
 
---- Yo no quiero...
+---Ah, si.
 
---- No te preocupes Min --- Dijo Junsu sin dejarme hablar --- Yo voy a estar pendiente de mi trabajo... como hasta ahora. Yo no me he despreocupado de nada, al contrario... creo que ahora doy más.
+Fui algo reacia a separarme de sus brazos. No pude desaprovechar aquella oportunidad de estar solos y besé sus labios con mucha dulzura. Él correspondió de la misma manera, presionando sus manos en mi cuerpo para fundirnos en aquel momento. Al separarnos sonreímos mientras nos mirábamos a los ojos.
 
---- Bueno... eso está por ver --- Rió Yoochun y el Junsu puso un puchero.
+Nos reunimos en el salón como si nada hubiera pasado. Jae, Junsu y yo estábamos en un sofá. Changmin y Yoochun en el otro, y Yunho en un sillón que había puesto en medio del salón.
 
---- ¿Y dónde haremos los conciertos? --- Preguntó Jae --- Ya tengo ganas de saberlo.
+---Como sabéis, ella es la nueva agente ---dijo Yunho mientras me señalaba --- Que va a acompañarnos en la gira en Europa.
 
---- Vamos a ir a cinco países --- Dijo Yunho --- Italia, Alemania, Inglaterra, Francia y España.
+---Si, ya hablamos de eso, es súper emocionante poder hacer la gira juntos  ---Junsu me agarró de la mano.
 
---- ¡Wo, España! --- Saltó Junsu de pronto y lo miramos --- Lo siento... lo siento...
+---Puede que no venga con nosotros ---dijo de pronto Changmin. Todos lo miramos --- Puede que sea la agente, pero no siempre nos han acompañado en las giras de Asia. 
 
---- Y van a ser, como dijimos, dos ciudades por país... --- Continuó hablando --- Nápoles y Roma de Italia; Múnich y Berlín de Alemania; Liverpool y Londres de Inglaterra...
+---Pero esto será distinto ---dijo Junsu inclinado hacia delante, serio con Changmin --- Si se lo han asignado así, es porque confían en ella y quieren que venga con nosotros.
 
---- ¿Y por qué no vamos a Manchester? --- Dijo Junsu con un puchero --- Yo quiero ver a JiSung...
+---¿Y si no viniera? ---Changmin se puso más serio --- O peor, ¿y si viniera? Junsu, tienes que estar al cien por cien en la gira. No tengo nada en tu contra Kiki, en serio.
 
---- Pero Junsu, no estamos de viaje de placer, la verdad sea dicha --- Dijo Jae con desesperación --- No creo que tengas tiempo de verlo.
+--- Yo no quiero ser un problema... ---murmuré pero nadie me escuchó.
 
---- Pero el Liverpool es nuestro enemigo --- Y alzó un puño mientras fruncía el ceño.
+---No te preocupes Min ---dijo Junsu por encima de mis palabras --- Yo voy a estar pendiente de mi trabajo como hasta ahora. Hasta ahora no me he despreocupado de nada, al contrario, creo que ahora doy más.
 
---- No vas a animar ni a patear a nadie, Jun---Chan --- Dijo Changmin pronunciando su nombre con rabia.
+---Bueno, eso está por ver ---rió Yoochun y Junsu puso un puchero.
 
---- Eres malo Changmin --- Junsu lo miró mal.
+---¿Y dónde haremos los conciertos? ---preguntó Jae --- Ya tengo ganas de saberlo.
 
---- Sigo --- Yunho suspiró --- París y Lyon de Francia.
+Yunho se puso a hablar sobre las ciudades que iban a hacer en la gira y yo me quedé preocupada por cómo había saltado Changmin. No podía sacármelo de la cabeza. Intenté olvidar ese momento y centrarme en lo que Yunho estaba diciendo.
 
---- ¡¡¡Oh, París!!! --- Junsu alzó las manos --- ¡¡Si, yo quería volver a París!!
+--- Y esos son los países ---concluyó.
 
---- La verdad es que yo también --- Dijo Yoochun --- Es una ciudad muy bonita...
+---Vamos a ir a España ---saltó Junsu de pronto y lo miramos --- Me hace ilusión conocer tu país.
 
---- Si, me quedé con ganas de ver en profundidad algunas cosas de París --- Siguió Changmin.
+---Y las ciudades que hemos pensado son... ---sacó el móvil y miró las notas que habíamos hecho esa misma tarde --- Roma, Berlín, Londres y París
 
---- Y de España...
+---¡Oh, París! ---Junsu alzó las manos --- Sí, yo quería volver a París.
 
---- La gran incógnita --- Esta vez fui yo quien interrumpió a Yunho, quien resopló --- Perdón.
+---La verdad es que yo también ---dijo Yoochun --- Es una ciudad muy bonita.
 
---- Tengo que decir, que vamos a grabar un video y haremos un photobook en Europa y... --- Yunho me miró con esa sonrisa que no me gustaba --- Kiki nos deja elegir el lugar.
+---Sí, me quedé con ganas de ver en profundidad algunos sitios de París ---siguió Changmin.
 
---- ¿En serio? --- Me miraron todos --- ¿Puedo elegir yo? --- Junsu alzó la mano.
+---Y en España... ---Yunho lo dejó un segundo en el aire.
 
---- A ver qué dices... --- Susurró Jae.
+---Yo quiero ir a la ciudad natal de Kiki ---dijo Junsu de pronto.
 
---- ¡¡Manchester!! --- Sonrió.
+---Eso no va a ocurrir en la gira ---dije yo de pronto, abriendo los ojos.
 
---- Idiota --- Yunho lo miró mal y negó con la cabeza --- Decidimos en España, ¿recuerdas?
+---Vamos a grabar un video y haremos el photobook ---Yunho me miró una amplia sonrisa --- Y decidimos que sería en España.
 
---- ¿A si? --- Me miró sonrojado y miró al resto --- ¿Cuándo?
+---Me parece genial ---asentí muy feliz --- ¿Habéis decidido alguna ciudad? Yo había pensado en dos.
 
---- Ayer --- Dijo Changmin, que al fin, había cerrado el libro --- Mientras cenábamos... ¿o acaso no escuchas?
+---Queremos terminar allí la gira, que sea el último concierto ---dijo Yunho. Los demás estuvieron de acuerdo, asintiendo con la cabeza.
 
---- No sé --- Se encogió de hombros.
+---¿Qué ciudad queréis? ---Pregunté preocupada que Junsu soltara de nuevo que quería ir a mi ciudad.
 
---- ¿Qué opinas, Kiki? --- Yunho sonreía.
+---Qué nos recomiendas, Kiki ---Jaejoong colocó la mano sobre la boca de Junsu para que no hablara.
 
---- Me parece genial --- Asentí muy feliz --- Y... ¿habéis decidido alguna ciudad? Yo había pensado en dos...
+---Vale ---dije muy animada por la buena noticia que Yunho me había dicho. Aquello me abría la oportunidad de viajar por varias ciudades muy bonitas y dignas de ver. Saqué el móvil y busqué fotos ---El concierto podría ser en Madrid ---comencé a explicar y les enseñé las fotos, los cinco asintieron --- Y lo mejor no termina ahí, hay ciudades dignas de salir en el photobook.
 
---- Yo tengo curiosidad por ver una ciudad --- Junsu se marchó corriendo y volvió con una foto en la que salía él con Eunhyuk. Señaló el chándal que llevaba su amigo --- Esto es de España, ¿verdad?
+Les expliqué las maravillosas y diversas arquitecturas que había desde el norte al sur, del este al oeste. Hablando de ciudades importantes como Barcelona hasta Granada o Córdoba, enseñando las fotos de todas ellas.
 
---- Si... pero no había pensado en eso --- Dije mal --- Además, no me gusta ese equipo.
+---¿Y tú dónde vives de todas esas ciudades? ---me preguntó Jae.
 
---- ¿Y cuál te gusta? --- Me preguntó guardando la foto.
+---En ninguna que he dicho ---murmuré encogiéndome de hombros --- No tiene nada especial, pero está cerca de Granada.
 
---- No hablemos de fútbol --- Dijo Yoochun resoplando, Junsu se disculpó --- Pensamos que el estar más tiempo en España sería bueno para ti, Kiki.
+---Me siento culpable ---comenzó a decir Yoochun --- No pudiste ver a tus padres cuando fuiste la semana pasada, por eso quería compensarte de alguna manera para que el idiota de Junsu pueda ver tu ambiente.
 
---- ¿En serio? --- Me sonrojé.
+Junsu se quedó mudo y se sonrojó muchísimo a lo que dijo Yoochun, parecía que él tampoco sabía nada, entre todos querían darnos una sorpresa tanto a Junsu como a mí. Me sentí muy alagada por parte de todos el que hubieran decidido eso por mí y el hecho de que pudiera ver a mi familia. Y me alegré de que aceptaran el ir a Madrid, así, todas mis amigas podían ir a verles allí, al igual que a Granada y tal vez a Barcelona.
 
---- Si... y hemos decidido que haremos tres conciertos allí, para terminar la gira --- Dijo Yunho --- A parte de grabar allí el videoclip y el photobook. Tú ya nos dirás las ciudades...
+Junsu fue el que decidió llevarme a casa. Bajamos al parking del edificio y entramos en su coche. Aprovechamos un poco la intimidad que aquel lugar nos daba para poder intimar un poco, no habíamos tenido tiempo de estar a solas, así que disfrutamos.
 
---- Si, porque nosotros no conocemos nada --- Jae rió.
+---Te echaba de menos ---susurró contra mis labios, pasando la mano por mi cuello, bajando con calma por mi brazo, yendo a lugares más privados.
 
---- Vale... --- Dije muy animada y me quedé pensando en las ciudades. Después de unos minutos, le quité el portátil a Jae y les dije que se sentaran a nuestro alrededor para que vieran las ciudades que había escogido --- En primer lugar, en la capital, Madrid, hay más opciones de que hayan más fans vuestras --- Comencé a decir --- Por eso sería bueno hacer un concierto allí. Luego uno en Barcelona, ya que es una ciudad del norte y además, muy chula... sin contar su equipo de fútbol --- Junsu rió --- Y por último Granada.
+---Y yo a ti ---estábamos en una postura incómoda, pero pude apoyarme un poco sobre él mientras deslizaba los dedos por su nuca --- Pero en nada podremos pasar más tiempo juntos.
 
---- ¿Y tú dónde vives de todas esas ciudades? --- Me preguntó Jae.
+---Y eso me anima bastante.
 
---- En ninguna --- Dije --- Pero me pilla cerca Granada.
+Nos separamos y salimos de edificio. Condujo sin prisa porque no quería que ese momento acabara. Mantenía mi mano agarrada y yo agradecí que el coche fuera automático.
 
---- Me siento culpable... --- Comenzó a decir Yoochun --- De que no hubieses podido ver a tus padres cuando fuiste la semana pasada... por eso quería compensarte de alguna manera para que el Junsu idiota pueda ver tu ambiente...
+---Sabes ---comenzó a decir --- no quería enfadarme con Yoochun. El no estar juntos hizo que me descargara con él.
 
-Junsu se quedó mudo y se sonrojó muchísimo a lo que dijo Yoochun, parecía que él tampoco sabía nada, aunque Changmin le echó en cara que eso lo habían estado hablando durante los almuerzos todos. Me sentí muy alagada por parte de todos el que hubieran decidido eso por mí y el hecho de que pudiera ver a mi familia. Y me alegré de que aceptaran el ir a Madrid, así, todas mis amigas podían ir a verles allí, al igual que a Granada y tal vez a Barcelona.
+---Ya lo suponía ---murmuré jugando con sus dedos con suavidad --- Han sido unas semanas difíciles para los dos.
 
-Y enseguida Junsu me llevó a casa. Charlamos de un par de cosas y de nuevo me pidió perdón por todo lo que había pasado. En realidad no quería enfadarse con Yoochun, pero me confesó que el mayor había estado unos días algo insoportable, y que se comportara así con él cuando volvió de España fue “la gota que colmó el vaso”. Me despedí con un dulce beso y subí al piso con una sonrisa. Me extrañé que no hubiera escándalo en la casa, en el recibidor me encontré con una nota de Jane.
+---Y tanto que sí ---respiró aliviado en una risa. No lo pude evitar, reí a la vez que él --- Aún se te contagia mi risa.
 
-“Kikita, nos hemos ido a dar una vuelta con Sanghun y algunos chicos. Yunho nos llamó de que estabas con ellos... ya te vale, no avisarnos... aunque bueno, así él me ha llamado... como excusa, me ha preguntado qué tal estoy y esas cosas... Es un cielo... ahhh R me dice que pare de escribir... Bueno, hay cena en el frigorífico por si quieres... bueno, no nos esperes despierta... ¡¡Un beso!!: Jane”
+---Antes, ahora y siempre ---me sonrojé.
 
-No cené, en casa de los chicos había picado algo mientras hablábamos de todo, así que directamente me fui a la cama... Ya eran casi las once y media de la noche. Sinceramente, no recuerdo qué soñé esa noche, pero me dejó un sentimiento de paz y tranquilidad enorme.
+Llegamos a mi piso y a regañadientes me despedí de él. Nos besamos un poco a escondidas ya que mi casa estaba un poco más expuesta que la suya. Vi como se marchaba con el coche y subí hasta casa. Me extrañé que no hubiera escándalo, en el frigorífico me encontré con una nota de Jane.
 
-Cuando el despertador sonó insistentemente el lunes, supe que mi tranquilidad había llegado a su fin y que me tocaba un duro día de trabajo, aunque ya estábamos terminando de rodar el drama y ya nos lo tomábamos todo con más calma. Las chicas se habían levantado junto con mi despertador y me contaron su aventura de la noche anterior.
+_"Kikita nos hemos ido a dar una vuelta con Sanghun y algunos chicos. Yunho nos avisó diciendo que estabas con ellos. Hay cena en el frigorífico por si quieres, no nos esperes despierta."_
 
-Hana me dijo que Sanghun estaba muy interesado en ella, y Elena me dijo que no sabía nada de Yonghwa, pero que le daba algo de igual. Lo que sí sabía era que, Jane y R, teniendo lo que tenían, no se iban a interesar en otros chicos, aunque Elena, no muy contenta, les dijo que buscaran otros novios, ya que con ellos poco iban a conseguir, ya que ya sabían cómo pensaban los dos.
+Como no había cenado nada en casa de los chicos me preparé las sobras que ellas me habían dejado y me puse la televisión mientras cenaba en el sofá. No hice mucho caso de lo que ocurría, Junsu había llegado a casa y me estaba mandando mensajes ñoños con él. Después de todo, recogí la cocina y fui a la cama, allí me quedé dormida con el móvil en la mano y una sonrisa de tranquilidad en la cara. Los problemas se estaban esfumando.
 
---- Pero tal vez se ablanden --- Dijo Jane.
+Cuando el despertador sonó insistentemente el lunes, supe que mi tranquilidad había llegado a su fin y que me tocaba un día duro de trabajo. Aunque ya estábamos terminando de rodar el drama, podíamos tomarlo con calma, el montaje de las escenas se estaba preparando bien y la emisión iba con un buen ritmo. Las chicas se habían levantado junto con mi despertador y me contaron su aventura de la noche anterior.
 
---- Solo te digo que no te ilusiones --- Negó Elena --- Por tu bien.
+---Creo que ya no vamos a quedar más con ellos ---dijo Hana con media sonrisa en el rostro.
 
---- Ya, ya --- Suspiró la rubia.
+---¿Y eso? ---las miré sorprendidas.
 
-Y entonces, Hana me dijo que había quedado a solas con Sanghun para esa misma tarde... y era la primera vez que se veían a solas y no sabía qué hacer. Me confesó que aún sentía algo fuerte por Jae, que no lo podía evitar, pero no quería forzar la situación, ya que si no, se volvería demasiado incómodo tanto para él como para ella, así que lo mejor era centrarse en otras oportunidades... y esa oportunidad era Sanghun.
+Estábamos en la cafetería de la SM almorzando mientras descansábamos del rodaje de aquella mañana.
 
-Esa semana fue tan sencilla y normal. Le envié a la Rhythm Zone los informes que me pidieron y esa misma tarde me contestaron con un fax diciéndome que estaban de acuerdo con lo que Yunho y yo habíamos propuesto, que lo dejaban en mis manos. Y cada vez que imaginaba de que el fracaso o el éxito de ellos en Europa iba a ser cosa mía los nervios me comían el estómago.
+---Sanghun se me declaró ---comenzó a decir Hana --- Pero que sepáis que no ha sido el único.
+
+---¿Qué? ---Jane alzó la aguda voz que tenía y Hana le dió un golpe en el brazo --- Perdón.
+
+---Viene el momento de las confesiones chicas ---comenzó a explicar Hana. Nos quedamos en silencio para que pudiera seguir hablando --- Jaejoong y yo estamos empezando a tener algo más serio. No os emocionéis aún, dejadme hablar. Vamos a ir despacio porque aún pertenezco a la SM, pero en cuanto pueda buscarme otra agencia lo haré para que podamos salir juntos sin ningún problema.
+
+Todas nos alegramos un montón de la buena noticia que había dado. No sabía en qué momento aquello había pasado, pero era cierto que yo pasaba más horas encerrada en mi despacho y me perdía momentos en el estudio de grabación que pasaban entre ellos. Ahora entendía entonces por qué Hana ya no le apetecía salir con Sanghun.
+
+---Elena ---la miré y ella puso una mueca de disgusto --- ¿Y Yonghwa?
+
+---Nada ---sonrió encogiéndose de hombros --- Hemos decidido que no es el momento. Tampoco me gusta tanto como para tener algo serio y quiero centrarme en el trabajo.
+
+---Es una sabia decisión ---murmuré con tristeza, aunque intenté camuflarla en una sonrisa.
+
+Se hizo el silencio entre todas. Acabamos mirando a Jane y R, que estaban bastante sonrojadas. Todas sabíamos que entre ellas y dos de los DBSK había algo, aunque no fuera a más.
+
+---No sé qué pasará cuando termine nuestro contrato ---murmuró Jane.
+
+---Tampoco tenemos ofertas en otros dramas o programas de televisión ---dijo R.
+
+Dejamos la conversación ya que la cafetería comenzó a llenarse más de gente. Volvimos al trabajo. Ellas bajaron al estudio a adelantar escenas y yo fui a retocar unos guiones para algunos programas de televisión.
+
+Esa semana fue tan sencilla y normal. Como el domingo no les había mandado nada a la Rhythm Zone les mandé un correo explicativo de todo el tour que habíamos decidido. Las ciudades y el orden en el que irían. Ellos pondrían las fechas y dirían las salas de conciertos en los que los chicos cantarían.
+
+Tenía que admitir que sentía un poco de presión en el pecho por el tema de la gira. Estaba en mis manos el éxito o el fracaso que ellos pudieran tener en Europa. Era un peso muy grande colgado de mi espalda.
