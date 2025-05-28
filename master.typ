@@ -90,3 +90,10 @@
 //27, elección de países para la gira de europa
 
 //28-159, Hana y Jae algo más al fin
+
+//29-91 Propuesta de Seunho y la TVN para la creación de Dead End
+
+//29-129 Jane y R vuelven oficialmente a España
+
+//29-155 llamada de la KBS con algo importante
+

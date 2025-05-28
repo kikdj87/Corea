@@ -88,148 +88,146 @@ Y consiguieron que bebiera tan solo para el brindis. Volví a ser la única en t
 
 Después de todas las fiestas llegó el verdadero enero y los chicos se tuvieron que marchar a Japón. Yo estuve muy contenta de su progreso musical aunque estaba destrozada por estar mucho tiempo separada de Junsu. Acababan de estrenar una nueva canción para la promoción de una película de ballet y la verdad es que el tema estaba siendo muy popular. Y después de eso volverían a Corea. Sí, volverían, pero solo para el dichoso concierto de la gira que harían en Seúl durante dos días seguidos. Me sentía frustrada.
 
-Una mañana de mediados de Enero tuve una reunión en la TN Entertainment con Tony Ann, conocido como Seunho, para hablar a cerca de Dead End, mi “mejor” novela policíaca... o de mafias, como a mí me gustaba llamarla. Esa mañana hacía mucho frío, estaba nevando y yo iba muy bien abrigada. Él mismo me recibió en la puerta.
+Una mañana de mediados de Enero tuve una reunión en la TN Entertainment con Tony Ann, conocido como Seunho, para hablar a cerca de _Dead End_, mi única novela policíaca o de mafias, como a mí me gustaba llamarla. Esa mañana hacía mucho frío, estaba nevando y yo iba muy bien abrigada. Él mismo me recibió en la puerta.
 
---- Casi no se te ve la cara, María --- Me dijo mientras me estrechaba la mano después de que yo me quitara un guante.
+---Casi no se te ve la cara, María ---me dijo mientras me estrechaba la mano después de que yo me quitara un guante.
 
---- No estoy nada acostumbrada a los climas muy fríos... mucho menos a la nieve --- Me quité la bufanda que llevaba y sonreí --- ¿De qué querías hablarme? --- Le pregunté con una sonrisa.
+---No estoy nada acostumbrada a los climas muy fríos, mucho menos a la nieve ---me quité la bufanda que llevaba y sonreí --- ¿De qué querías hablarme? ---le pregunté con una sonrisa.
 
---- Vayamos a mi despacho y te lo explico con todo lujo de detalles --- Sonrió --- A ver qué opinas.
+---Vayamos a mi despacho y te lo explico con todo lujo de detalles ---sonrió señalando hacia el ascensor con la mano --- A ver qué opinas.
 
-Caminamos en silencio hacia su despacho, entramos y me indicó amablemente que me sentara frente a su imponente mesa de despacho. Él se sentó al otro lado y sacó un papel alzado, me sorprendí al ver lo que vi.
+Caminamos en silencio hacia su despacho, entramos y me indicó amablemente que me sentara frente a su imponente mesa de despacho. Él se sentó al otro lado sacó una carpeta que en la portada pude ver claramente el título de la novela.
 
---- ¿Iba en serio la propuesta de esa película? --- Abrí mucho los ojos.
+---¿Iba en serio la propuesta de esa película? ---abrí mucho los ojos.
 
---- Claro que si --- Asintió --- No sé si trabajas solo para la SM, pero puedo colaborar... y sabes que la Jtunes también está dispuesta a colaborar...
+---Claro que si ---asintió sorprendido --- No sé si trabajas solo para la SM, pero me gustaría contratarte para poder producir la película junto a una cadena de televisión llamada TVN. ¿Estás interesada?
 
---- Ya veo... --- Asombrada, agarré el papel y lo leí atentamente --- Tú la has leído bien, ¿verdad?
+---Pues me gustaría ---asombrada, agarré la carpeta y me puse a leer la propuesta televisiva que ambas empresas habían formulado --- Tú la has leído bien, ¿verdad?
 
---- Toda --- Asintió.
+---Claro que sí ---asintió.
 
---- Y sabrás que no puedo ponerla tal cual --- Alcé los ojos y soné lo bastante convincente como para que asintiera a mi expresión.
+---Y sabrás que no puedo hacer el guión conforme está escrita ---alcé los ojos y soné lo bastante convincente como para que asintiera a mi expresión.
 
---- Por supuesto --- Asintió como si ya lo supiera de antemano, cosa que me sorprendió --- Estaba claro que se notaba que necesitaba una mejora rápidamente, pero la idea es muy buena y quiero trabajar con ella.
+---Por supuesto ---asintió como si ya lo supiera de antemano, cosa que me sorprendió --- Estaba claro que se notaba que necesitaba una mejora rápidamente, pero la idea es muy buena y quiero trabajar con ella. De ahí que esto sea una propuesta para trabajar en el guión ---señaló la carpeta que llevaba en la mano.
 
---- ... --- Yo me quedé con la boca totalmente abierta... su explicación abarcaba mucho más que cualquier otra cosa... Para dos años, podría conseguir hacer cuatro películas... --- Bueno... puedo trabajar en el guión y mejorarlo.
+---Entiendo ---asentí anonadada a su explicación y apreté la carpeta entre los dedos esbozando una amplia sonrisa --- Bueno, puedo trabajar en el proyecto para mejorar la historia, buscar un equipo y en un par de años este proyecto puede empezar a ver la luz.
 
---- No esperaba menos de ti --- Sonrió --- Trabaja en él como en un largo proyecto mientras buscamos a los actores y lo preparamos todo...
+---No esperaba menos de ti ---sonrió --- Trabaja en él como en un largo proyecto mientras vamos preparando la ambientación. Debemos buscar un buen elenco conforme vayas adaptando el guión.
 
---- Esto... --- Alcé la mano con miedo --- Yo tengo algunas ideas con algunos actores...
+---Esto... ---alcé la mano con miedo --- Yo tengo algunas ideas con algunos actores.
 
---- Yo no voy a salir --- Se señaló entre risas, me contagió la risa, pero me puse seria y negué con la cabeza.
+---Yo no voy a salir ---se señaló entre risas, me contagió la risa pero me puse seria enseguida.
 
---- Me refería a otros... --- Sonreí abiertamente --- Aunque me gustaría conservar a los originales.
+---Me refería a otros ---dije asintiendo con la cabeza --- Aunque si por mí fuera, mantendría a los originales que escribí.
 
---- No se puede pedir todo --- Se encogió de hombros y sonrió agradablemente. Creo que lo que le alagó de la historia era que lo sacara a él y con un personaje tan bueno como era el suyo. Pero nunca me lo dijo.
+---No se puede pedir todo ---se encogió de hombros y sonrió agradablemente. Creo que lo que le alagó de la historia era que lo sacara a él y con un personaje tan bueno como era el suyo. Pero nunca me lo dijo.
 
-La reunión enseguida terminó y yo me marché a la SM pensando en todo lo que habíamos hablado. Me habían hablado acerca de que tenía que revisar unos guiones que habían preparado para un programa en la MBC, así que fui directa a mi despacho, cuando de pronto, me encontré con Jane apoyada en una pared con la mirada ausente. Me acerqué a ella.
+La reunión terminó y yo me marché a la SM pensando en todo lo que habíamos hablado. Me habían hablado acerca de que tenía que revisar unos guiones que habían preparado para un programa en la MBC, así que fui directa a mi despacho cuando de pronto me encontré con Jane apoyada al lado de la puerta con la mirada ausente. Me acerqué a ella.
 
---- ¿Qué ocurre, Jane? --- Le pregunté preocupada.
+---¿Qué ocurre, Jane? ---le pregunté preocupada.
 
---- ... --- Me miró alzando la cabeza y se mordió el labio inferior --- Yo... te digo esto porque eres tú... y vamos, porque pronto te acabarías enterando... --- Se encogió de hombros --- R y yo nos volvemos a España sin nada más...
+---Kiki... ---me miró alzando la cabeza y se mordió el labio inferior --- Te digo esto porque eres tú y vamos, porque pronto te acabarías enterando ---se encogió de hombros --- R y yo nos volvemos a España.
 
---- ... --- Simplemente suspiré. Yo ya lo sabía y me dolía en el alma escuchar eso. Ellas lo habían hecho genial, pero no habían conseguido nada más y eso era muy triste, para ellas como para mí, que me había acostumbrado a estar con ellas. En silencio la abracé, y después de unos minutos la miré a la cara --- Vuelve a España, haz lo que tengas que hacer, que yo te busco algo para que vuelvas.
+Simplemente suspiré. Yo ya lo sabía y me dolía en el alma escuchar eso. Ellas lo habían hecho genial, pero no habían conseguido nada más y eso era muy triste para ellas. Las iba a echar de menos ya que me había acostumbrado a convivir con ellas. En silencio la abracé, y después de unos minutos la miré a la cara.
 
---- ¿Harías eso? --- Su cara se iluminó.
+---Vuelve a España, haz lo que tengas que hacer, que yo te busco algo para que vuelvas ---asentí mucho más que seria. Buscaría algo en el nuevo proyecto en el que pudiera incluirla.
 
---- Haría lo que pudiera... pero nunca podría prometer nada --- Le advertí, no quería que luego me echara en cara nada. Sonreí y de nuevo la abracé --- Ánimo Jane, ya verás como todo se soluciona --- Le guiñé un ojo y la solté. Alcé la cabeza como si buscara a alguien y de nuevo la miré --- ¿Os han dicho fecha para volver?
+---¿Harías eso? ---su cara se iluminó.
 
---- No --- Negó --- Nos pagarán y nos darán un billete de avión para cuando queramos...
+---Haría lo que hiciera falta, pero no puedo prometer nada ---le advertí, no quería que luego me echara en cara nada. Sonreí y de nuevo la abracé --- Ánimo Jane, ya verás como todo se soluciona, además, ahora tenéis mucha popularidad en Asia y puede que en España también ---le guiñé un ojo y la solté. Alcé la cabeza como si buscara a alguien y de nuevo la miré --- ¿Os han dicho fecha para volver?
 
---- Os pagarán... --- Sonreí y asentí --- No pagan muy bien --- Dije bien flojo --- Pero al menos es un dinero, ¿no?
+---No ---negó con la cabeza --- El contrato finaliza este mes y dejarán de pagarnos, así que ya no hacemos nada aquí. Nos pagarán el viaje de vuelta.
 
---- Supongo --- Se encogió de hombros y sonrió --- Kiki, has hecho mucho por nosotras.
+---Bueno, algo es algo la verdad ---sonreí y asentí --- No pagan muy bien ---dije bien flojo --- Pero al menos es un dinero, ¿no?
 
-Vi como se alejaba y yo me miré el reloj. Tenía que revisar el guión, así que me marché lo más rápida que pude. Me quedé pensando y analizando la cara de Jane. Obviamente no se había quedado satisfecha y parecía que la nube que la había estado llevando desde que había llegado, se había evaporado haciendo que ella cayera estrepitosamente al suelo. El golpe para ambas había  sido duro.
+---Por supuesto ---se encogió de hombros y sonrió --- Kiki, has hecho mucho por nosotras. Muchas gracias.
 
-Llegué al despacho y me encontré con un pos---it pegado en la puerta, ahí escrito ponía un número de teléfono y un nombre. No lo conocía, así que entré y llamé a mi secretaria. Me dijo que él mismo se había presentado a mi despacho bien temprano y que le llamara con urgencia, no me dio más detalles. Con el teléfono en una mano y con los guiones en la otra, paseé por mi despacho.
+Vi como se alejaba y yo me miré el reloj. Tenía que revisar el guión, así que me marché lo más rápida que pude. Me quedé pensando y analizando la cara de Jane. Obviamente no se había quedado satisfecha y parecía que la nube que la había estado llevando desde que había llegado, se había evaporado haciendo que ella cayera estrepitosamente al suelo. El golpe para todos había sido duro.
 
---- Ah, hola --- Dije cuando contestaron --- Soy María, de...
+Cuando fui a abrir la puerta me encontré con un posit pegado, ahí escrito ponía un número de teléfono y un nombre. No lo conocía, así que entré y llamé a mi secretaria. Me dijo que, la misma persona que ponía en el papel, se había presentado a mi despacho bien temprano y que le llamara con urgencia, no me dio más detalles. Con el teléfono en una mano y con los guiones en la otra, paseé por mi despacho.
 
---- Si --- Me cortó --- Soy el presidente de la KBS --- Hizo una pausa para ver si yo decía algo, pero al notar que me quedé en silencio, prosiguió --- Quería hablar con usted en persona, ¿cuándo estará disponible?
+---Hola ---dije cuando contestaron --- Soy María, de...
 
---- En cualquier momento --- Dejé los guiones sobre la mesa.
+---Sí ---me cortó --- Soy el presidente de la KBS ---hizo una pausa para ver si yo decía algo, pero al notar que me quedé en silencio, prosiguió --- Quería hablar con usted en persona, ¿cuándo estará disponible?
 
---- ... --- Suspiró, mi respuesta no pareció gustarle.
+---¿Le parece bien mañana a las nueve? ---dije rápidamente y muy sorprendida por esa noticia.
 
---- ¿Le parece bien mañana a las nueve? --- Dije rápidamente.
+---De acuerdo, volveré a ir a su despacho mañana a las nueve ---hablaba tan rápido que me costaba entender a veces lo que decía. A primera vista no me caería bien ese hombre.
 
---- De acuerdo, volveré a ir a su despacho mañana a las nueve --- Dijo, hablaba tan rápido que me costaba entender a veces lo que decía. A primera vista no me caería bien ese hombre.
-
---- Pues aquí le estaré esperando --- Él colgó primero y yo miré el teléfono con gesto de extrañada. ¿Por qué quería contactar conmigo el presidente de la KBS?
+---Aquí le estaré esperando ---él colgó primero y yo miré el teléfono con gesto de extrañada. ¿Por qué quería contactar conmigo el presidente de la KBS?
 
 Me puse a revisar los guiones cuando Lee Sooman irrumpió amablemente en mi despacho. Se acercó a mi mesa y sonrió.
 
---- Vengo a aclarar un par de cosas --- Se quedó de pie. Yo esperaba que se sentara, pero no lo hizo --- Y son sobre tu contrato con SM --- Sonrió. ¿Y eso a qué venía ahora? ¿A caso Seunho había hablado con él ya?
+---Vengo a aclarar un par de cosas ---se quedó de pie. Yo esperaba que se sentara, pero no lo hizo --- Y son sobre tu contrato con SM ---sonrió. ¿Y eso a qué venía ahora? ¿A caso Seunho había hablado con él ya?
 
---- ¿Ha pasado algo malo? ¿Algo bueno? --- Entrelacé mis dedos muerta de nervios.
+---¿Ha pasado algo malo? ¿Algo bueno? ---entrelacé mis dedos muerta de nervios.
 
---- No te preocupes --- Pero no se sentaba, y su expresión de indiferencia no ayudaba en nada --- Simplemente decir que tu contrato no se basa simplemente en la SM --- Justo, había hablado con Seunho --- Me ha llamado el presidente de la TN --- Ahí aclaró mi duda --- Y me ha estado comentando varias cosas... Trabajarás aquí, tendrás como prioridad la SM, pero como en tu anterior trabajo, podrán participar otras agencias...
+---No te preocupes ---pero no se sentaba y su expresión de indiferencia no ayudaba en nada --- Simplemente decir que tu contrato no se basa simplemente en la SM ---justo, había hablado con Seunho --- Me ha llamado el presidente de la TN y me ha estado comentando varias cosas. Trabajarás aquí, tendrás como prioridad la SM, pero como en tu anterior trabajo, puedes tener un contrato extra con otras empresas. Pequeños convenios como los que tienes ahora con las cadenas de televisión.
 
---- No entiendo del todo lo que me quieres decir --- Alcé una ceja. Cierto, no estaba entendiendo nada.
+---No entiendo del todo lo que me quieres decir ---alcé una ceja. Cierto, no estaba entendiendo nada.
 
---- Puede trabajar con cualquier empresa... como también con cualquier cadena televisiva, siempre y cuando tenga en cuenta los patrocinios de esta empresa --- Señaló con el dedo en el suelo cuando se refirió a la SM. Yo asentí con la cabeza.
+---Puede trabajar con cualquier empresa, como también con cualquier cadena televisiva, siempre y cuando tenga en cuenta los patrocinios de esta empresa y los actores que de aquí salen --- Señaló con el dedo en el suelo cuando se refirió a la SM. Yo asentí con la cabeza.
 
---- Ok, creo que me queda claro --- Volví a asentir y él medio sonrió.
+---Ok, creo que me queda claro ---volví a asentir y él medio sonrió.
 
---- Pues no tengo nada más que decirte --- Se giró y se marchó conforme había venido. Yo me quedé muerta.
+---Pues no tengo nada más que decirte, pasa un buen día ---se giró y se marchó conforme había venido. Yo me quedé muerta.
 
-Cuando terminé mi trabajo, fui al piso y me encontré con Jane y R hablando sentadas en el sofá. Imaginé que Hana y Elena estaban con su nuevo trabajo, donde habían tenido una buena acogida con el reparto de actores y con los que allí trabajaban. Hana me había dicho que si le iba tan bien, se iría a buscar un piso para poder estar ella sola y dejar de abusar de mi amabilidad. Si de repente yo me quedara tan sola, sería un golpe un poco duro para mí, después de tantos meses con compañía. Suspiré y me senté junto a mis amigas.
+Cuando terminé mi trabajo, fui al piso y me encontré con Jane y R hablando sentadas en el sofá. Imaginé que Hana y Elena estaban con su nuevo trabajo, donde habían tenido una buena acogida con el reparto de actores y con los que allí trabajaban. Hana me había dicho que si le iba tan bien, se iría a buscar un piso para poder estar ella sola y dejar de abusar de mi amabilidad. Si de repente yo me quedara tan sola, sería un golpe un poco duro para mí después de tantos meses con compañía. Suspiré y me senté junto a mis amigas.
 
---- Lo siento... --- Casi susurré.
+---Lo siento... ---casi susurré.
 
---- Kiki --- R sonrió --- Me ha llamado Changmin --- Y se ruborizó --- Me ha dado muchos ánimos para todo, además, me ha aconsejado que termine la carrera antes de hacer nada.
+---Kiki ---R sonrió --- Me ha llamado Changmin ---se ruborizó --- Me ha dado muchos ánimos para todo, además, me ha aconsejado que termine la carrera antes de hacer nada.
 
---- ... --- Jane asintió con la cabeza --- Es lo mejor... --- Puso un puchero --- Pero a mi Yunho no me ha llamado.
-
---- No sufras... Junsu tampoco me ha llamado --- Me encogí de hombros.
+---Es lo mejor ---Jane asintió con la cabeza, más animada después de la charla que habíamos tenido por la mañana.
 
 De pronto la puerta se abrió y se cerró. Se escuchó el arrastrar de algo, y Elena se dejó ver con cara cansada y bostezando.
 
---- Es... agotador --- Sentenció cuando se echó en el sofá --- Este trabajo cansa muchísimo, más de lo que yo creía.
+---Es agotador ---sentenció cuando se echó en el sofá --- Este trabajo cansa muchísimo, más de lo que yo creía.
 
---- Pero todo bien, ¿no? --- Sonrió R.
+---Pero todo bien, ¿no? ---sonrió R.
 
---- Claro --- Asintió moviendo exageradamente la cabeza --- Perfectamente --- Sonrió --- ¿Cenamos?
+---Claro ---asintió moviendo exageradamente la cabeza --- Perfectamente, ¿cenamos?
 
---- Vamos a esperar a Hana --- Dijo Jane.
+---Vamos a esperar a Hana ---dijo Jane.
 
---- No va a venir a cenar --- Elena sacó su móvil y nos lo enseñó --- Me ha mandado un mensaje diciendo que Sanghun la ha invitado a cenar.
+---No va a venir a cenar ---Elena sacó su móvil y nos lo enseñó --- Me ha mandado un mensaje diciendo que Jaejoong la ha invitado a cenar.
 
---- Vaya, vaya --- Me crují los dedos --- La Hanita se nos hecha noviete...
+---Vaya, vaya ---me crují los dedos --- Con que él sí que está en Corea.
 
---- Más o menos...
+Tuve algo de celos, ya que Junsu no tenía tiempo para pasarlo conmigo. Pero no siempre hacían todas las actividades juntos, y algunos tenían algo de tiempo libre. Suspiré pesadamente. Nos pusimos en pie y nos preparamos para cenar. Cuando terminamos y nos acomodamos, mi móvil comenzó a sonar. Vi la cara sonriente de Junsu, que era la foto que tenía cuando él me llamaba. Suspiré y descolgué marchándome a mi habitación.
 
-Todas nos pusimos en pie y nos preparamos para cenar. Cuando terminamos y nos acomodamos, mi móvil comenzó a sonar. Vi la cara sonriente de Junsu, foto que tenía cuando él me llamaba. Suspiré y descolgué marchándome a mi habitación.
+---Hola ---me eché sobre la cama haciendo un ruido sordo mientras suspiraba --- ¿Qué tal?
 
---- Hola --- Me eché sobre la cama haciendo un ruido sordo mientras suspiraba --- ¿Qué tal?
+---Cansado ---él también suspiró --- Pero todo bien ---se quedó en silencio --- Siento si no te he llamado antes.
 
---- Cansado... --- Él también suspiró --- Pero todo bien... --- Se quedó en silencio --- Siento si no te he llamado antes...
+---No te preocupes ---me apresuré a decir, no quería que a cada momento me pidiera perdón por esas chorradas. Sabía cómo era su agenda y todas las cosas que tenía que hacer, yo no quería ser un obstáculo en su mente --- He supuesto que estarías ocupado.
 
---- No te preocupes --- Me apresuré a decir, no quería que a cada momento me pidiera perdón por esas chorradas. Sabía cómo era su agenda y todas las cosas que tenía que hacer, yo no quería ser un obstáculo en su mente --- He supuesto que estarías ocupado...
+---He estado bastante liado ---asintió, en su voz se notaba el cansancio --- Entre el single de Bolero y el concierto en Japón, vamos algo estresados.
 
---- Pues si --- Asintió --- He estado bastante liado... entre el single de Bolero y las canciones en inglés que tenemos que preparar, vamos algo estresados.
+---Te echo de menos ---me mordí el labio mientras jugaba con un mechón de mipelo.
 
---- Lo siento... --- Me mordí el labio. Ahí yo tenía algo de culpa.
+---Y yo a ti ---soltó un largo y profundo suspiro --- Ah, mañana voy a Seúl ---se quedó callado --- Pero con las mismas volveremos a Japón.
 
---- No Kiki --- Negó rápidamente --- Es lo que nosotros hemos decidido --- Rió sin fuerzas --- Así que, no tienes nada de culpa... --- Hizo una pausa --- Ah, mañana vamos a Seúl --- Se quedó callado --- Pero con las mismas volveremos a Japón.
+---¿Y eso? ---pregunté curiosa. Ya sabía que no podría verlo cuando añadió lo último.
 
---- ¿Y eso? --- Pregunté curiosa. Yo ya sabía que no podría verlo cuando añadió lo último.
+---Tenemos una presentación de un producto en un centro comercial, si no me equivoco es el mismo que la presentación del drama ---respondió pensativo --- Puedes venir si quieres y nos podremos ver.
 
---- Tenemos una presentación de un producto en el centro comercial lotte --- Respondió --- Puedes venir si quieres y nos podremos ver.
+---Me encantaría ---soñé algo ilusionada --- No tendrás problemas, ¿no?
 
---- Me encantaría --- Soñé --- Pero no quiero causarte problemas.
+---Qué va, desde que Yunho habló tan serio con Lee Sooman no me han vuelto a decir nada ---bajó el tono de su voz --- Además, Changmin ya está más calmado. No tienes que tener preocupaciones tontas ya.
 
---- ¡Kiki! --- Alzó la voz y supuse que eso le molestó --- No seas absurda... --- Bajó el tono de su voz --- Eso solo son tonterías...
+---Tienes razón, la verdad ---resoplé y me estiré en la cama.
 
---- Voy a preparar un nuevo proyecto --- Dije después de haber estado un rato en silencio --- En principio con la TN Entertainment, ¿qué te parece?
+---¿Qué has hecho hoy? ---me preguntó con curiosidad.
 
---- Me parece muy bien --- Asintió --- A todo esto... ya has preparado lo de nuestra gira, ¿verdad?
+---Pues me han propuesto dirigir un nuevo proyecto de guión ---comenté mientras pensaba en la gran oportunidad que se me abría paso --- Es un proyecto para trabajar solo con la TS y con el canal TVN. Nada implicado con la SM.
 
---- ... --- Eso me pilló de sorpresa y reí --- Claro... hago lo que puedo.
+---Me parece muy bien ---asintió sorprendido y algo animado --- A todo esto, ¿cómo vas con la preparación de la gira?
 
---- Pues mucho ánimo --- Rió --- Yo te dejo ya, que tenemos cosas que hacer... chao Kikita...
+---Pues bien ---fruncí el ceño concentrada en como el equipo que había preparado me organizaba los pequeños detalles --- Estoy a falta de que me avisen con los hoteles.
 
---- Chao... --- Colgué y miré el teléfono.
+---Recuerda reservar para nosotros solos una habitación ---Se echó a reír y yo me sonrojé sin perder la sonrisa de tonta --- Bueno, te dejo ya que es tarde y mañana viaje en avión. Te quiero mucho.
 
-No podía martirizarme, yo misma había puesto las barreras que hacían que estuviéramos así. Después de aquella parafernalia cuando fui a su piso y las miradas demasiado serias de Changmin, me achanté mucho a la hora de estar con Junsu. Y claro, él no era tonto y lo notó, así que también se distanció un poco. Me sentí mal, ya que en vez de intentar ver qué pasaba o por qué yo actuaba así, decidió actuar de la misma manera que yo... Tal vez él se había dado cuenta de como trataba Changmin nuestra relación. Y es que Yoochun ayudaba aún menos. Al final me quedé dormida en la cama y no salí a cenar con las chicas.
+---Y yo a ti --- Colgué y miré el teléfono.
+
+No me podía martirizar con el tema. Cada uno estaba tomando un camino diferente en los distintos proyectos que estábamos llevando a cabo. Eso no implicaba que la relación fuera mala, ya que cada noche que podíamos hablábamos por teléfono. A veces teníamos días malos, como toda pareja, pero sabía que conforme venían se marchaban, Junsu era muy positivo con la relación y se esforzaba el triple por llevarme por el buen camino cuando mi ánimo decaía. Esa noche soñé con Junsu. Como cada noche cuando no estábamos juntos.
