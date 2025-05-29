@@ -95,5 +95,6 @@
 
 //29-129 Jane y R vuelven oficialmente a España
 
-//29-155 llamada de la KBS con algo importante
+//29-155 llamada de la SBS con algo importante
 
+//30-277 revisar más adelante para ver si añado más ahora y luego

@@ -148,13 +148,13 @@ Cuando fui a abrir la puerta me encontré con un posit pegado, ahí escrito pon�
 
 ---Hola ---dije cuando contestaron --- Soy María, de...
 
----Sí ---me cortó --- Soy el presidente de la KBS ---hizo una pausa para ver si yo decía algo, pero al notar que me quedé en silencio, prosiguió --- Quería hablar con usted en persona, ¿cuándo estará disponible?
+---Sí ---me cortó --- Soy el presidente de la SBS ---hizo una pausa para ver si yo decía algo, pero al notar que me quedé en silencio, prosiguió --- Quería hablar con usted en persona, ¿cuándo estará disponible?
 
 ---¿Le parece bien mañana a las nueve? ---dije rápidamente y muy sorprendida por esa noticia.
 
 ---De acuerdo, volveré a ir a su despacho mañana a las nueve ---hablaba tan rápido que me costaba entender a veces lo que decía. A primera vista no me caería bien ese hombre.
 
----Aquí le estaré esperando ---él colgó primero y yo miré el teléfono con gesto de extrañada. ¿Por qué quería contactar conmigo el presidente de la KBS?
+---Aquí le estaré esperando ---él colgó primero y yo miré el teléfono con gesto de extrañada. ¿Por qué quería contactar conmigo el presidente de la SBS?
 
 Me puse a revisar los guiones cuando Lee Sooman irrumpió amablemente en mi despacho. Se acercó a mi mesa y sonrió.
 
