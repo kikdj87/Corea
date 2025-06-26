@@ -12,7 +12,7 @@ A la mañana siguiente un aire en mi cara me despertó. Respiré profundamente y
 
 ---Otra como Yoochun ---se echó a reír y sentí como salió de la cama --- Pasaré a verte dentro de cinco minutos, como no hayas despertado, tomaré medidas drásticas.
 
-Seguí durmiendo sin saber qué hacían él y los demás. Me acurruqué entre las sabanas y respiré tan profundamente que el perfume de Junsu me llenó por completo. Abrí los ojos y me sonrojé. ¿De verdad había dormido con él? Me senté en la cama y me pasé la mano por el pelo. -No había pasado nada aquella noche, pero después de los besos y momentos íntimos sentía mariposas en el estómago.
+Seguí durmiendo sin saber qué hacían él y los demás. Me acurruqué entre las sabanas y respiré tan profundamente que el perfume de Junsu me llenó por completo. Abrí los ojos y me sonrojé. ¿De verdad había dormido con él? Me senté en la cama y me pasé la mano por el pelo. No había pasado nada aquella noche, pero después de los besos y momentos íntimos sentía mariposas en el estómago.
 
 ---Tienes cara de traumada, a saber qué ha pasado esta noche ---Yunho estaba apoyado en la puerta y me miró con media sonrisa y una ceja alzada.
 

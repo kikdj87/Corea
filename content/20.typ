@@ -356,7 +356,7 @@ Saco su móvil y buscó en su agenda, al poco se puso a hablar con alguien. Adiv
 
 ---Ah, eh... ---comenzó a decir --- ¿Aun estáis en casa de las chicas? --- Se quedó callado y asintió con la cabeza --- Bueno, yo quería preguntarte, Yunnie ---dijo y yo reí flojo --- Si nos podíais dejar la casa esta noche para nosotros.
 
-escuché de fondo la risa estruendosa de Yunho y yo ya no pude escuchar nada más de la conversación. ¿Que yo lo había empezado? ¿Que había empezado? ¿A caso él estaba pensando con su cabeza inferior? No, no, no, él no podía dejarse llevar por su “fuego interior”, la cosa tenía que surgir entre ambos y yo no estaba pensando en ese tema precisamente. Suspire pesadamente y estiré los brazos contra la guantera, me crují los codos con mucha paciencia.
+Escuché de fondo la risa estruendosa de Yunho y yo ya no pude escuchar nada más de la conversación. ¿Que yo lo había empezado? ¿Que había empezado? ¿A caso él estaba pensando con su cabeza inferior? No, no, no, él no podía dejarse llevar por su “fuego interior”, la cosa tenía que surgir entre ambos y yo no estaba pensando en ese tema precisamente. Suspire pesadamente y estiré los brazos contra la guantera, me crují los codos con mucha paciencia.
 
 ---¡Kiki! ---lo miré sobresaltada y el preocupado --- ¿Estas bien?
 
